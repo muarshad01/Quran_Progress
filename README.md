@@ -2,9 +2,9 @@
 * [64. Surah At-Taghabun (The manifestation of losses)]()  -- Dec 13, 2023
 * [73. Surah Al-Muzzammil (The one covering himself)]()    -- Dec 13, 2023
 ***
-* [Surah Al-Kafirun (The Disbelievers)]()
-* [Surah Al-Nasar (The Help)]()
-* [Surah Al-Masad (The Flama)]()
-* [Surah Al-Ikhlas (The Unity)]
-* [Surah Al-Falaq (The Dawn)]
-* [Surah An-Nas (The Men)]()
+* [109. Surah Al-Kafirun (The Disbelievers)]()
+* [110. Surah Al-Nasar (The Help)]()
+* [111. Surah Al-Masad (The Flama)]()
+* [112. Surah Al-Ikhlas (The Unity)]
+* [113. Surah Al-Falaq (The Dawn)]
+* [114. Surah An-Nas (The Men)]()
