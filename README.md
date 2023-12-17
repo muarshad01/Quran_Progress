@@ -8,8 +8,8 @@
 * [64. Surah At-Taghabun (The manifestation of losses)]()  -- Dec 13, 2023
 * [73. Surah Al-Muzzammil (The one covering himself)]()    -- Dec 13, 2023
 ***
-* [93. Surah Ad-Duhaa ()]
-* [94. Surah Ash-Sharh]
+* [93. Surah Ad-Duhaa ()]()
+* [94. Surah Ash-Sharh]()
 ***
 * [108. Surah Al-Kawthar]()
 * [109. Surah Al-Kafirun (The Disbelievers)]()
