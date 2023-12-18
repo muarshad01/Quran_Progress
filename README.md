@@ -11,9 +11,10 @@
 * [93. Surah Ad-Duhaa ()]()
 * [94. Surah Ash-Sharh]()
 ***
-* [108. Surah Al-Kawthar]()
-* [109. Surah Al-Kafirun (The Disbelievers)]()
-* [110. Surah Al-Nasar (The Help)]()
+* [103. Surah Al-Asr (The Time)]() -- Dec 18, 2023
+* [108. Surah Al-Kawthar]() -- Dec 18, 2023
+* [109. Surah Al-Kafirun (The Disbelievers)]() -- Dec 18, 2023
+* [110. Surah Al-Nasar (The Help)]() -- Dec 18, 2023
 * [111. Surah Al-Masad (The Flame)]()
 * [112. Surah Al-Ikhlas (The Unity)]()
 * [113. Surah Al-Falaq (The Dawn)]() -- Dec 17, 2023
