@@ -8,6 +8,9 @@
 * [64. Surah At-Taghabun (The manifestation of losses)]()  -- Dec 13, 2023
 * [73. Surah Al-Muzzammil (The one covering himself)]()    -- Dec 13, 2023
 ***
+### Chapter 30
+* [078. Surah An-Naba (The News)]() --
+* [079. ]
 * [093. Surah Ad-Duha (The Early Hours)]() -- Dec 24, 2023
 * [094. Su Al-Inshirah (The opening up)]() -- Dec 24, 2023
 * [095. Surah At-Tin (The Fig)]() -- Dec 24, 2023
