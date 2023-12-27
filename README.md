@@ -11,6 +11,13 @@
 ### Chapter 30
 * [078. Surah An-Naba (The News)]() --
 * [079. ]
+* [086. Surah At-Tariq (The Night Comer)] -- Dec 27, 2023
+* [087. Surah Al-Ala (The Most High)] -- Dec 27, 2023
+* [088. Surah Al-Ghaashiyah (The Overwhelming)] -- Dec 27, 2023
+* [089. Surah Al-Fajr (The Dawn)] -- Dec 27, 2023
+* [090. Surah ] 
+* [091. Surah Ash-Shams (The Sun)] -- Dec 27, 2023
+* [092. Surah ]
 * [093. Surah Ad-Duha (The Early Hours)]() -- Dec 24, 2023
 * [094. Su Al-Inshirah (The opening up)]() -- Dec 24, 2023
 * [095. Surah At-Tin (The Fig)]() -- Dec 24, 2023
