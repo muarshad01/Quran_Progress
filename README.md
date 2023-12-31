@@ -13,10 +13,10 @@
 * [078. Surah An-Naba (The News)]() --
 * [079. Surah]()
 * [080. Surah]()
-* [081. Surah]()
-* [082. Surah]()
+* [081. Surah At-Takwir (The OverThrowing)]() -- Dec 31,2023
+* [082. Surah Al-Infitaar (The Splitting Asunder)]() -- Dec 31, 2023
 * [083. Surah]()
-* [084. Surah]()
+* [084. Surah Al-Inshiqaq (The Splitting Asunder)]() -- Dec 31,2023
 * [085. Surah]()
 * [086. Surah At-Tariq (The Night Comer)]() -- Dec 27, 2023
 * [087. Surah Al-Ala (The Most High)]() -- Dec 27, 2023
