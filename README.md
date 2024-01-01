@@ -1,8 +1,8 @@
 * [01. Surah Al-Fatiha - The Opening]()                    -- Dec 13, 2023
 * [18. Surah Al-Kahf]()
 ### Chapter 16
-* [20. Surah Ta-ha]()                                      -- Dec 17, 2023
-***
+* [20. Surah Ta-ha]() -- Dec 17, 2023
+### Chapter 22 & 23
 * [36. Surah Ya-Seen]()
 ***
 * [55. Surah Ar-Rahman]()
