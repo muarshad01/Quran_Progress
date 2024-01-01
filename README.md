@@ -10,8 +10,8 @@
 * [73. Surah Al-Muzzammil (The one covering himself)]()    -- Dec 13, 2023
 ***
 ### Chapter 30
-* [078. Surah An-Naba (The News)]() --
-* [079. Surah]()
+* [078. Surah An-Naba (The News)]() -- January 01, 2024
+* [079. Surah Al-Inshiqaq (Those who pull out)]() -- January 01, 2024
 * [080. Surah]()
 * [081. Surah At-Takwir (The OverThrowing)]() -- Dec 31,2023
 * [082. Surah Al-Infitaar (The Splitting Asunder)]() -- Dec 31, 2023
