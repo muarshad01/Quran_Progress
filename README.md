@@ -12,7 +12,7 @@
 ### Chapter 30
 * [078. Surah An-Naba (The News)]() -- January 01, 2024
 * [079. Surah Al-Inshiqaq (Those who pull out)]() -- January 01, 2024
-* [080. Surah]()
+* [080. Surah Abasa (He Frowned)]() -- 
 * [081. Surah At-Takwir (The OverThrowing)]() -- Dec 31,2023
 * [082. Surah Al-Infitaar (The Splitting Asunder)]() -- Dec 31, 2023
 * [083. Surah]()
