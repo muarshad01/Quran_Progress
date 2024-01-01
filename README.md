@@ -48,3 +48,9 @@
 * [113. Surah Al-Falaq (The Dawn)]() -- Dec 17, 2023
 * [114. Surah An-Nas (The Men)]() -- Dec 17, 2023
 ***
+
+### Useful Link
+
+* [Quran word-by-word](https://quranwbw.com/)
+  
+***
