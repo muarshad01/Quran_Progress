@@ -20,9 +20,9 @@
 * [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- January 02, 2024
 * [081. Surah At-Takwir (The OverThrowing)]() -- Dec 31,2023
 * [082. Surah Al-Infitaar (The Splitting Asunder)]() -- Dec 31, 2023
-* [083. Surah]()
+* [083. Surah Al-Mutaffifin (Defrauding)](https://quranwbw.com/83) --
 * [084. Surah Al-Inshiqaq (The Splitting Asunder)]() -- Dec 31,2023
-* [085. Surah]()
+* [085. Surah Al-Burooj (The Constellations)](https://quranwbw.com/85) -- 
 * [086. Surah At-Tariq (The Night Comer)]() -- Dec 27, 2023
 * [087. Surah Al-Ala (The Most High)]() -- Dec 27, 2023
 * [088. Surah Al-Ghaashiyah (The Overwhelming)]() -- Dec 27, 2023
