@@ -11,6 +11,7 @@
 ### Chapter 28
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
 ### Chapter 29
+* [67. Surah Al-Mulk](https://quranwbw.com/67)
 * [73. Surah Al-Muzzammil (The one covering himself)](https://quranwbw.com/73) -- Dec 13, 2023
 ***
 ### Chapter 30
