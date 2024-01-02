@@ -17,7 +17,7 @@
 ### Chapter 30
 * [078. Surah An-Naba (The News)]() -- January 01, 2024
 * [079. Surah Al-Inshiqaq (Those who pull out)]() -- January 01, 2024
-* [080. Surah Abasa (He Frowned)]() -- 
+* [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- January 02, 2024
 * [081. Surah At-Takwir (The OverThrowing)]() -- Dec 31,2023
 * [082. Surah Al-Infitaar (The Splitting Asunder)]() -- Dec 31, 2023
 * [083. Surah]()
@@ -27,7 +27,7 @@
 * [087. Surah Al-Ala (The Most High)]() -- Dec 27, 2023
 * [088. Surah Al-Ghaashiyah (The Overwhelming)]() -- Dec 27, 2023
 * [089. Surah Al-Fajr (The Dawn)]() -- Dec 27, 2023
-* [090. Surah ]()
+* [090. Surah Al-Balad](https://quranwbw.com/90) -- January 02, 2024
 * [091. Surah Ash-Shams (The Sun)]() -- Dec 27, 2023
 * [092. Surah ]()
 * [093. Surah Ad-Duha (The Early Hours)]() -- Dec 24, 2023
