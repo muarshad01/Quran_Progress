@@ -4,8 +4,8 @@
 * [20. Surah Ta-ha]() -- Dec 17, 2023
 ### Chapter 22 & 23
 * [36. Surah Ya-Seen]()
-***
-* [55. Surah Ar-Rahman]()
+### Chapter 27
+* [55. Surah Ar-Rahmaan](https://quranwbw.com/55)
 ### Chapter 28
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
 ### Chapter 29
