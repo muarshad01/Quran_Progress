@@ -4,8 +4,6 @@
 * [18. Surah Al-kahf (The Cave)](https://quranwbw.com/18)
 ### Chapter 16
 * [20. Surah Ta-ha]() -- Dec 17, 2023
-### Chapter 18
-* [18. Surah Al-Kahf](https://quranwbw.com/18)
 ### Chapter 22 & 23
 * [36. Surah Ya-Seen]()
 ### Chapter 27
