@@ -6,7 +6,7 @@
 ### Chapter 16
 * [20. Surah Ta-ha](https://quranwbw.com/20) -- Dec 17, 2023
 ### Chapter 22 & 23
-* [36. Surah Ya-Seen]()
+* [36. Surah Yaseen](https://quranwbw.com/) -- 
 ### Chapter 27
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55)
 ### Chapter 28
