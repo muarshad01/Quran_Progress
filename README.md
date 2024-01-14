@@ -8,7 +8,10 @@
 * [20. Surah Ta-ha](https://quranwbw.com/20) -- Dec 17, 2023
 ### Chapter 22 & 23
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
+### Chapter 26
+* [50 Surah Qaaf](https://quranwbw.com/50) --
 ### Chapter 27
+* [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) -- 
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
 ### Chapter 28
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
