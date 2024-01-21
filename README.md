@@ -6,12 +6,24 @@
   * [I have never been disappointed in my prayer to You, my Lord!](https://quran.com/19/4)
 ### Chapter 16
 * [20. Surah Ta-ha](https://quranwbw.com/20) -- Januray 18, 2024 <--> February 07, 2024
+### Chapter 17
+* []()
 ### Chapter 18
 * [23. Surah Al Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
+### Chapter 19
+* []()
+### Chapter 20
+* []()
 ### Chapter 21
 * [32. Surah Sajda](https://quranwbw.com/32) -- Januray 18, 2024
 ### Chapter 22 & 23
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
+### Chapter 23
+* []()
+### Chapter 24
+* []()
+### Chapter 25
+* []()
 ### Chapter 26
 * [50 Surah Qaaf](https://quranwbw.com/50) --
 ### Chapter 27
