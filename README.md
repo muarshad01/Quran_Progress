@@ -19,7 +19,7 @@
 ### Chapter 22 & 23
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
 ### Chapter 23
-* []()
+* [38. Surah Saad](https://quranwbw.com/38) --
 ### Chapter 24
 * []()
 ### Chapter 25
