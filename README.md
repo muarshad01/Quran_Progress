@@ -21,11 +21,12 @@
 ### Chapter 23
 * [38. Surah Saad](https://quranwbw.com/38) --
 ### Chapter 24
-* []()
+* [40. Surah Ghaffir](https://quranwbw.com/40) --
 ### Chapter 25
-* []()
+* [44. Surah Dukhaan](https://quranwbw.com/44) --
 ### Chapter 26
-* [50 Surah Qaaf](https://quranwbw.com/50) --
+* [47. Surah Muhammad](https://quranwbw.com/47) --
+* [50. Surah Qaaf](https://quranwbw.com/50) --
 ### Chapter 27
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) -- 
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
