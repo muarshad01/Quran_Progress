@@ -37,6 +37,7 @@
 ### Chapter 29
 * [67. Surah Al-Mulk](https://quranwbw.com/67) -- January 26, 2024
 * [73. Surah Al-Muzzammil (The one covering himself)](https://quranwbw.com/73) -- Dec 13, 2023
+* [76. Surah Al-Insaan (al-Dahr)](https://quranwbw.com/76) -- January xx, 2024
 ***
 ### Chapter 30
 * [078. Surah An-Naba (The News)]() -- January 01, 2024
