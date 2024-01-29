@@ -21,7 +21,7 @@
 ### Chapter 23
 * [38. Surah Saad](https://quranwbw.com/38) --
 ### Chapter 24
-* [40. Surah Ghaffir](https://quranwbw.com/40) --
+* [40. Surah Ghaffir (Al-Muʼmin)](https://quranwbw.com/40) -- January 28, 2024
 ### Chapter 25
 * [44. Surah Dukhaan](https://quranwbw.com/44) --
 ### Chapter 26
