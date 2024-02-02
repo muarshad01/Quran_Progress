@@ -26,7 +26,7 @@
 * [44. Surah Dukhaan](https://quranwbw.com/44) --
 ### Chapter 26
 * [47. Surah Muhammad](https://quranwbw.com/47) --
-* [48. Surah Fath](https://quranwbw.com/48) --
+* [48. Surah Fath](https://quranwbw.com/48) -- February 01, 2024
 * [50. Surah Qaaf](https://quranwbw.com/50) --
 ### Chapter 27
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) -- 
