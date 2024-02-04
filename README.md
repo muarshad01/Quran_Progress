@@ -30,7 +30,8 @@
 * [48. Surah Fath](https://quranwbw.com/48) -- February 01, 2024
 * [50. Surah Qaaf](https://quranwbw.com/50) --
 ### Chapter 27
-* [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) -- 
+* [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) --
+* [53. Surah Najam](https://quranwbw.com/53) -- February 04, 2024
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- January 26, 2024
 ### Chapter 28
