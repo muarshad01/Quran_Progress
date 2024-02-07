@@ -33,6 +33,7 @@
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) --
 * [53. Surah Najam](https://quranwbw.com/53) -- February 04, 2024
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
+* [56. Surah Al-Waaqia](https://quranwbw.com/56) -- February 07, 2024
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- January 26, 2024
 ### Chapter 28
 * [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- January 21, 2024
