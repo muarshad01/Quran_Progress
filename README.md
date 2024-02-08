@@ -5,7 +5,7 @@
 * [19. Surah Maryam](https://quranwbw.com/19) -- January 10, 2024
   * [I have never been disappointed in my prayer to You, my Lord!](https://quran.com/19/4)
 ### Chapter 16
-* [20. Surah Ta-ha](https://quranwbw.com/20) -- Januray 18, 2024 <--> February 07, 2024
+* [20. Surah Tahaa](https://quranwbw.com/20) -- February 08, 2024
 ### Chapter 17
 * []()
 ### Chapter 18
