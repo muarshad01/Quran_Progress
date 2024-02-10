@@ -37,6 +37,8 @@
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- January 26, 2024
 ### Chapter 28
 * [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- February 10, 2024
+    * [59/1: Whatsoever is in the heavens and whatsoever is on the earth glorifies Allah. And He is the All-Mighty, the All-Wise](https://quranwbw.com/59#1)
+    * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19) 
 * [62. Surah Al Jumu'a](https://quranwbw.com/62)
     * [62/5: donkey carrying books](https://quran.com/62/5)
     * [62/10: remember Allah SWT often so that you may be successful](https://quran.com/62/10)
