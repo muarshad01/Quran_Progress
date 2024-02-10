@@ -38,7 +38,7 @@
 ### Chapter 28
 * [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- February 10, 2024
 * [62. Surah Al Jumu'a](https://quranwbw.com/62)
- * [donkey carrying books](https://quran.com/62/5)
+- [donkey carrying books](https://quran.com/62/5)
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
 ### Chapter 29
 * [67. Surah Al-Mulk](https://quranwbw.com/67) -- January 26, 2024
