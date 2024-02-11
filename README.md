@@ -1,6 +1,6 @@
 ### Chapter 1
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
-* 7 Ayats, 15 Alfaaz, 123 Haroof
+    * 7 Ayats, 15 Alfaaz, 123 Haroof
 ### Chapter 15 & 16
 * [18. Surah Al-kahf (The Cave)](https://quranwbw.com/18) -- Jan 19,2024
 * [19. Surah Maryam](https://quranwbw.com/19) -- January 10, 2024
