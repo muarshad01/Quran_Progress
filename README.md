@@ -43,7 +43,10 @@
 * [62. Surah Al Jumu'a](https://quranwbw.com/62)
     * [62/5: donkey carrying books](https://quran.com/62/5)
     * [62/10: remember Allah SWT often so that you may be successful](https://quran.com/62/10)
+* [63. Al Munaafiqoon](https://quranwbw.com/63)
+   * [63:1O you who believe! Let not your properties or your children divert you from the remembrance of Allah. And whosoever does that, then they are the losers](https://quranwbw.com/63)
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
+* [68 ]
 ### Chapter 29
 * [67. Surah Al-Mulk](https://quranwbw.com/67) -- January 26, 2024
 * [70. Surah Al Ma''aarij (The Ascending Stairways)](https://quranwbw.com/70) -- February 07, 2024
