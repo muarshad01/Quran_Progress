@@ -103,9 +103,9 @@
 ### Number of Surah in Qurah and 114 Stream of illm from Bahar-Noor-Alqaa
 * [Quran word-by-word](https://quranwbw.com/)
    * Arsh-e-mualaa has Bahar-Noor-Alqaa (Allah SWT Noor)
-   * 118 streams of Ilm = 114 (His Creation - 111,118 sub-alooms) + 4 (Alam Ghayab-wa-Shahada - Ilh Ghayab) 
+   * 118 streams of Ilm flow from Bahar-Noor-Alqaa = 114 (His Creation - 111,118 sub-alooms) + 4 (Alam Ghayab-wa-Shahada - Ilh Ghayab) 
    * Number of Surah in Quran - 114
    * Bismillah hir rahman nir raheem - 19 Haroof
-   * 114 (surah) / 19 (Bismillah hir rahman nir raheem Haroof) = 6
+   * 114 (surah) / 19 (Bismillah hir rahman nir raheem Haroof) = 6 (Universe Formation)
   
 ***
