@@ -101,5 +101,7 @@
 ### Useful Link
 
 * [Quran word-by-word](https://quranwbw.com/)
+   * Arsh-e-mualaa has Bahar-Noor-Alqaa (Allah SWT Noor)
+   * 114 (His Creation - 111,118 sub-alooms) + 4 (Alam Ghayab-wa-Shahada - Ilh Ghayab) = 118 streams of Ilm
   
 ***
