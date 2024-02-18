@@ -104,5 +104,7 @@
    * Arsh-e-mualaa has Bahar-Noor-Alqaa (Allah SWT Noor)
    * 118 streams of Ilm = 114 (His Creation - 111,118 sub-alooms) + 4 (Alam Ghayab-wa-Shahada - Ilh Ghayab) 
    * Number of Surah in Quran - 114
+   * Bismillah hir rahman nir raheem - 19 Haroof
+   * 114 (surah) / 19 (Bismillah hir rahman nir raheem Haroof) = 6
   
 ***
