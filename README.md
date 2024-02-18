@@ -98,8 +98,9 @@
 * [114. Surah An-Nas (The Men)]() -- Dec 17, 2023
 ***
 
-### Useful Link
+## Useful Link
 
+### Number of Surah in Qurah and 114 Stream of illm from Bahar-Noor-Alqaa
 * [Quran word-by-word](https://quranwbw.com/)
    * Arsh-e-mualaa has Bahar-Noor-Alqaa (Allah SWT Noor)
    * 118 streams of Ilm = 114 (His Creation - 111,118 sub-alooms) + 4 (Alam Ghayab-wa-Shahada - Ilh Ghayab) 
