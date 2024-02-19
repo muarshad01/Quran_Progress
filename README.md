@@ -99,15 +99,3 @@
 ***
 
 ## Useful Link
-
-# Book: Faqeer Nagri
-* Arsh-e-mualaa has Bahar-Noor-Alqaa (Allah SWT Noor)
-   * 118 streams of Ilm flow from `Bahar-Noor-Alqaa`
-      * 114 (His Creation - 111,118 sub-alooms) + 4 (`alim al-ghaib wa-sh shahada` - Ilh Ghayab) 
-      * Quran - 114 Surahs
-   * Bismillahir Rahmanir Raheem - 19 Haroof
-   * 114 / 19 = 6 (Universe Formation)
-   * Stamp of Allah SWT
-      * Allah SWT in center; Upper- hemisphere (Bismillahir Rahmanir Raheem); Lower-hemisphere (Muhammad Rasool Allah)
-* [Faqeer Nagri: Session 27 Ilm Ludni](https://www.youtube.com/watch?v=AzrYoVMIrbQ)
-   * 29 surah's start with Haroof-e-Muqataat: `2 + 9 = 11` -> `1 AND 1` -> `Allah SWT` AND `Prophtet PUBH` = 2    
