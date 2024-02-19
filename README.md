@@ -100,15 +100,14 @@
 
 ## Useful Link
 
-### Number of Surah in Qurah and 114 Stream of illm from Bahar-Noor-Alqaa
-* [Quran word-by-word](https://quranwbw.com/)
-   * Arsh-e-mualaa has Bahar-Noor-Alqaa (Allah SWT Noor)
-   * 118 streams of Ilm flow from Bahar-Noor-Alqaa
-      * 114 (His Creation - 111,118 sub-alooms) + 4 (Alam Ghayab-wa-Shahada - Ilh Ghayab) 
-      * Number of Surah in Quran - 114
-   * Bismillah hir rahman nir raheem - 19 Haroof
+# Book: Faqeer Nagri
+* Arsh-e-mualaa has Bahar-Noor-Alqaa (Allah SWT Noor)
+   * 118 streams of Ilm flow from `Bahar-Noor-Alqaa`
+      * 114 (His Creation - 111,118 sub-alooms) + 4 (`alim al-ghaib wa-sh shahada` - Ilh Ghayab) 
+      * Quran - 114 Surahs
+   * Bismillahir Rahmanir Raheem - 19 Haroof
    * 114 / 19 = 6 (Universe Formation)
-   * Allah ki Mohar
-      * Allah SWT in center; Upper Hemisphere (Bismillah hir rahman nir raheem); Lower Hemisphere (Muhammad Rasool Allah)
+   * Stamp of Allah SWT
+      * Allah SWT in center; Upper- hemisphere (Bismillahir Rahmanir Raheem); Lower-hemisphere (Muhammad Rasool Allah)
 * [Faqeer Nagri: Session 27 Ilm Ludni](https://www.youtube.com/watch?v=AzrYoVMIrbQ)
-   * 29 surah's start with Haroof-e-Muqataat: 2 + 9 = 11 -> 1 AND 1 -> `Allah SWT` AND `Prophtet PUBH` = 2    
+   * 29 surah's start with Haroof-e-Muqataat: `2 + 9 = 11` -> `1 AND 1` -> `Allah SWT` AND `Prophtet PUBH` = 2    
