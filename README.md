@@ -109,3 +109,4 @@
    * 114 (surah) / 19 (Bismillah hir rahman nir raheem Haroof) = 6 (Universe Formation)
    * Allah ki Mohar ...
 * [Faqeer Nagri: Session 27 Ilm Ludni](https://www.youtube.com/watch?v=AzrYoVMIrbQ)
+   * 29 surah's start with Haroof-e-Muqataat: 2 + 9 = 11 -> 1 AND 1 -> `Allah SWT` AND `Prophtet PUBH` = 2    
