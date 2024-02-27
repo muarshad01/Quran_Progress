@@ -13,7 +13,8 @@
 * [23. Surah Al Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
 ### Chapter 19
 * [26. Surah Ash Shu'araa](https://quranwbw.com/26) --
-   * [26:[78-83] Who is Allah SWT](https://quranwbw.com/26#78-83) 
+   * [26:[78-83] Who is Allah SWT](https://quranwbw.com/26#78-83)
+   * [Jannat Kay Waris](https://quranwbw.com/26#85)
 ### Chapter 20
 * []()
 ### Chapter 21
