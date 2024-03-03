@@ -4,6 +4,9 @@
 * [02 Surah Baqarah](https://quranwbw.com/2)
    * [02:269 Khair-e-Kaseer (A great privilege)](https://quran.com/2/269)
    * [02:269 Ulul Albab (People of reason)](https://quran.com/2/269)
+### Chapter 10
+* [10. Surah Yunus](https://quranwbw.com/10)
+   * [And if Allah touches you with hurt, there is none who can remove it but He; and if He intends any good for you, there is none who can repel His Favour which He causes it to reach whomsoever of His slaves He will. And He is the Oft-Forgiving, Most Merciful](https://quranwbw.com/10#107)
 ### Chapter 15 & 16
 * [18. Surah Al-kahf (The Cave)](https://quranwbw.com/18) -- Jan 19,2024
 * [19. Surah Maryam](https://quranwbw.com/19) -- January 10, 2024
