@@ -32,7 +32,7 @@
 ### Chapter 24
 * [40. Surah Ghaffir (Al-Muʼmin)](https://quranwbw.com/40) -- January 28, 2024
 ### Chapter 25
-* [42. Surah Al-Shura](https://quranwbw.com/)
+* [42. Surah Al-Shura](https://quranwbw.com/) -- March 03, 2024
 * [44. Surah Dukhaan (Smoke)](https://quranwbw.com/44) --
 ### Chapter 26
 * [44. Surah Dukhaan](https://quranwbw.com/44) -- February 03, 2024
