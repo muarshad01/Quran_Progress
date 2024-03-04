@@ -1,4 +1,4 @@
-### Chapter 1
+e## Chapter 1
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
     * 7 Ayats, 15 Alfaaz, 123 Haroof
 * [02 Surah Baqarah](https://quranwbw.com/2)
@@ -33,15 +33,26 @@
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
 ### Chapter 23
 * [38. Surah Saad](https://quranwbw.com/38) --
+
+***
+
 ### Chapter 24
+
 * [40. Surah Ghaffir (Al-Muʼmin)](https://quranwbw.com/40) -- January 28, 2024
+
+***
+
 ### Chapter 25
+
 * [42. Surah Al-Shura](https://quranwbw.com/) -- March 03, 2024
-* [42/8 - He admits whom He wills to His Mercy. And the Zalimun (polytheists and wrong-doers, etc.) will have neither a Wali (protector) nor a helper](https://quranwbw.com/42#8)
-* [42/10 - And say O Muhammad SAW to these polytheists:) Such is Allah, my Lord in Whom I put my trust, and to Him I turn in all of my affairs and in repentance](https://quranwbw.com/42#10)
-* [42/20 - Whosoever desires (with his deeds) the reward of the Hereafter, We give him increase in his reward, and whosoever desires the reward of this world (with his deeds), We give him thereof (what is written for him), and he has no portion in the Hereafter](https://quranwbw.com/42#20)
-* [42/23 - Allah chooses for Himself whom He wills, and guides unto Himself who turns to Him in repentance and in obedience](https://quranwbw.com/42#13)
-* [44. Surah Dukhaan (Smoke)](https://quranwbw.com/44) --
+    * [42/8 - He admits whom He wills to His Mercy. And the Zalimun (polytheists and wrong-doers, etc.) will have neither a Wali (protector) nor a helper](https://quranwbw.com/42#8)
+    * [42/10 - And say O Muhammad SAW to these polytheists:) Such is Allah, my Lord in Whom I put my trust, and to Him I turn in all of my affairs and in repentance](https://quranwbw.com/42#10)
+    * [42/20 - Whosoever desires (with his deeds) the reward of the Hereafter, We give him increase in his reward, and whosoever desires the reward of this world (with his deeds), We give him thereof (what is written for him), and he has no portion in the Hereafter](https://quranwbw.com/42#20)
+    * [42/23 - Allah chooses for Himself whom He wills, and guides unto Himself who turns to Him in repentance and in obedience](https://quranwbw.com/42#13)
+    * [44. Surah Dukhaan (Smoke)](https://quranwbw.com/44) --
+
+***
+
 ### Chapter 26
 * [44. Surah Dukhaan](https://quranwbw.com/44) -- February 03, 2024
 * [47. Surah Muhammad](https://quranwbw.com/47) --
