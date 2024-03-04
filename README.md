@@ -11,7 +11,7 @@
 ### Chapter 10
 
 * [10. Surah Yunus](https://quranwbw.com/10)
-   * [And if Allah touches you with hurt, there is none who can remove it but He; and if He intends any good for you, there is none who can repel His Favour which He causes it to reach whomsoever of His slaves He will. And He is the Oft-Forgiving, Most Merciful](https://quranwbw.com/10#107)
+   * [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
 
 ***
 
