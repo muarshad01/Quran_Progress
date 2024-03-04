@@ -1,37 +1,77 @@
-e## Chapter 1
+## Chapter 1
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
     * 7 Ayats, 15 Alfaaz, 123 Haroof
 * [02 Surah Baqarah](https://quranwbw.com/2)
    * [02:216 Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
    * [02:269 Khair-e-Kaseer (A great privilege)](https://quran.com/2/269)
    * [02:269 Ulul Albab (People of reason)](https://quran.com/2/269)
+
+***
+
 ### Chapter 10
+
 * [10. Surah Yunus](https://quranwbw.com/10)
    * [And if Allah touches you with hurt, there is none who can remove it but He; and if He intends any good for you, there is none who can repel His Favour which He causes it to reach whomsoever of His slaves He will. And He is the Oft-Forgiving, Most Merciful](https://quranwbw.com/10#107)
+
+***
+
 ### Chapter 15 & 16
+
 * [18. Surah Al-kahf (The Cave)](https://quranwbw.com/18) -- Jan 19,2024
 * [19. Surah Maryam](https://quranwbw.com/19) -- January 10, 2024
   * [I have never been disappointed in my prayer to You, my Lord!](https://quran.com/19/4)
+
+***
+
 ### Chapter 16
+
 * [20. Surah Tahaa](https://quranwbw.com/20) -- February 08, 2024
+
+***
+
 ### Chapter 17
+
 * []()
+
+***
+
 ### Chapter 18
+
 * [23. Surah Al Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
+
+***
+
 ### Chapter 19
+
 * [26. Surah Ash Shu'araa](https://quranwbw.com/26) --
    * [26:3 Don't grive yourself to death](https://quranwbw.com/26#3)
    * [26:4 If We will, We could send down to them from the heaven a sign, to which they would bend their necks in humility](https://quranwbw.com/26#5)
    * [26:[78-83] Who is Allah SWT](https://quranwbw.com/26#78-83)
    * [26:85 Jannat Kay Waris](https://quranwbw.com/26#85)
    * [26:87 Roz-e-mashre azur hai man pazeer](https://quranwbw.com/26#87)
+
+***
+
 ### Chapter 20
+
 * []()
+
+***
+
 ### Chapter 21
+
 * [32. Surah Sajda](https://quranwbw.com/32) -- Januray 18, 2024
+
+***
+
 ### Chapter 22 & 23
+
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
+
+***
+
 ### Chapter 23
+
 * [38. Surah Saad](https://quranwbw.com/38) --
 
 ***
@@ -55,17 +95,25 @@ e## Chapter 1
 ***
 
 ### Chapter 26
+
 * [44. Surah Dukhaan](https://quranwbw.com/44) -- February 03, 2024
 * [47. Surah Muhammad](https://quranwbw.com/47) --
 * [48. Surah Fath](https://quranwbw.com/48) -- February 01, 2024
 * [50. Surah Qaaf](https://quranwbw.com/50) -- February 20, 2024
+
+***
+
 ### Chapter 27
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) --
 * [53. Surah Najam](https://quranwbw.com/53) -- February 04, 2024
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
 * [56. Surah Al-Waaqia](https://quranwbw.com/56) -- February 07, 2024
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- January 26, 2024
+
+***
+
 ### Chapter 28
+
 * [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- February 10, 2024
     * [59/1: Whatsoever is in the heavens and whatsoever is on the earth glorifies Allah. And He is the All-Mighty, the All-Wise](https://quranwbw.com/59#1)
     * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19) 
@@ -77,7 +125,11 @@ e## Chapter 1
    * [63:1O - O you who believe! Let not your properties or your children divert you from the remembrance of Allah. And whosoever does that, then they are the losers](https://quranwbw.com/63)
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
 * [68 ]
+
+***
+
 ### Chapter 29
+
 * [67. Surah Al-Mulk](https://quranwbw.com/67) -- January 26, 2024
 * [68. Surah Al Qalam](https://quranwbw.com/68) -- February 18, 2024
    * [68: 4 And you are truly ˹a man˺ of outstanding character.](https://quran.com/68/4)
@@ -87,7 +139,9 @@ e## Chapter 1
 * [70. Surah Al Ma''aarij (The Ascending Stairways)](https://quranwbw.com/70) -- February 07, 2024
 * [73. Surah Al-Muzzammil (The one covering himself)](https://quranwbw.com/73) -- Dec 13, 2023
 * [76. Surah Al-Insaan (al-Dahr)](https://quranwbw.com/76) -- January xx, 2024
+
 ***
+
 ### Chapter 30
 * [078. Surah An-Naba (The News)]() -- January 01, 2024
 * [079. Surah Al-Inshiqaq (Those who pull out)]() -- January 01, 2024
@@ -126,6 +180,7 @@ e## Chapter 1
 * [112. Surah Al-Ikhlas (The Unity)]()
 * [113. Surah Al-Falaq (The Dawn)]() -- Dec 17, 2023
 * [114. Surah An-Nas (The Men)]() -- Dec 17, 2023
+
 ***
 
 ## Useful Link
