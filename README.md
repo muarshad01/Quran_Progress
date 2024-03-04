@@ -66,7 +66,7 @@
 * [68. Surah Al Qalam](https://quranwbw.com/68) -- February 18, 2024
    * [68: 4 And you are truly ˹a man˺ of outstanding character.](https://quran.com/68/4)
    * [68:10-13 And do not obey the despicable, vain oath-taker, slanderer, gossip-monger, withholder of good, transgressor, evildoer,brute, and—on top of all that—an illegitimate child.](https://quran.com/68/10-13)   
-   * [68: 42 https://quran.com/68/42](https://quran.com/68/42)
+   * [68: 42 ˹Beware of˺ the Day the Shin ˹of Allah˺ will be bared, 1 and the wicked will be asked to prostrate, but they will not be able to do so,](https://quran.com/68/42)
    * [68: 51-52. And verily, those who disbelieve would almost make you slip with their eyes through hatredness when they hear the Reminder (the Quran), and they say: "Verily, he (Muhammad SAW) is a madman. But it is nothing else than a Reminder to all the 'Alamin (mankind, jinns and all that exists)](https://quran.com/68/51)
 * [70. Surah Al Ma''aarij (The Ascending Stairways)](https://quranwbw.com/70) -- February 07, 2024
 * [73. Surah Al-Muzzammil (The one covering himself)](https://quranwbw.com/73) -- Dec 13, 2023
