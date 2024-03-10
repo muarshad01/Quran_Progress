@@ -97,7 +97,7 @@
 ### Chapter 26
 
 * [44. Surah Dukhaan](https://quranwbw.com/44) -- February 03, 2024
-* [47. Surah Muhammad](https://quranwbw.com/47) --
+* [47. Surah Muhammad](https://quranwbw.com/47) -- March 09, 2024
 * [48. Surah Fath](https://quranwbw.com/48) -- February 01, 2024
 * [50. Surah Qaaf](https://quranwbw.com/50) -- February 20, 2024
 
