@@ -183,4 +183,12 @@
 
 ***
 
+### Parhna. Samajhna, aur Amal karna
+
+* Quran ka Rakhna - Bias-e-Barkat
+* Quran ka Parhana - Bias-e-Swaab
+* Quran par Amal Karna - Bias-e-Nijaat
+
+***
+
 ## Useful Link
