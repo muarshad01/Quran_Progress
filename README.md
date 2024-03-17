@@ -54,7 +54,7 @@
 
 ### Chapter 20
 
-* []()
+* [28. Surah Al Qasas](https://quranwbw.com/28) -- 
 
 ***
 
