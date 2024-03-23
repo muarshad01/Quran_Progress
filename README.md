@@ -54,12 +54,13 @@
 
 ### Chapter 20
 
-* [28. Surah Al Qasas](https://quranwbw.com/28) -- 
+* [28. Surah Al Qasas](https://quranwbw.com/28) --
 
 ***
 
 ### Chapter 21
 
+* [30. Suran Ar Room](https://quranwbw.com/30) -- 
 * [32. Surah Sajda](https://quranwbw.com/32) -- Januray 18, 2024
 
 ***
