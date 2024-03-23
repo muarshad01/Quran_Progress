@@ -133,6 +133,7 @@
 * [63. Al Munaafiqoon](https://quranwbw.com/63)
    * [63:1O - O you who believe! Let not your properties or your children divert you from the remembrance of Allah. And whosoever does that, then they are the losers](https://quranwbw.com/63)
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
+   * Allah Ki Pechaan, Main Kyaa hoon, kaisaa hoon, mari qudrat kaisi hai
 * [68 ]
 
 ***
