@@ -19,7 +19,7 @@
 ### Chapter 13
 
 * [14. Surah Ibrahim](https://quranwbw.com/14)
-   * [14:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7)
+   * [14:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7) -- Surah Rahman
 
 ***
 
