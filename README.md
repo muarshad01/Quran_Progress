@@ -14,8 +14,13 @@
 * [10. Surah Yunus](https://quranwbw.com/10)
    * [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
 
+***
+
+### Chapter 13
+
 * [14. Surah Ibrahim](https://quranwbw.com/14)
-* [17:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7)
+   * [14:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7)
+
 ***
 
 ### Chapter 15 & 16
