@@ -2,7 +2,7 @@
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
     * 7 Ayats, 15 Alfaaz, 123 Haroof
 * [02 Surah Baqarah](https://quranwbw.com/2)
-   * [02:183 - Fasting: O you who believe[d]! Is prescribed for you [the] fasting as was prescribed to those from before you, so that you may (become) righteous.](https://quran.com/2/183)
+   * [02:183 - Fasting is made Obligatory](https://quran.com/2/183)
    * [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
    * [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
    * [02:269 Khair-e-Kaseer (A great privilege)](https://quran.com/2/269)
