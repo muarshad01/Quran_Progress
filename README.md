@@ -44,55 +44,65 @@
 ***
 
 ### Chapter 17
-* [21. Surah Al Anbiyaa]
-* [22. Surah Al Hajj]
+* [21. Surah Al Anbiyaa]()
+* [22. Surah Al Hajj]()
 ***
 
 ### Chapter 18
 * [23. Surah Al Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
+* [24. xxx]()
+* [25. xxx]()
 
 ***
 
 ### Chapter 19
-
 * [26. Surah Ash Shu'araa](https://quranwbw.com/26) --
    * [26:3 Don't grive yourself to death](https://quranwbw.com/26#3)
    * [26:4 If We will, We could send down to them from the heaven a sign, to which they would bend their necks in humility](https://quranwbw.com/26#5)
    * [26:[78-83] Who is Allah SWT](https://quranwbw.com/26#78-83)
    * [26:85 Jannat Kay Waris](https://quranwbw.com/26#85)
    * [26:87 Roz-e-mashre azur hai man pazeer](https://quranwbw.com/26#87)
-
+* [27. xxx]()
+  
 ***
 
 ### Chapter 20
 
 * [28. Surah Al Qasas](https://quranwbw.com/28) --
-
+* [29. xxx]()
+  
 ***
 
 ### Chapter 21
 
-* [30. Suran Ar Room](https://quranwbw.com/30) -- 
+* [30. Suran Ar Room](https://quranwbw.com/30) --
+* [31. xxx]()
 * [32. Surah Sajda](https://quranwbw.com/32) -- Januray 18, 2024
-
+* [33. xxx]()
+* [34. xxx]()
+* [35. xxx]()
+  
 ***
 
 ### Chapter 22 & 23
 
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
-
+* [37. xxx]()
+  
 ***
 
 ### Chapter 23
 
 * [38. Surah Saad](https://quranwbw.com/38) --
-
+* [39. xxx]()
+  
 ***
 
 ### Chapter 24
 
 * [40. Surah Ghaffir (Al-Muʼmin)](https://quranwbw.com/40) -- January 28, 2024
-
+* [41. xxx]()
+  
 ***
 
 ### Chapter 25
@@ -102,7 +112,7 @@
     * [42/10 - And say O Muhammad SAW to these polytheists:) Such is Allah, my Lord in Whom I put my trust, and to Him I turn in all of my affairs and in repentance](https://quranwbw.com/42#10)
     * [42/20 - Whosoever desires (with his deeds) the reward of the Hereafter, We give him increase in his reward, and whosoever desires the reward of this world (with his deeds), We give him thereof (what is written for him), and he has no portion in the Hereafter](https://quranwbw.com/42#20)
     * [42/23 - Allah chooses for Himself whom He wills, and guides unto Himself who turns to Him in repentance and in obedience](https://quranwbw.com/42#13)
-
+* [43. xxx]()
 * [44. Surah Dukhaan (Smoke)](https://quranwbw.com/44) --
 
 ***
@@ -110,26 +120,34 @@
 ### Chapter 26
 
 * [44. Surah Dukhaan](https://quranwbw.com/44) -- February 03, 2024
+* [45. xxx]()
+* [46. xxx]()
 * [47. Surah Muhammad](https://quranwbw.com/47) -- March 09, 2024
 * [48. Surah Fath](https://quranwbw.com/48) -- February 01, 2024
+* [49. xxx]()
 * [50. Surah Qaaf](https://quranwbw.com/50) -- February 20, 2024
 
 ***
 
 ### Chapter 27
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) --
+* [52. xxx]()
 * [53. Surah Najam](https://quranwbw.com/53) -- February 04, 2024
+* [54. xxx]()
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
 * [56. Surah Al-Waaqia](https://quranwbw.com/56) -- February 07, 2024
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- January 26, 2024
-
+* [58. xxx]
+  
 ***
 
 ### Chapter 28
 
 * [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- February 10, 2024
     * [59/1: Whatsoever is in the heavens and whatsoever is on the earth glorifies Allah. And He is the All-Mighty, the All-Wise](https://quranwbw.com/59#1)
-    * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19) 
+    * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19)
+* [60. xxx]()
+* [61. xxx]() 
 * [62. Surah Al Jumu'a](https://quranwbw.com/62)
     * [62/4: He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quran.com/62/4)
     * [62/5: donkey carrying books](https://quran.com/62/5)
@@ -139,7 +157,8 @@
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
    * Allah ki pehchan, tauraff, main kyaa hoon, kaisaa hoon, mari qudrat kaisi hay, how you can know me
    * Surah Taghaabun and Surah Rahman are related!!
-* [68 ]
+* [65. xxx]()
+* [66. xxx]()
 
 ***
 
@@ -151,9 +170,11 @@
    * [68:10-13 And do not obey the despicable, vain oath-taker, slanderer, gossip-monger, withholder of good, transgressor, evildoer,brute, and—on top of all that—an illegitimate child.](https://quran.com/68/10-13)   
    * [68: 42 ˹Beware of˺ the Day the Shin ˹of Allah˺ will be bared, 1 and the wicked will be asked to prostrate, but they will not be able to do so,](https://quran.com/68/42)
    * [68: 51-52. And verily, those who disbelieve would almost make you slip with their eyes through hatredness when they hear the Reminder (the Quran), and they say: "Verily, he (Muhammad SAW) is a madman. But it is nothing else than a Reminder to all the 'Alamin (mankind, jinns and all that exists)](https://quran.com/68/51)
+* [69. xxx]()
 * [70. Surah Al Ma''aarij (The Ascending Stairways)](https://quranwbw.com/70) -- February 07, 2024
 * [73. Surah Al-Muzzammil (The one covering himself)](https://quranwbw.com/73) -- Dec 13, 2023
 * [76. Surah Al-Insaan (al-Dahr)](https://quranwbw.com/76) -- January xx, 2024
+* [77. xxx]()
 
 ***
 
