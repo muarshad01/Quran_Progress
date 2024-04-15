@@ -23,6 +23,11 @@
    * [14:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7) -- Surah Rahman
 
 ***
+### Chapter 15
+
+* [Surah Al Israa](https://quranwbw.com/17)
+
+***
 
 ### Chapter 15 & 16
 
@@ -39,13 +44,11 @@
 ***
 
 ### Chapter 17
-
-* [Surah Al Israa](https://quranwbw.com/17)
-
+* [21. Surah Al Anbiyaa]
+* [22. Surah Al Hajj]
 ***
 
 ### Chapter 18
-
 * [23. Surah Al Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
 
 ***
