@@ -1,3 +1,5 @@
+* [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
+
 ## Chapter 1
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
     * 7 Ayats, 15 Alfaaz, 123 Haroof
