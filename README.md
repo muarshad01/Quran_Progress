@@ -131,20 +131,19 @@
 
 ***
 
-### Chapter 27
+### Chapter 27 [51-58]
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) --
-* [52. xxx]()
+* [52. Surah At-Tur](https://quran.com/52)
 * [53. Surah Najam](https://quranwbw.com/53) -- February 04, 2024
-* [54. xxx]()
+* [54. Surah Al-Qamar](https://quran.com/54)
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
 * [56. Surah Al-Waaqia](https://quranwbw.com/56) -- February 07, 2024
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- January 26, 2024
-* [58. xxx]
+* [58. Surah Al-Mujadila ()](https://quran.com/58)
   
 ***
 
-### Chapter 28
-
+### Chapter 28 [59-]66
 * [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- February 10, 2024
     * [59/1: Whatsoever is in the heavens and whatsoever is on the earth glorifies Allah. And He is the All-Mighty, the All-Wise](https://quranwbw.com/59#1)
     * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19)
