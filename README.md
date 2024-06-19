@@ -148,8 +148,8 @@
 * [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- February 10, 2024
     * [59/1: Whatsoever is in the heavens and whatsoever is on the earth glorifies Allah. And He is the All-Mighty, the All-Wise](https://quranwbw.com/59#1)
     * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19)
-* [60. xxx]()
-* [61. xxx]() 
+* [60. Surah Al-Mumtahanah](https://quran.com/60)
+* [61. Surah As-Saf](https://quran.com/61) 
 * [62. Surah Al Jumu'a](https://quranwbw.com/62)
     * [62/4: He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quran.com/62/4)
     * [62/5: donkey carrying books](https://quran.com/62/5)
@@ -159,8 +159,8 @@
 * [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
    * Allah ki pehchan, tauraff, main kyaa hoon, kaisaa hoon, mari qudrat kaisi hay, how you can know me
    * Surah Taghaabun and Surah Rahman are related!!
-* [65. xxx]()
-* [66. xxx]()
+* [65. Surah At-Talaq](https://quran.com/65)
+* [66. Surah At-Tahrim](https://quran.com/66)
 
 ***
 
