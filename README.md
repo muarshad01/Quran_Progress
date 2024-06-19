@@ -221,11 +221,13 @@
 
 ***
 
-### Parhna. Samajhna, aur Amal karna
-
-* Quran ka Rakhna - Bias-e-Barkat
-* Quran ka Parhana - Bias-e-Swaab
-* Quran par Amal Karna - Bias-e-Nijaat
+### Reading, Understanding, and the Acting upon Quran 
+* Quran ka Rakhna
+   * `Bias-e-Barkat`
+* Quran ka Parhana
+  * `Bias-e-Swaab`
+* Quran par Amal Karna
+  * `Bias-e-Nijaat`
 
 ***
 
