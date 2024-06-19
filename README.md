@@ -180,7 +180,7 @@
 
 ***
 
-### Chapter 30
+### Chapter 30 [78 - 114]
 * [078. Surah An-Naba (The News)](https://quranwbw.com/78) -- January 01, 2024
 * [079. Surah Al-Inshiqaq (Those who pull out)](https://quranwbw.com/79) -- January 01, 2024
 * [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- January 02, 2024
