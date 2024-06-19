@@ -207,11 +207,11 @@
 * [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- Dec 24, 2023
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- Dec 24, 2023
 * [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- Dec 18, 2023
-* [104. Surah Al-Humaza](https://quranwbw.com/104)
+* [104. Surah Al-Humaza ()](https://quranwbw.com/104)
 * [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- Dec 24, 2023
 * [106. Surah Quresh (Quraish)](https://quran.com/106) -- Dec 24, 2023
 * [107. Surah Al-Maun (The Act of Kindness)]() -- Dec 24, 2023
-* [108. Surah Al-Kawthar](https://quran.com/108) -- Dec 16, 2023
+* [108. Surah Al-Kawthar ()](https://quran.com/108) -- Dec 16, 2023
 * [109. Surah Al-Kafirun (The Disbelievers)]() -- Dec 18, 2023
 * [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- Dec 18, 2023
 * [111. Surah Al-Masad (The Flame)](https://quran.com/111)
