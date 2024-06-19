@@ -173,6 +173,8 @@
    * [68: 51-52. And verily, those who disbelieve would almost make you slip with their eyes through hatredness when they hear the Reminder (the Quran), and they say: "Verily, he (Muhammad SAW) is a madman. But it is nothing else than a Reminder to all the 'Alamin (mankind, jinns and all that exists)](https://quran.com/68/51)
 * [69. Surah Al-Haqqah](https://quran.com/69)
 * [70. Surah Al Ma''aarij (The Ascending Stairways)](https://quranwbw.com/70) -- February 07, 2024
+* [71. Surah Nuh](https://quran.com/71)
+* [72. Surah Jin](https://quran.com/72)
 * [73. Surah Al-Muzzammil (The one covering himself)](https://quranwbw.com/73) -- Dec 13, 2023
 * [76. Surah Al-Insaan (al-Dahr)](https://quranwbw.com/76) -- January xx, 2024
 * [77. Surah Al-Mursalat ()](https://quran.com/77)
