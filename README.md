@@ -181,33 +181,33 @@
 ***
 
 ### Chapter 30
-* [078. Surah An-Naba (The News)]() -- January 01, 2024
-* [079. Surah Al-Inshiqaq (Those who pull out)]() -- January 01, 2024
+* [078. Surah An-Naba (The News)](https://quranwbw.com/78) -- January 01, 2024
+* [079. Surah Al-Inshiqaq (Those who pull out)](https://quranwbw.com/79) -- January 01, 2024
 * [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- January 02, 2024
-* [081. Surah At-Takwir (The OverThrowing)]() -- Dec 31,2023
-* [082. Surah Al-Infitaar (The Splitting Asunder)]() -- Dec 31, 2023
+* [081. Surah At-Takwir (The OverThrowing)](https://quranwbw.com/81) -- Dec 31,2023
+* [082. Surah Al-Infitaar (The Splitting Asunder)](https://quranwbw.com/82) -- Dec 31, 2023
 * [083. Surah Al-Mutaffifin (Defrauding)](https://quranwbw.com/83)
-* [084. Surah Al-Inshiqaq (The Splitting Asunder)]() -- Dec 31,2023
+* [084. Surah Al-Inshiqaq (The Splitting Asunder)](https://quranwbw.com/84) -- Dec 31,2023
 * [085. Surah Al-Burooj (The Constellations)](https://quranwbw.com/85)
-* [086. Surah At-Tariq (The Night Comer)]() -- Dec 27, 2023
-* [087. Surah Al-Ala (The Most High)]() -- Dec 27, 2023
+* [086. Surah At-Tariq (The Night Comer)](https://quranwbw.com/86) -- Dec 27, 2023
+* [087. Surah Al-Ala (The Most High)](https://quranwbw.com/87) -- Dec 27, 2023
 * [088. Surah Al-Ghaashiyah (The Overwhelming)]() -- Dec 27, 2023
-* [089. Surah Al-Fajr (The Dawn)]() -- Dec 27, 2023
+* [089. Surah Al-Fajr (The Dawn)](https://quranwbw.com/89) -- Dec 27, 2023
 * [090. Surah Al-Balad](https://quranwbw.com/90) -- January 02, 2024
-* [091. Surah Ash-Shams (The Sun)]() -- Dec 27, 2023
-* [092. Surah ]()
+* [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91) -- Dec 27, 2023
+* [092. Surah Al Lail ()](https://quranwbw.com/92)
 * [093. Surah Ad-Duha (The Early Hours)]() -- Dec 24, 2023
 * [094. Su Al-Inshirah (The opening up)]() -- Dec 24, 2023
-* [095. Surah At-Tin (The Fig)]() -- Dec 24, 2023
-* [096. Surah Al-Alaq (The Clot)]() -- Dec 24, 2023
-* [097. Surah Al-Qadr (The Majesty)]() -- Dec 24, 2023
-* [098. Surah ]()
+* [095. Surah At-Tin (The Fig)](https://quranwbw.com/95) -- Dec 24, 2023
+* [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- Dec 24, 2023
+* [097. Surah Al-Qadr (The Majesty)](https://quranwbw.com/97) -- Dec 24, 2023
+* [098. Surah Al-Bayyina ()](https://quranwbw.com/98)
 * [099. Surah Al-Zilzal (The Shaking)]() -- Dec 24, 2023
-* [100. Surah]()
-* [101. Surah Al-Qariah (The Calamity)]() -- Dec 24, 2023
+* [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100)
+* [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- Dec 24, 2023
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- Dec 24, 2023
-* [103. Surah Al-Asr (The Time)]() -- Dec 18, 2023
-* [104. Surah ]()
+* [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- Dec 18, 2023
+* [104. Surah Al-Humaza](https://quranwbw.com/104)
 * [105. Surah Al-Fil (The Elephant)]() -- Dec 24, 2023
 * [106. Surah Quresh (Quraish)]() -- Dec 24, 2023
 * [107. Surah Al-Maun (The Act of Kindness)]() -- Dec 24, 2023
