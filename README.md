@@ -166,14 +166,11 @@
 ### Chapter 29 [67 - 77]
 * [67. Surah Al-Mulk](https://quranwbw.com/67) -- July 2024
 * [68. Surah Al Qalam](https://quranwbw.com/68) -- July 2024
-   * [68: 4 And you are truly ˹a man˺ of outstanding character.](https://quran.com/68/4)
-   * [68:10-13 And do not obey the despicable, vain oath-taker, slanderer, gossip-monger, withholder of good, transgressor, evildoer,brute, and—on top of all that—an illegitimate child.](https://quran.com/68/10-13)   
-   * [68: 42 ˹Beware of˺ the Day the Shin ˹of Allah˺ will be bared, 1 and the wicked will be asked to prostrate, but they will not be able to do so,](https://quran.com/68/42)
-   * [68: 51-52. And verily, those who disbelieve would almost make you slip with their eyes through hatredness when they hear the Reminder (the Quran), and they say: "Verily, he (Muhammad SAW) is a madman. But it is nothing else than a Reminder to all the 'Alamin (mankind, jinns and all that exists)](https://quran.com/68/51)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/68_surah_al_qalam.md)
 * [69. Surah Al-Haqqah](https://quran.com/69) -- July 2024
 * [70. Surah Al Ma''aarij (The Ascending Stairways)](https://quranwbw.com/70) -- July 2024
 * [71. Surah Nuh](https://quran.com/71) -- July 2024
-* [72. Surah Jin](https://quran.com/72) -- July 2024
+* [72. Surah Jinn](https://quran.com/72) -- July 2024
 * [73. Surah Al-Muzzammil (The one covering himself)](https://quranwbw.com/73) -- July 2024
 * [76. Surah Al-Insaan (al-Dahr)](https://quranwbw.com/76) -- July 2024
 * [77. Surah Al-Mursalat ()](https://quran.com/77) -- July 2024
