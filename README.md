@@ -143,7 +143,7 @@
   
 ***
 
-### Chapter 28 [59-]66
+### Chapter 28 [59 - 66]
 * [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- February 10, 2024
     * [59/1: Whatsoever is in the heavens and whatsoever is on the earth glorifies Allah. And He is the All-Mighty, the All-Wise](https://quranwbw.com/59#1)
     * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19)
