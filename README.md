@@ -131,7 +131,7 @@
 
 ***
 
-### Chapter 27 [51-58]
+### Chapter 27 [51 - 58]
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) --
 * [52. Surah At-Tur](https://quran.com/52)
 * [53. Surah Najam](https://quranwbw.com/53) -- February 04, 2024
