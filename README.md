@@ -218,8 +218,6 @@
 
 ***
 
-***
-
 ### Reading, Understanding, and the Acting upon Quran 
 * Quran ka Rakhna
    * `Bias-e-Barkat`
