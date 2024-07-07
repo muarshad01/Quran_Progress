@@ -139,27 +139,27 @@
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
 * [56. Surah Al-Waaqia](https://quranwbw.com/56) -- February 07, 2024
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- January 26, 2024
-* [58. Surah Al-Mujadila ()](https://quran.com/58)
   
 ***
 
 ### Chapter 28 [59 - 66]
-* [59. Surah Hashr (The Exile)](https://quranwbw.com/59) -- February 10, 2024
+* [58. Surah Al-Mujadila (The Woman at odds)](https://quran.com/58)
+* [59. Surah Hashr (The Gathering of the Forces)](https://quranwbw.com/59) -- February 10, 2024
     * [59/1: Whatsoever is in the heavens and whatsoever is on the earth glorifies Allah. And He is the All-Mighty, the All-Wise](https://quranwbw.com/59#1)
     * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19)
-* [60. Surah Al-Mumtahanah](https://quran.com/60)
-* [61. Surah As-Saf](https://quran.com/61) 
-* [62. Surah Al Jumu'a](https://quranwbw.com/62)
+* [60. Surah Al-Mumtahanah (The Woman Investigated)](https://quran.com/60)
+* [61. Surah As-Saf (The Rows)](https://quran.com/61) 
+* [62. Surah Al Jumu'a (The Day of Congregation)](https://quranwbw.com/62)
     * [62/4: He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quran.com/62/4)
     * [62/5: donkey carrying books](https://quran.com/62/5)
     * [62/10: remember Allah SWT often so that you may be successful](https://quran.com/62/10)
-* [63. Al Munaafiqoon](https://quranwbw.com/63)
+* [63. Al Munaafiqoon (The Hypocrites)](https://quranwbw.com/63)
    * [63:1O - O you who believe! Let not your properties or your children divert you from the remembrance of Allah. And whosoever does that, then they are the losers](https://quranwbw.com/63)
-* [64. Surah At-Taghaabun (The manifestation of losses)](https://quranwbw.com/64)  -- Dec 13, 2023
+* [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- Dec 13, 2023
    * Allah ki pehchan, tauraff, main kyaa hoon, kaisaa hoon, mari qudrat kaisi hay, how you can know me
    * Surah Taghaabun and Surah Rahman are related!!
-* [65. Surah At-Talaq](https://quran.com/65)
-* [66. Surah At-Tahrim](https://quran.com/66)
+* [65. Surah At-Talaq (The Divorce)](https://quran.com/65)
+* [66. Surah At-Tahrim (The Prohibition)](https://quran.com/66)
 
 ***
 
