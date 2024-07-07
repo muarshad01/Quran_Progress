@@ -145,8 +145,6 @@
 ### Chapter 28 [59 - 66]
 * [58. Surah Al-Mujadila (The Woman at odds)](https://quran.com/58)
 * [59. Surah Hashr (The Gathering of the Forces)](https://quranwbw.com/59) -- February 10, 2024
-    * [59/1: Whatsoever is in the heavens and whatsoever is on the earth glorifies Allah. And He is the All-Mighty, the All-Wise](https://quranwbw.com/59#1)
-    * [59/2: And do not be like those who forgot Allah, so He made them forget themselves](https://quran.com/59/19)
 * [60. Surah Al-Mumtahanah (The Woman Investigated)](https://quran.com/60)
 * [61. Surah As-Saf (The Rows)](https://quran.com/61) 
 * [62. Surah Al Jumu'a (The Day of Congregation)](https://quranwbw.com/62)
