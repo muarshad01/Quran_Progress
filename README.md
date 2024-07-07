@@ -164,16 +164,18 @@
 ***
 
 ### Chapter 29 [67 - 77]
-* [67. Surah Al-Mulk](https://quranwbw.com/67) -- July 2024
-* [68. Surah Al Qalam](https://quranwbw.com/68) -- July 2024
+* [67. Surah Al-Mulk (The Control)](https://quranwbw.com/67) -- July 2024
+* [68. Surah Al Qalam (The Pen)](https://quranwbw.com/68) -- July 2024
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/68_surah_al_qalam.md)
-* [69. Surah Al-Haqqah](https://quran.com/69) -- July 2024
-* [70. Surah Al Ma''aarij (The Ascending Stairways)](https://quranwbw.com/70) -- July 2024
-* [71. Surah Nuh](https://quran.com/71) -- July 2024
-* [72. Surah Jinn](https://quran.com/72) -- July 2024
-* [73. Surah Al-Muzzammil (The one covering himself)](https://quranwbw.com/73) -- July 2024
-* [76. Surah Al-Insaan (al-Dahr)](https://quranwbw.com/76) -- July 2024
-* [77. Surah Al-Mursalat ()](https://quran.com/77) -- July 2024
+* [69. Surah Al-Haqqah (The Reality)](https://quran.com/69) -- July 2024
+* [70. Surah Al Ma'arij (The Stairways to Heavens)](https://quranwbw.com/70) -- July 2024
+* [71. Surah Nuh (Noah)](https://quran.com/71) -- July 2024
+* [72. Surah Jinn (The Jinn)](https://quran.com/72) -- July 2024
+* [73. Surah Al-Muzzammil (The Wrapped Up)](https://quranwbw.com/73) -- July 2024
+* [74. Surat al-Muddaththir (The Cloaked One)]()
+* [75. Surat al-Qiyamah (The Day of Judgement)]()
+* [76. Surah Al-Insaan (Man)](https://quranwbw.com/76) -- July 2024
+* [77. Surat al Mursalat (The Winds)](https://quran.com/77) -- July 2024
 
 ***
 
