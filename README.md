@@ -149,8 +149,8 @@
 * [61. Surah As-Saf (The Rows)](https://quran.com/61) 
 * [62. Surah Al Jumu'a (The Day of Congregation)](https://quranwbw.com/62)
     * [62/4: He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quran.com/62/4)
-    * [62/5: donkey carrying books](https://quran.com/62/5)
-    * [62/10: remember Allah SWT often so that you may be successful](https://quran.com/62/10)
+    * [62/5: DONKEY carrying books](https://quran.com/62/5)
+    * [62/10: remember Allah SWT often so that you may be SUCCESSFUL](https://quran.com/62/10)
 * [63. Al Munaafiqoon (The Hypocrites)](https://quranwbw.com/63)
 * [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- Dec 13, 2023
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/64_surah_at_taghabun.md)
