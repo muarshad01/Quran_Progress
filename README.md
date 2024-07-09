@@ -143,19 +143,19 @@
 ***
 
 ### Chapter 28 [59 - 66]
-* [58. Surah Al-Mujadila (The Woman at odds)](https://quran.com/58)
-* [59. Surah Hashr (The Gathering of the Forces)](https://quranwbw.com/59) -- February 10, 2024
-* [60. Surah Al-Mumtahanah (The Woman Investigated)](https://quran.com/60)
-* [61. Surah As-Saf (The Rows)](https://quran.com/61) 
-* [62. Surah Al Jumu'a (The Day of Congregation)](https://quranwbw.com/62)
-    * [62/4: This is the FAVOUR of Allah. He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quran.com/62/4)
+* [58. Surah Al-Mujadila (The Woman at odds)](https://quran.com/58) -- July 2024
+* [59. Surah Hashr (The Gathering of the Forces)](https://quranwbw.com/59) -- July 2024
+* [60. Surah Al-Mumtahanah (The Woman Investigated)](https://quran.com/60) -- July 2024
+* [61. Surah As-Saf (The Rows)](https://quran.com/61) -- TODO
+* [62. Surah Al Jumu'a (The Day of Congregation)](https://quranwbw.com/62) -- July 2024
+    * [62/4: This is the FAVOUR of Allah. He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quran.com/62/4) -- July 2024
     * [62/5: DONKEY carrying books](https://quran.com/62/5)
     * [62/10: remember Allah SWT often so that you may be SUCCESSFUL](https://quran.com/62/10)
-* [63. Al Munaafiqoon (The Hypocrites)](https://quranwbw.com/63)
-* [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- Dec 13, 2023
-   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/64_surah_at_taghabun.md)
-* [65. Surah At-Talaq (The Divorce)](https://quran.com/65)
-* [66. Surah At-Tahrim (The Prohibition)](https://quran.com/66)
+* [63. Al Munaafiqoon (The Hypocrites)](https://quranwbw.com/63) -- July 2024
+* [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- July 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/64_surah_at_taghabun.md) -- July 2024
+* [65. Surah At-Talaq (The Divorce)](https://quran.com/65) -- July 2024
+* [66. Surah At-Tahrim (The Prohibition)](https://quran.com/66) -- July 2024
 
 ***
 
