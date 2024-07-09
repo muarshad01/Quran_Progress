@@ -152,7 +152,6 @@
     * [62/5: donkey carrying books](https://quran.com/62/5)
     * [62/10: remember Allah SWT often so that you may be successful](https://quran.com/62/10)
 * [63. Al Munaafiqoon (The Hypocrites)](https://quranwbw.com/63)
-   * [63:1O - O you who believe! Let not your properties or your children divert you from the remembrance of Allah. And whosoever does that, then they are the losers](https://quranwbw.com/63)
 * [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- Dec 13, 2023
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/64_surah_at_taghabun.md)
 * [65. Surah At-Talaq (The Divorce)](https://quran.com/65)
