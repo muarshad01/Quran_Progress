@@ -1,7 +1,11 @@
 ## Outstanding CHARACTER
 * 68/4: [And you are truly ˹a man˺ of outstanding character.](https://quran.com/68/4)
 
-* 68:10-13 And do not obey the despicable, vain oath-taker, slanderer, gossip-monger, withholder of good, transgressor, evildoer,brute, and—on top of all that—an illegitimate child.
+## Moral DISEASES
+* 68/10: [And do not obey the despicable, vain oath-taker](https://quran.com/68/10)
+* 68/11: [slanderer, gossip-monger](https://quran.com/68/11)
+* 68/12: [withholder of good, transgressor, evildoer](https://quran.com/68/12)
+* 68/13: [brute, and—on top of all that—an illegitimate child.](https://quran.com/68/13)
 
 ## Shin of Allah SWT
 * 68/42: [˹Beware of˺ the Day the Shin ˹of Allah˺ will be bared, and the wicked will be asked to prostrate, but they will not be able to do so](https://quran.com/68/42)
