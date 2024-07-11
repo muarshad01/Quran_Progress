@@ -3,7 +3,7 @@
 
 ***
 
-## Tahajjad Prayers
+## Tahajjud Prayers
 * https://quran.com/17/79
 
 ***
