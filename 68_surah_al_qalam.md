@@ -4,6 +4,7 @@
 ## Moral Diseases
 * 68/10: [And do not obey the despicable, vain oath-taker](https://quran.com/68/10)
 * 68/11: [slanderer, gossip-monger](https://quran.com/68/11)
+    * 104/1: [Woe to every slanderer and backbiter](https://quranwbw.com/104#1)
 * 68/12: [withholder of good, transgressor, evildoer](https://quran.com/68/12)
 * 68/13: [brute, and—on top of all that—an illegitimate child.](https://quran.com/68/13)
 
