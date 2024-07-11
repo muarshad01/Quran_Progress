@@ -13,7 +13,7 @@
 
 ***
 
-## `Sultanan Naseera`
+## `Sultanan Naseera` (Top Argument)
 * https://quran.com/17/80
 * [Dua Sultanan Naseera Meaning| سُلۡطٰنًا نَّصِيۡرًا | Prof Ahmad Rafique | ALMR](https://www.youtube.com/watch?v=QIBA1VpJ8pc)
 
