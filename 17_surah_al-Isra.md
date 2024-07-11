@@ -1,3 +1,8 @@
+## Mosque whose surroundings We have blessed
+* https://quran.com/17/1
+
+***
+
 ## `Reciting Quran at Fajr`
 * https://quran.com/17/78
 
