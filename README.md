@@ -133,19 +133,19 @@
 
 ### Chapter 27 [51 - 58]
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) --
-* [52. Surah At-Tur](https://quran.com/52)
-* [53. Surah Najam](https://quranwbw.com/53) -- February 04, 2024
+* [52. Surah At-Tur](https://quran.com/52) -- 
+* [53. Surah Najam](https://quranwbw.com/53) -- 
 * [54. Surah Al-Qamar](https://quran.com/54)
-* [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- January 14, 2024
-* [56. Surah Al-Waaqia](https://quranwbw.com/56) -- February 07, 2024
-* [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- January 26, 2024
+* [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- 
+* [56. Surah Al-Waaqia](https://quranwbw.com/56) -- 
+* [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- 
   
 ***
 
 ### Chapter 28 [59 - 66]
 * [58. Surah Al-Mujadila (The Woman at odds)](https://quran.com/58) -- July 2024
 * [59. Surah Hashr (The Gathering of the Forces)](https://quranwbw.com/59) -- July 2024
-* [60. Surah Al-Mumtahanah (The Woman Investigated)](https://quran.com/60) -- 
+* [60. Surah Al-Mumtahanah (The Woman Investigated)](https://quran.com/60) -- July 2024
 * [61. Surah As-Saf (The Rows)](https://quran.com/61) -- July 2024
 * [62. Surah Al Jumu'a (The Day of Congregation)](https://quranwbw.com/62) -- July 2024
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/62_surah_al_juma.md)
