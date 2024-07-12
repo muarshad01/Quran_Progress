@@ -114,7 +114,7 @@
     * [42/10 - And say O Muhammad SAW to these polytheists:) Such is Allah, my Lord in Whom I put my trust, and to Him I turn in all of my affairs and in repentance](https://quranwbw.com/42#10)
     * [42/20 - Whosoever desires (with his deeds) the reward of the Hereafter, We give him increase in his reward, and whosoever desires the reward of this world (with his deeds), We give him thereof (what is written for him), and he has no portion in the Hereafter](https://quranwbw.com/42#20)
     * [42/23 - Allah chooses for Himself whom He wills, and guides unto Himself who turns to Him in repentance and in obedience](https://quranwbw.com/42#13)
-* [43. xxx]()
+* [43. Sukhruf (Ornaments of Gold)](https://quranwbw.com/43) --
 * [44. Surah Dukhaan (Smoke)](https://quranwbw.com/44) --
 
 ***
@@ -122,11 +122,11 @@
 ### Chapter 26
 
 * [44. Surah Dukhaan](https://quranwbw.com/44) -- February 03, 2024
-* [45. xxx]()
-* [46. xxx]()
+* [45. Surah Al Jaatia](https://quranwbw.com/45) --
+* [46. Surah Al Ahqaf (The Dunes)](https://quranwbw.com/46)
 * [47. Surah Muhammad](https://quranwbw.com/47) -- March 09, 2024
 * [48. Surah Fath](https://quranwbw.com/48) -- February 01, 2024
-* [49. xxx]()
+* [49. Surah Al Hujuraat (The Inner Apartments)](https://quranwbw.com/49) -- 
 * [50. Surah Qaaf](https://quranwbw.com/50) -- February 20, 2024
 
 ***
