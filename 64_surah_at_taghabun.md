@@ -1,7 +1,7 @@
-## Allah Ki Pehchan, Tauraf 
-* Mayn kya hoon 
+## `Allah Ki Pehchan, Tauraf`
+* Mayn koon hoon
 * Kaisa hoon
-* Meri qudrat kaisi hay
+* `Meri qudrat kaisi hay`
 * How you can know me?
 * `Surah Taghaabun` and `Surah Rahman` are related!!
 
