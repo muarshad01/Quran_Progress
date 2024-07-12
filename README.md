@@ -78,9 +78,9 @@
 ### Chapter 21
 
 * [30. Suran Ar Room](https://quranwbw.com/30) --
-* [31. xxx]()
+* [31. Surah Luqman](https://quranwbw.com/31)
 * [32. Surah Sajda](https://quranwbw.com/32) -- Januray 18, 2024
-* [33. xxx]()
+* [33. Surah Al Ahzaab](https://quranwbw.com/33)
 * [34. xxx]()
 * [35. xxx]()
   
@@ -89,21 +89,21 @@
 ### Chapter 22 & 23
 
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
-* [37. xxx]()
+* [37. Surah As Saaffaat ()](https://quranwbw.com/37)
   
 ***
 
 ### Chapter 23
 
 * [38. Surah Saad](https://quranwbw.com/38) --
-* [39. xxx]()
+* [39. Surah Az Zumar (The Groups)](https://quranwbw.com/39)
   
 ***
 
 ### Chapter 24
 
 * [40. Surah Ghaffir (Al-Muʼmin)](https://quranwbw.com/40) -- January 28, 2024
-* [41. xxx]()
+* [41. Surah Fussilat (Explained in detail)](https://quranwbw.com/41)
   
 ***
 
