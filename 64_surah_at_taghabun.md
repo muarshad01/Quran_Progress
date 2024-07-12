@@ -1,4 +1,5 @@
 ## `Allah Ki Pehchan, Tauraf`
+* https://hamariweb.com/islam/download-Surah-Taghabun-urdu-translation-pdf
 * Mayn koon hoon
 * Kaisa hoon
 * `Meri qudrat kaisi hay`
