@@ -34,7 +34,7 @@
 ***
 ### Chapter 15
 
-* [Surah Al Israa](https://quranwbw.com/17)
+* [Surah Al-Israa](https://quranwbw.com/17)
 
 ***
 
@@ -58,7 +58,7 @@
 ***
 
 ### Chapter 18
-* [23. Surah Al Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
+* [23. Surah Al-Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
 * [24. xxx]()
 * [25. xxx]()
 
@@ -77,17 +77,18 @@
 
 ### Chapter 20
 
-* [28. Surah Al Qasas](https://quranwbw.com/28) --
+* [28. Surah Al-Qasas](https://quranwbw.com/28) --
 * [29. xxx]()
   
 ***
 
 ### Chapter 21
 
-* [30. Suran Ar Room](https://quranwbw.com/30) --
+* [30. Suran Ar-Room](https://quranwbw.com/30) --
 * [31. Surah Luqman](https://quranwbw.com/31)
+   * Seas and Qalams 
 * [32. Surah Sajda](https://quranwbw.com/32) -- Januray 18, 2024
-* [33. Surah Al Ahzaab](https://quranwbw.com/33)
+* [33. Surah Al-Ahzaab](https://quranwbw.com/33)
 * [34. xxx]()
 * [35. xxx]()
   
@@ -96,14 +97,14 @@
 ### Chapter 22 & 23
 
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
-* [37. Surah As Saaffaat ()](https://quranwbw.com/37)
+* [37. Surah As-Saaffaat ()](https://quranwbw.com/37)
   
 ***
 
 ### Chapter 23
 
 * [38. Surah Saad](https://quranwbw.com/38) --
-* [39. Surah Az Zumar (The Groups)](https://quranwbw.com/39)
+* [39. Surah Az-Zumar (The Groups)](https://quranwbw.com/39)
   
 ***
 
@@ -111,6 +112,7 @@
 
 * [40. Surah Ghaffir (Al-Muʼmin)](https://quranwbw.com/40) -- January 28, 2024
 * [41. Surah Fussilat (Explained in detail)](https://quranwbw.com/41)
+   * 2 days, 4 days, six days 
   
 ***
 
@@ -142,10 +144,10 @@
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) --
 * [52. Surah At-Tur](https://quran.com/52) -- 
 * [53. Surah Najam](https://quranwbw.com/53) -- 
-* [54. Surah Al-Qamar](https://quran.com/54)
-* [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- 
-* [56. Surah Al-Waaqia](https://quranwbw.com/56) -- 
-* [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- 
+* [54. Surah Al-Qamar](https://quran.com/54) -- July 2024
+* [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- July 2024
+* [56. Surah Al-Waaqia](https://quranwbw.com/56) -- July 2024
+* [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- July 2024
   
 ***
 
