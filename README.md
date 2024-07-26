@@ -1,4 +1,7 @@
 * [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
+* __Surah Al-Furqan 25/30__: [The Messenger has cried, “O my Lord! My people have indeed received this Quran with neglect.”](https://quran.com/25/30)
+
+***
 
 ## Chapter 1
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
