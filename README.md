@@ -26,12 +26,25 @@
 
 ***
 
+### Chapter 11
+
+***
+
+### Chapter 12
+
+***
+
 ### Chapter 13
 
 * [14. Surah Ibrahim](https://quranwbw.com/14)
    * [14:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7) -- Surah Rahman
 
 ***
+
+### Chapter 14
+
+***
+
 ### Chapter 15
 
 * [Surah Al-Israa](https://quranwbw.com/17)
