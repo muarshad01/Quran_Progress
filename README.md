@@ -1,4 +1,7 @@
 * [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
+
+***
+
 * __Surah Al-Furqan 25/30__: [The Messenger has cried, “O my Lord! My people have indeed received this Quran with neglect.”](https://quran.com/25/30)
 
 ***
