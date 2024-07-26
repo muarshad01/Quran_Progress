@@ -9,7 +9,7 @@
 
 ## Chapter 1
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
-    * 7 Ayats, 15 Alfaaz, 123 Haroof
+    * 7 Ayats, 29 Words, 139 Letters
 * [02 Surah Baqarah](https://quranwbw.com/2)
    * [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
    * [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
