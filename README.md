@@ -3,7 +3,7 @@
 ***
 
 ## My Ummah Deserted this Quran
-* __Surah Al-Furqan 25/30__: [And the Messenger (Muhammad SAW) will say: "O my Lord! Verily, my people deserted this Quran (neither listened-to-it, nor acted-on its laws-and-orders)](https://quran.com/25/30)
+* __Surah Al-Furqan 25/30__: [Waqala al-rasulu yarabbi inna qawmi ittakhadhu hadha al-qur'ana mahjuran](https://quran.com/25/30)
 
 ***
 
