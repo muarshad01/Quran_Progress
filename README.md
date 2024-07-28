@@ -129,8 +129,7 @@
   
 ***
 
-### Chapter 25
-
+### Chapter 25 []
 * [42. Surah Al-Shura](https://quranwbw.com/) -- 
     * [42/8 - He admits whom He wills to His Mercy. And the Zalimun (polytheists and wrong-doers, etc.) will have neither a Wali (protector) nor a helper](https://quranwbw.com/42#8)
     * [42/10 - And say O Muhammad SAW to these polytheists:) Such is Allah, my Lord in Whom I put my trust, and to Him I turn in all of my affairs and in repentance](https://quranwbw.com/42#10)
@@ -141,15 +140,14 @@
 
 ***
 
-### Chapter 26
-
-* [44. Surah Dukhaan](https://quranwbw.com/44) -- February 03, 2024
-* [45. Surah Al Jaatia](https://quranwbw.com/45) --
+### Chapter 26 [44 - 50] -- In Progress
+* [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) -- 
+* [45. Surah Al Jaatia (Crouching)](https://quranwbw.com/45) --
 * [46. Surah Al Ahqaf (The Dunes)](https://quranwbw.com/46)
-* [47. Surah Muhammad](https://quranwbw.com/47) -- March 09, 2024
-* [48. Surah Fath](https://quranwbw.com/48) -- February 01, 2024
-* [49. Surah Al Hujuraat (The Inner Apartments)](https://quranwbw.com/49) -- 
-* [50. Surah Qaaf](https://quranwbw.com/50) -- February 20, 2024
+* [47. Surah Muhammad](https://quranwbw.com/47) -- 
+* [48. Surah Fath](https://quranwbw.com/48) -- 
+* [49. Surah Al Hujuraat (The Inner Apartment)](https://quranwbw.com/49) -- 
+* [50. Surah Qaaf](https://quranwbw.com/50) -- 
 
 ***
 
