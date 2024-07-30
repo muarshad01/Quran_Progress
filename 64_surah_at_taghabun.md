@@ -46,7 +46,7 @@
 
 ***
 
-## Greediness of NAFS
+## SUCCESSFUL: Greediness of NAFS
 * [And whoever is saved from the selfishness of their own souls, it is they who are ˹truly˺ successful.](https://quran.com/64/16)
 
 ***
