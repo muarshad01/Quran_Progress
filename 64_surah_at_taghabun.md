@@ -1,8 +1,15 @@
+## Surah AL-Taghaboon
+* [Arzang-e-Faqeer : Session 06 Surah Al-Taghaboon](https://www.youtube.com/watch?v=j_OgniH_t0c)
+* # 64 = 63 + 1
+* 18 Ayats
+
+***
+
 ## `Allah Ki Pehchan, Tauraf`
 * https://hamariweb.com/islam/download-Surah-Taghabun-urdu-translation-pdf
-* Mayn koon hoon
-* Kaisa hoon
 * `Meri qudrat kaisi hay`
+* Mayn koon hoon?
+* Kaisa hoon?
 * How you can know me?
 * `Surah Taghaabun` and `Surah Rahman` are related!!
 
