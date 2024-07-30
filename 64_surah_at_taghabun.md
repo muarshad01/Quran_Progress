@@ -55,5 +55,3 @@
 * [Most Ready to appreciate and to reward, Most Forbearing](https://quranwbw.com/64#17)
 
 ***
-
-***
