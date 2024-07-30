@@ -14,32 +14,32 @@
 * `Surah Taghaabun` and `Surah Rahman` are related!!
 
 ## Qadir-e-Mutaliq
-* [He is Most Capable of everything.](https://quran.com/64/1)
+* __64/1__: [He is Most Capable of everything.](https://quran.com/64/1)
 
 ***
 
 ## Our FINAL return
-[And to Him is the final return.](https://quran.com/64/3)
+* __64/3__: [And to Him is the final return.](https://quran.com/64/3)
 
 ***
 
 ## What is Hidden in HEARTS
-[For Allah knows best what is ˹hidden˺ in the heart.](https://quran.com/64/4)
+* __64/4__: [For Allah knows best what is ˹hidden˺ in the heart.](https://quran.com/64/4)
 
 ***
 
 ## Dhalika Al-fawzu Al-'azimu
-* [dhalika al-fawzu al-'azimu](https://quranwbw.com/64#9)
+* __64/9__: [dhalika al-fawzu al-'azimu](https://quranwbw.com/64#9)
 
 ***
 
 ## Allah Guides the HEARTS
-* [And whoever has faith in Allah, He will ˹rightly˺ guide their hearts ˹through adversity˺.](https://quran.com/64/11)
+* __64/11__: [And whoever has faith in Allah, He will ˹rightly˺ guide their hearts ˹through adversity˺.](https://quran.com/64/11)
 
 ***
 
 ## Momins TRUST in Allah SWT
-* [So in Allah let the believers put their trust.](https://quran.com/64/13)
+* __64/13__: [So in Allah let the believers put their TRUST.](https://quran.com/64/13)
 
 ***
 
