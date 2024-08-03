@@ -144,10 +144,10 @@
 * [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) -- 
 * [45. Surah Al Jaatia (Crouching)](https://quranwbw.com/45) --
 * [46. Surah Al Ahqaf (The Dunes)](https://quranwbw.com/46)
-* [47. Surah Muhammad](https://quranwbw.com/47) -- 
-* [48. Surah Fath](https://quranwbw.com/48) -- 
+* [47. Surah Muhammad](https://quranwbw.com/47) -- August 2024
+* [48. Surah Fath](https://quranwbw.com/48) -- August 2024
 * [49. Surah Al Hujuraat (The Inner Apartment)](https://quranwbw.com/49) -- 
-* [50. Surah Qaaf](https://quranwbw.com/50) -- 
+* [50. Surah Qaaf](https://quranwbw.com/50) -- August 2024
 
 ***
 
