@@ -20,7 +20,6 @@
 ***
 
 ### Chapter 10
-
 * [10. Surah Yunus](https://quranwbw.com/10)
    * [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
 
@@ -35,7 +34,6 @@
 ***
 
 ### Chapter 13
-
 * [14. Surah Ibrahim](https://quranwbw.com/14)
    * [14:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7) -- Surah Rahman
 
@@ -46,13 +44,11 @@
 ***
 
 ### Chapter 15
-
 * [Surah Al-Israa](https://quranwbw.com/17)
 
 ***
 
 ### Chapter 15 & 16
-
 * [18. Surah Al-kahf (The Cave)](https://quranwbw.com/18) -- June 06, 2024
 * [19. Surah Maryam](https://quranwbw.com/19) -- January 10, 2024
   * [I have never been disappointed in my prayer to You, my Lord!](https://quran.com/19/4)
@@ -60,7 +56,6 @@
 ***
 
 ### Chapter 16
-
 * [20. Surah Tahaa](https://quranwbw.com/20) -- February 08, 2024
 
 ***
@@ -68,6 +63,7 @@
 ### Chapter 17
 * [21. Surah Al Anbiyaa]()
 * [22. Surah Al Hajj]()
+
 ***
 
 ### Chapter 18
@@ -88,52 +84,48 @@
   
 ***
 
-### Chapter 20
-
+### Chapter 20 [28 - 29]
 * [28. Surah Al-Qasas](https://quranwbw.com/28) --
 * [29. xxx]()
   
 ***
 
-### Chapter 21
-
+### Chapter 21 [30 - 35]
 * [30. Suran Ar-Room](https://quranwbw.com/30) --
 * [31. Surah Luqman](https://quranwbw.com/31)
    * Seas and Qalams 
 * [32. Surah Sajda](https://quranwbw.com/32) -- Januray 18, 2024
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
-* [34. xxx]()
-* [35. xxx]()
+* [34. Surah xxx]()
+* [35. Surah xxx]()
   
 ***
 
-### Chapter 22 & 23
-
+### Chapter 22 [36 - 37] 
 * [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
 * [37. Surah As-Saaffaat ()](https://quranwbw.com/37)
   
 ***
 
-### Chapter 23
-
+### Chapter 23 [38 - 39]
 * [38. Surah Saad](https://quranwbw.com/38) --
 * [39. Surah Az-Zumar (The Groups)](https://quranwbw.com/39)
   
 ***
 
-### Chapter 24
-
-* [40. Surah Ghaffir (Al-Muʼmin)](https://quranwbw.com/40) -- January 28, 2024
+### Chapter 24 [40 - 41]
+* [40. Surah Ghaafir (Al-Muʼmin; The Forgiver)](https://quranwbw.com/40) -- January 28, 2024
 * [41. Surah Fussilat (Explained in detail)](https://quranwbw.com/41)
    * 2 days, 4 days, six days 
   
 ***
 
-### Chapter 25 []
-* [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) -- 
-* [43. Sukhruf (Ornaments of Gold)](https://quranwbw.com/43) --
-* [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) -- 
-* [45. Surah Al Jaatia (Crouching)](https://quranwbw.com/45) --
+### Chapter 25 [42 - 45] -- In Progress
+* [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) 
+* [43. Surah Az Zukhruf (Ornaments of Gold)](https://quranwbw.com/43) 
+* [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) 
+* [45. Surah Al Jaathya (Crouching)](https://quranwbw.com/45) 
+
 ***
 
 ### Chapter 26 [44 - 50] -- August 2024
