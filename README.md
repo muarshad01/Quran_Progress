@@ -7,7 +7,7 @@
 
 ***
 
-## Chapter 1
+## Chapter 01
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
     * 7 Ayats, 29 Words, 139 Letters
 * [02 Surah Baqarah](https://quranwbw.com/2)
@@ -16,6 +16,41 @@
    * [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
    * [02:269 Khair-e-Kaseer (A great privilege)](https://quran.com/2/269)
    * [02:269 Ulul Albab (People of reason)](https://quran.com/2/269)
+
+***
+
+### Chapter 02
+
+***
+
+### Chapter 03
+
+***
+
+### Chapter 04
+
+***
+### Chapter 04
+
+***
+
+### Chapter 05
+
+***
+
+### Chapter 06
+
+***
+
+### Chapter 07
+
+***
+
+### Chapter 08
+
+***
+
+### Chapter 09
 
 ***
 
