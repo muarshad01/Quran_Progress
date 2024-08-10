@@ -155,7 +155,7 @@
   
 ***
 
-### Chapter 25 [42 - 45] -- In Progress
+### Chapter 25 [42 - 45] -- In PROGRESS
 * [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) 
 * [43. Surah Az Zukhruf (Ornaments of Gold)](https://quranwbw.com/43) 
 * [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) 
@@ -163,7 +163,7 @@
 
 ***
 
-### Chapter 26 [44 - 50] -- August 2024
+### Chapter 26 [44 - 50] -- August 10, 2024
 * [46. Surah Al-Ahqaf (The Dunes)](https://quranwbw.com/46) -- August 2024
 * [47. Surah Muhammad](https://quranwbw.com/47) -- August 2024
 * [48. Surah Fath](https://quranwbw.com/48) -- August 2024
