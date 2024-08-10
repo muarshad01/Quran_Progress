@@ -164,7 +164,7 @@
 ***
 
 ### Chapter 26 [44 - 50] -- August 2024
-* [46. Surah Al-Ahqaf (The Dunes)](https://quranwbw.com/46) -- August xxxx
+* [46. Surah Al-Ahqaf (The Dunes)](https://quranwbw.com/46) -- August 2024
 * [47. Surah Muhammad](https://quranwbw.com/47) -- August 2024
 * [48. Surah Fath](https://quranwbw.com/48) -- August 2024
 * [49. Surah Al-Hujuraat (The Inner Apartment)](https://quranwbw.com/49) -- August 2024
@@ -258,7 +258,7 @@
 ### Reading, Understanding, and the Acting upon Quran 
 * Quran ka Rakhna
    * `Bias-e-Barkat`
-* Quran ka Parhana
+* Quran ka Parhana aur Samajhna
   * `Bias-e-Swaab`
 * Quran par Amal Karna
   * `Bias-e-Nijaat`
