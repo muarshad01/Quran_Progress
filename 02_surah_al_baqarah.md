@@ -3,7 +3,7 @@
 
 ***
 
-### Unsessn, Prayer, Spending
+### Yumi-nuna Wayuqi-muna al-Salata, Yunfi-quna
 * __Surah Baqarah 2/3__: [
 alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#2)
 
