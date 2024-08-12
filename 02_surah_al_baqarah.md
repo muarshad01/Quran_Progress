@@ -3,7 +3,7 @@
 
 ***
 
-### La Rayba, Hudan, Muttaqina
+### Unsessn, Prayer, Spending
 * __Surah Baqarah 2/3__: [
 alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#2)
 
