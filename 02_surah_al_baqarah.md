@@ -1,4 +1,4 @@
-### No Doubt in it
+### La Rayba, Hudan, Muttaqina
 * __Surah Baqarah 2/2__: [dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 
 ***
