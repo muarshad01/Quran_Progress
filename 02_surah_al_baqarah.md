@@ -15,6 +15,12 @@ wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati
 
 ***
 
+### Ala Hudan and Al-mufli-huna
+* __Surah Baqarah 2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
+
+***
+
+
 * [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
 * [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
 * [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
