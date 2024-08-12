@@ -45,6 +45,32 @@ Wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'mi
 
 ***
 
+### La Tuf'Sidu fi al-Ardi
+* __Surah Baqarah 2/11__:[wa-idha qila lahum la tuf'sidu fi al-ardi qalu innama nahnu mus'lihuna](https://quranwbw.com/2#11)
+
+***
+
+### Al-Muf'Siduna
+* __Surah Baqarah 2/12__:[Ala innahum humu al-muf'siduna walakin la yash'uruna](https://quranwbw.com/2#12)
+
+***
+
+### Fools
+* __Surah Baqarah 2/13__:[wa-idha qila lahum aminu kama amana al-nasu qalu anu'minu kama amana al-sufahau ala innahum humu al-sufahau walakin la ya'lamuna](https://quranwbw.com/2#13)
+
+***
+
+### Mockers
+* __Surah Baqarah 2/14__:[Wa-idha laqu alladhina amanu qalu amanna wa-idha khalaw ila shayatinihim qalu inna ma'akum innama nahnu mus'tahziuna](https://quranwbw.com/2#14)
+
+***
+
+### Prolongs their Transgression
+* __Surah Baqarah 2/15__:[
+al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwbw.com/2#15)
+
+***
+
 * [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
 * [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
 * [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
