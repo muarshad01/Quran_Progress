@@ -7,19 +7,19 @@
 
 ***
 
-## Chapter 01
+## Head (Brain) of Quran
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
     * 7 Ayats, 29 Words, 139 Letters
-* [02 Surah Baqarah](https://quranwbw.com/2)
-   * [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
-   * [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
-   * [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
-   * [02:269 Khair-e-Kaseer (A great privilege)](https://quran.com/2/269)
-   * [02:269 Ulul Albab (People of reason)](https://quran.com/2/269)
+*** 
+
+## Chapter 01
+
 
 ***
 
 ### Chapter 02
+* [02 Surah Baqarah](https://quranwbw.com/2)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/02_surah_al_baqarah.md)
 
 ***
 
