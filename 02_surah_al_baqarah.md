@@ -20,6 +20,30 @@ wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati
 
 ***
 
+### Kafaru, La yumi-nuna
+* __Surah Baqarah 2/6__: [
+inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
+
+***
+
+### khatama (Sealed)- Heart, Listening, Eyes
+* __Surah Baqarah 2/7__: [khatama al-lahu ala Qulubihim wa'ala Sam'ihim wa'ala Absarihim ghishawatun walahum adhabun azimun](https://quranwbw.com/2#7)
+
+***
+
+# Hypocrites
+
+### khatama 
+* __Surah Baqarah 2/8__: [
+wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'minina](https://quranwbw.com/2#8)
+
+### Yukhadi'una (Deceive)
+* __Surah Baqarah 2/9__:[yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
+
+### Qulubihim maradun (Heart Disease)
+* __Surah Baqarah 2/9__:[fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
+
+***
 
 * [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
 * [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
