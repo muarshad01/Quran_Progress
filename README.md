@@ -13,12 +13,7 @@
 
 *** 
 
-## Chapter 01
-
-
-***
-
-### Chapter 02
+### Chapter [01, 02]
 * [02 Surah Baqarah](https://quranwbw.com/2)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/02_surah_al_baqarah.md)
 
