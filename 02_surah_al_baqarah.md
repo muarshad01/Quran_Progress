@@ -33,14 +33,14 @@ inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minu
 
 # Hypocrites
 
-### khatama 
+### Amanna (We Believe)
 * __Surah Baqarah 2/8__: [
-wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'minina](https://quranwbw.com/2#8)
+Wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'minina](https://quranwbw.com/2#8)
 
-### Yukhadi'una (Deceive)
+### Yukhadi-una (Deceive)
 * __Surah Baqarah 2/9__:[yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
 
-### Qulubihim maradun (Heart Disease)
+### FI Qulubihim Maradun (Heart Disease)
 * __Surah Baqarah 2/10__:[fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
 
 ***
