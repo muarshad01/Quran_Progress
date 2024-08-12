@@ -71,6 +71,35 @@ al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwb
 
 ***
 
+### Bought the Astraying
+* __Surah Baqarah 2/16__:[
+ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama kanu muh'tadina](https://quranwbw.com/2#16)
+
+***
+
+###  Example -  Fire Light
+* __Surah Baqarah 2/17__:[
+mathaluhum kamathali alladhi is'tawqada naran falamma adaat ma hawlahu dhahaba al-lahu binurihim watarakahum fi zulumatin la yub'siruna](https://quranwbw.com/2#17)
+
+***
+
+### Deaf, Dumb, Blind
+* __Surah Baqarah 2/18__:[They are deaf, dumb, and blind, so they return not (to the Right Path)](https://quranwbw.com/2#18)
+
+***
+
+### Example - Rainstorm
+* __Surah Baqarah 2/19__:[
+aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahum fi adhanihim mina al-sawa'iqi hadhara al-mawti wal-lahu muhitun bil-kafirina](https://quranwbw.com/2#19)
+
+***
+
+### Lightning - Hearing, Sight
+* __Surah Baqarah 2/20__:[
+yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
+
+***
+
 * [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
 * [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
 * [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
