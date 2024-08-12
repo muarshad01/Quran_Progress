@@ -3,24 +3,24 @@
 
 ***
 
-### Yumi-nuna Wayuqi-muna al-Salata, Yunfi-quna
+### Yumi-nuna, Wayuqi-muna al-Salata, Yunfi-quna
 * __Surah Baqarah 2/3__: [
 alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
 
 ***
 
-### Books (Quran, Gospel, Torah) and Akhirati hum yuqi-nuna
+### Books (Quran, Gospel, Torah) and Akhirati hum Yuqi-nuna
 * __Surah Baqarah 2/4__: [
 wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati hum yuqinuna](https://quranwbw.com/2#4)
 
 ***
 
-### Ala Hudan and Al-mufli-huna
+### Ala Hudan and Al-Mufli-huna
 * __Surah Baqarah 2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
 
 ***
 
-### Kafaru, La yumi-nuna
+### Kafaru, La Yumi-nuna
 * __Surah Baqarah 2/6__: [
 inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
 
