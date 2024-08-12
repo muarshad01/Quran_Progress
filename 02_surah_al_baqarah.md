@@ -41,7 +41,7 @@ wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'mi
 * __Surah Baqarah 2/9__:[yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
 
 ### Qulubihim maradun (Heart Disease)
-* __Surah Baqarah 2/9__:[fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
+* __Surah Baqarah 2/10__:[fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
 
 ***
 
