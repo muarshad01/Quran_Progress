@@ -8,8 +8,9 @@
 ***
 
 ## Head (Brain) of Quran
-* [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1) -- Dec 13, 2023
+* [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1)
     * 7 Ayats, 29 Words, 139 Letters
+
 *** 
 
 ## Chapter 01
