@@ -123,13 +123,13 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-###
-* __Surah Al-Baqarah 2/ __: []()
+### Creation, Death, 7-Heavens
+* __Surah Al-Baqarah 2/28-29 __: [How can you deny Allah?...](https://quran.com/2/28-29)
 
 ***
 
-###
-* __Surah Al-Baqarah 2/ __: []()
+### Hazrat Adam AS
+* __Surah Al-Baqarah 2/30-39 __: [](https://quran.com/2/30-39)
 
 ***
 
