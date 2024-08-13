@@ -98,23 +98,18 @@ aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahu
 * __Surah Baqarah 2/20__:[
 yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
 
-###
-* __Surah Al-Baqarah 2/ __: []()
+### Worship Allah SWT
+* __Surah Al-Baqarah 2/21 __: [O humanity! Worship your Lord, Who created you and those before you, so that you may become mindful ˹of Him˺.](https://quran.com/2/21)
 
 ***
 
 ###
-* __Surah Al-Baqarah 2/ __: []()
+* __Surah Al-Baqarah 2/22-23 __: [˹He is the One˺ Who has made the earth a place of settlement for you and the sky a canopy; and sends down rain from the sky, causing fruits to grow as a provision for you. So do not knowingly set up equals to Allah ˹in worship˺.](https://quran.com/2/22-23)
 
 ***
 
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
+### Inaam (Reward) of Jannh
+* __Surah Al-Baqarah 2/25 __: [](https://quran.com/2/25)
 
 ***
 
