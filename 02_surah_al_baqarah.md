@@ -113,13 +113,13 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-### Examples in Quran and Attitude of Muslima and non-Believers
-* __Surah Al-Baqarah 2/ __: [Surely Allah does not shy away from using the parable of a mosquito or what is even smaller...](https://quran.com/2/26)
+### Examples of Mosquito
+* __Surah Al-Baqarah 2/26__: [Surely Allah does not shy away from using the parable of a mosquito or what is even smaller...](https://quran.com/2/26)
 
 ***
 
-###
-* __Surah Al-Baqarah 2/ __: []()
+### Fasiq - Break Covenent; Break Ties; Spreaed Corruption
+* __Surah Al-Baqarah 2/27__: [Those who violate Allah’s COVENENT after it has been affirmed, break whatever ˹TIES˺ Allah has ordered to be maintained, and SPRED CORRUPTION in the land. It is they who are the ˹true˺ losers.](https://quran.com/2/27)
 
 ***
 
