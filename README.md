@@ -47,6 +47,7 @@
 ***
 
 ### Chapter 09
+__Surah At-Tawbah 9/24_: [Say, ˹O Prophet,˺ “If your parents and children and siblings and spouses and extended family and the wealth you have acquired and the trade you fear will decline and the homes you cherish—˹if all these˺ are more beloved to you than Allah and His Messenger and struggling in His Way, then wait until Allah brings about His Will. Allah does not guide the rebellious people.”](https://quran.com/9/24)
 
 ***
 
