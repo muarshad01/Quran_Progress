@@ -113,8 +113,8 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-###
-* __Surah Al-Baqarah 2/ __: []()
+### Examples in Quran and Attitude of Muslima and non-Believers
+* __Surah Al-Baqarah 2/ __: [Surely Allah does not shy away from using the parable of a mosquito or what is even smaller...](https://quran.com/2/26)
 
 ***
 
