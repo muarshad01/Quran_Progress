@@ -15,81 +15,6 @@ wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati
 
 ***
 
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
 ### Ala Hudan and Al-Mufli-huna
 * __Surah Baqarah 2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
 
@@ -172,6 +97,81 @@ aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahu
 ### Lightning - Hearing, Sight
 * __Surah Baqarah 2/20__:[
 yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
 
 ***
 
