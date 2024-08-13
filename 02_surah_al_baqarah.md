@@ -15,6 +15,81 @@ wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati
 
 ***
 
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
+###
+* __Surah Al-Baqarah 2/ __: []()
+
+***
+
 ### Ala Hudan and Al-Mufli-huna
 * __Surah Baqarah 2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
 
