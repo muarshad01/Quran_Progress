@@ -124,7 +124,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 ***
 
 ### Creation, Death, 7-Heavens
-* __Surah Al-Baqarah 2/28-29 __: [How can you deny Allah?...](https://quran.com/2/28-29)
+* __Surah Al-Baqarah 2/28-29__: [How can you deny Allah?...](https://quran.com/2/28-29)
 
 ***
 
@@ -149,7 +149,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 ***
 
 ###
-* __Surah Al-Baqarah 2/ __: []()
+* __Surah Al-Baqarah 2/x__: []()
 
 ***
 
