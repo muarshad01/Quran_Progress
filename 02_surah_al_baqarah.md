@@ -1,5 +1,5 @@
 ### La-Rayba, Hudan, Muttaqina
-* __Surah AlBaqarah 2/2__: [dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
+* __Surah Al-Baqarah 2/2__: [dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 
 ***
 
