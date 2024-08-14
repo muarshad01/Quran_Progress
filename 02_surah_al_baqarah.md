@@ -128,7 +128,9 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-# Hazrat Adam AS
+# Adam AS
+
+### Hazrat Adam AS
 * __Surah Al-Baqarah 2/30-39 __: [˹Remember˺ when your Lord said to the angels,...](https://quran.com/2/30-39)
 
 ***
