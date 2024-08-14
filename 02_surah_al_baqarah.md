@@ -1,33 +1,33 @@
-### La Rayba, Hudan, Muttaqina
-* __Surah Baqarah 2/2__: [dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
+### La-Rayba, Hudan, Muttaqina
+* __Surah AlBaqarah 2/2__: [dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 
 ***
 
 ### Yumi-nuna, Wayuqi-muna al-Salata, Yunfi-quna
-* __Surah Baqarah 2/3__: [
+* __Surah Al-Baqarah 2/3__: [
 alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
 
 ***
 
 ### Books (Quran, Gospel, Torah) and Akhirati hum Yuqi-nuna
-* __Surah Baqarah 2/4__: [
+* __Surah Al-Baqarah 2/4__: [
 wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati hum yuqinuna](https://quranwbw.com/2#4)
 
 ***
 
 ### Ala Hudan and Al-Mufli-huna
-* __Surah Baqarah 2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
+* __Surah Al-Baqarah 2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
 
 ***
 
 ### Kafaru, La Yumi-nuna
-* __Surah Baqarah 2/6__: [
+* __Surah Al-Baqarah 2/6__: [
 inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
 
 ***
 
 ### khatama (Sealed)- Heart, Listening, Eyes
-* __Surah Baqarah 2/7__: [khatama al-lahu ala Qulubihim wa'ala Sam'ihim wa'ala Absarihim ghishawatun walahum adhabun azimun](https://quranwbw.com/2#7)
+* __Surah Al-Baqarah 2/7__: [khatama al-lahu ala Qulubihim wa'ala Sam'ihim wa'ala Absarihim ghishawatun walahum adhabun azimun](https://quranwbw.com/2#7)
 
 ***
 
@@ -40,12 +40,12 @@ Wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'mi
 ### Yukhadi-una (Deceive)
 * __Surah Baqarah 2/9__:[yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
 
-### FI Qulubihim Maradun (Heart Disease)
+### FI Qulub-i-him Maradun (Heart Disease)
 * __Surah Baqarah 2/10__:[fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
 
 ***
 
-### La Tuf'Sidu fi al-Ardi
+### La Tuf'Sidu Fi al-Ardi
 * __Surah Baqarah 2/11__:[wa-idha qila lahum la tuf'sidu fi al-ardi qalu innama nahnu mus'lihuna](https://quranwbw.com/2#11)
 
 ***
@@ -94,22 +94,22 @@ aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahu
 
 ***
 
-### Lightning - Hearing, Sight
+### Example - Lightning
 * __Surah Baqarah 2/20__:[
 yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
 
 ### Worship Allah SWT
-* __Surah Al-Baqarah 2/21 __: [O humanity! Worship your Lord, Who created you and those before you, so that you may become mindful ˹of Him˺.](https://quran.com/2/21)
+* __Surah Al-Baqarah 2/21__: [O humanity! Worship your Lord, Who created you and those before you, so that you may become mindful ˹of Him˺.](https://quran.com/2/21)
 
 ***
 
 ###
-* __Surah Al-Baqarah 2/22-23 __: [˹He is the One˺ Who has made the earth a place of settlement for you and the sky a canopy; and sends down rain from the sky, causing fruits to grow as a provision for you. So do not knowingly set up equals to Allah ˹in worship˺.](https://quran.com/2/22-23)
+* __Surah Al-Baqarah 2/22-23__: [˹He is the One˺ Who has made the earth a place of settlement for you and the sky a canopy; and sends down rain from the sky, causing fruits to grow as a provision for you. So do not knowingly set up equals to Allah ˹in worship˺.](https://quran.com/2/22-23)
 
 ***
 
 ### Inaam (Reward) of Jannh
-* __Surah Al-Baqarah 2/25 __: [](https://quran.com/2/25)
+* __Surah Al-Baqarah 2/25__: [](https://quran.com/2/25)
 
 ***
 
@@ -118,7 +118,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-### Fasiq - Break Covenent; Break Ties; Spreaed Corruption
+### FASIQ - Break Covenent; Break Ties; Spreaed Corruption
 * __Surah Al-Baqarah 2/27__: [Those who violate Allah’s COVENENT after it has been affirmed, break whatever ˹TIES˺ Allah has ordered to be maintained, and SPRED CORRUPTION in the land. It is they who are the ˹true˺ losers.](https://quran.com/2/27)
 
 ***
@@ -133,8 +133,8 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-# Bani Isra'il (The Children of Israel (Yaqub AS))
-* __Surah Al-Baqarah 2/46-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-75)
+# Bani Isra'il (The Children of Israel Jacob(Yaqub AS))
+* __Surah Al-Baqarah 2/40-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-75)
 
 ***
 
