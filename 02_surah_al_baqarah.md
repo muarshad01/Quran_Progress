@@ -135,20 +135,22 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
+***
+
 # Bani Israel
 
 ### Bani Israel (Yaqub)
-* __Surah Al-Baqarah 2/41-61__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-61)
+* __Surah Al-Baqarah 2/46-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-61)
+
+***
+
+### 
+* __Surah Al-Baqarah 2/79-80__: []()
 
 ***
 
 ###
-* __Surah Al-Baqarah 2/ __: []()
-
-***
-
-###
-* __Surah Al-Baqarah 2/ __: []()
+* __Surah Al-Baqarah 2/8__: []()
 
 ***
 
