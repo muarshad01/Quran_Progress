@@ -133,7 +133,8 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-# Bani Isra'il (The Children of Israel Jacob(Yaqub AS))
+# Bani Isra'il 
+* The Children of Israel Jacob (Yaqub AS)
 * __Surah Al-Baqarah 2/40-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-75)
 
 ***
