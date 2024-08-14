@@ -128,19 +128,13 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-# **_Adam AS_**
-
-### Hazrat Adam AS
+# Hadram Adam AS
 * __Surah Al-Baqarah 2/30-39__: [˹Remember˺ when your Lord said to the angels,...](https://quran.com/2/30-39)
 
 ***
 
-***
-
-# Bani Israel
-
-### Bani Israel (Yaqub)
-* __Surah Al-Baqarah 2/46-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-61)
+# Bani Isra'il (The Children of Israel (Yaqub AS))
+* __Surah Al-Baqarah 2/46-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-75)
 
 ***
 
