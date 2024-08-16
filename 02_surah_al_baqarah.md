@@ -137,40 +137,34 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 * The Children of Israel Jacob (Yaqub AS)
 * __Surah Al-Baqarah 2/40-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-75)
 
-50 - The paths were made in the Sea
-51 - Hazrat Musa AS would go for 40 days on Koh-e-toor
-52 -
-53 - A person who was murdered in Hazrat Musa AS time, sacrifice a cow to know to murderer.
-54 - Bani Israel (Yaqub AS descendents) said, "We want to see Allah SWT!"
-55 -
-Allah SWT showed Musa AS His Tajalli (Noor)
-56 - Koh-e-toor was lifted and used to make-shade on top-of-them
-57 - Allah SWT sent Mann-o-Salva
-58
-59 - 12 streams-of-water erupted from a stone
-60 - Murder the Prophets
-61 -
-62 -
-63 - Koh-e-Toor was lifted for them
-64
-65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on Sunday. They tricked! Allah SWT made them monkeys.
-67 - Cow Slaughter Order:
-68 - Neither old nor young but of middle age, Not virgin
-69 - Yellow, shining, looking good
-70 - Not a working cow, which ploughs
-71 - Murder
-72 -
-73 -
-74 - Hearts become like stone...some stones gush forth water...
-75 -
-76 -
-77 -
-78 -
-79 -
-80 -
-83 - 84: Don't murder and don't expel people from city
-91 - Murdred the Anbiaa
-92 - Toor was lifted
+* 50 - The paths were made in the Sea
+* 51 - Hazrat Musa AS would go for 40 days on Koh-e-toor
+* 52 -
+* 53 - A person who was murdered in Hazrat Musa AS time, sacrifice a cow to know to murderer.
+* 54 - Bani Israel (Yaqub AS descendents) said, "We want to see Allah SWT!"
+* 55 -
+* Allah SWT showed Musa AS His Tajalli (Noor)
+* 56 - Koh-e-toor was lifted and used to make-shade on top-of-them
+* 57 - Allah SWT sent Mann-o-Salva
+* 58
+* 59 - 12 streams-of-water erupted from a stone
+* 60 - Murder the Prophets
+* 61 -
+* 62 -
+* 63 - Koh-e-Toor was lifted for them
+* 64
+* 65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on * Sunday. They tricked! Allah SWT made them monkeys.
+* 67 - Cow Slaughter Order:
+* 68 - Neither old nor young but of middle age, Not virgin
+* 69 - Yellow, shining, looking good
+* 70 - Not a working cow, which ploughs
+* 71 - Murder
+* 72 -
+* 73 -
+* 74 - Hearts become like stone...some stones gush forth water...
+* 83 - 84: Don't murder and don't expel people from city
+* 91 - Murdred the Anbiaa
+* 92 - Toor was lifted
 
 ***
 
