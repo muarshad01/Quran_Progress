@@ -173,18 +173,20 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-###
-* __Surah Al-Baqarah 2/8__: []()
+# Hazrat Ibrahim AS
+
+### 124. Imaam of Naas
+* __Surah Al-Baqarah 2/124__: [He (Allah) said (to him), "Verily, I am going to make you a leader (Prophet) of mankind."](https://quranwbw.com/2#124)
 
 ***
 
-###
-* __Surah Al-Baqarah 2/x__: []()
+### 125. My House: A place of Return and Peace
+* __Surah Al-Baqarah 2/125__: [And (remember) when We made the House (the Ka'bah at Makkah) a place of resort for mankind and a place of safety.](https://quranwbw.com/2#125)
 
 ***
 
-###
-* __Surah Al-Baqarah 2/ __: []()
+### 142. Direction of Prayer
+* __Surah Al-Baqarah 2/142 __: [](https://quranwbw.com/2#124)
 
 ***
 
