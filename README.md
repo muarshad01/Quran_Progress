@@ -222,7 +222,7 @@ __Surah At-Tawbah 9/24_: [Say, ˹O Prophet,˺ “If your parents and children an
 * [085. Surah Al-Burooj (The Constellations)](https://quranwbw.com/85) -- June 2024
 * [086. Surah At-Tariq (The Night Comer)](https://quranwbw.com/86) -- June 2024
 * [087. Surah Al-Ala (The Most High)](https://quranwbw.com/87) -- June 2024
-* [088. Surah Al-Ghaashiyah (The Overwhelming)]() -- June 2024
+* [088. Surah Al-Ghaashiyah (The Overwhelming)](https://quranwbw.com/88) -- June 2024
 * [089. Surah Al-Fajr (The Dawn)](https://quranwbw.com/89) -- June 2024
 * [090. Surah Al-Balad](https://quranwbw.com/90) -- June 2024
 * [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91)-- June 2024
