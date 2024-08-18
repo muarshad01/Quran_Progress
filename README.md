@@ -1,7 +1,6 @@
 * [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
 
-*** Qadar (Respect) of Allah SWT
-
+## Qadar (Respect) of Allah SWT
 * __Surah Al Hajj 22/74-75__: [
 ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw.com/22#74)
 
