@@ -175,13 +175,26 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 # Hazrat Ibrahim AS
 
-### 124. Imaam of Naas
+### 124. Imaman of Naas after 
 * __Surah Al-Baqarah 2/124__: [He (Allah) said (to him), "Verily, I am going to make you a leader (Prophet) of mankind."](https://quranwbw.com/2#124)
+* wa-idhi ib'tala ib'rahima rabbuhu bikalimatin fa-atammahunna qala inni ja'iluka lilnnasi imaman qala wamin dhurriyyati qala la yanalu ahdi al-zalimina
 
 ***
 
-### 125. My House: A place of Return and Peace
+### 125. Purifty my House: A place of Return and Peace
 * __Surah Al-Baqarah 2/125__: [And (remember) when We made the House (the Ka'bah at Makkah) a place of resort for mankind and a place of safety.](https://quranwbw.com/2#125)
+
+### 126. Make this city (Makkah) a place of security
+
+### 127. Raised the foundations
+
+### 128. Make Us and our Offspring Submissive to you (wa-ij'alna mus'limayni )
+
+### 129. Send amongst them a Messenger of their own 
+
+### 130. millati ib'rahima
+
+
 
 ***
 
