@@ -194,12 +194,17 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ### 130. millati ib'rahima
 
+### 132-134. Fala Tamutunna illa Wa-antum Muslimuna
 
+### 135 millata ib'rahima hanifan
+
+### 137 Fa-saayak-fi-ka-humu Allah-u
+* So Allah will suffice you against them
 
 ***
 
 ### 142. Direction of Prayer
-* __Surah Al-Baqarah 2/142 __: [](https://quranwbw.com/2#124)
+* __Surah Al-Baqarah 2/142 __: [Say, (O Muhammad SAW) "To Allah belong both, East and the West. He guides whom He wills to a Straight Way.](https://quranwbw.com/2#124)
 
 ***
 
