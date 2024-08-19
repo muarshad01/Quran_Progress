@@ -206,6 +206,13 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 ### 142. Direction of Prayer
 * __Surah Al-Baqarah 2/142 __: [Say, (O Muhammad SAW) "To Allah belong both, East and the West. He guides whom He wills to a Straight Way.](https://quranwbw.com/2#124)
 
+
+### 143. Ummatan Wasatan
+
+### 146. They recognise him (Muhammad SAW or the Ka'bah at Makkah) as they recongise their sons
+
+### 149-150. Face towards Ka'bah
+
 ***
 
 ###
