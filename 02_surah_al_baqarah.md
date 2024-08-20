@@ -1,3 +1,7 @@
+* https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf
+
+***
+
 ### La-Rayba, Hudan, Muttaqina
 * __Surah Al-Baqarah 2/2__: [dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 
