@@ -194,12 +194,21 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ### 130. millati ib'rahima
 
-### 132-134. Fala Tamutunna illa Wa-antum Muslimuna
+### 132-134. `Fala Tamutunna illa Wa-antum Muslimuna`
+* Wal Asbaat
 
-### 135 millata ib'rahima hanifan
+### 135 Millata Ib'rahima Hanifan
 
-### 137 Fa-saayak-fi-ka-humu Allah-u
+### 137 `Fa-saayak-fi-ka-humu Allah-u`
 * So Allah will suffice you against them
+
+### 138-140 Sib'ghata Al-lahi
+
+### 141 - Qibla Direction
+
+### 143-144 - `Raoofoon Raheem`
+
+### 150 - Faces towards Masjid-e-Haram
 
 ***
 
