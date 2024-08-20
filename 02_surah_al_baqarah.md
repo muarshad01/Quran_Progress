@@ -234,7 +234,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 ***
 
 ###
-* __Surah Al-Baqarah 2/ __: []()
+* __Surah Al-Baqarah 2/200 __: []()
 
 ***
 
