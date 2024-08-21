@@ -1,3 +1,7 @@
+* [Isra and Mi’raj (Part Two)](https://www.islamicity.org/24540/isra-and-miraj-part-two/)
+  
+***
+
 ## Mosque whose surroundings We have blessed
 * https://quran.com/17/1
 
