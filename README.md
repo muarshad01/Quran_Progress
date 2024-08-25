@@ -26,29 +26,33 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 03
+* [02 Surah Baqarah](https://quranwbw.com/2)
+* [03 Surah Al Imran](https://quranwbw.com/23)
 
 ***
 
 ### Chapter 04
-
-***
-### Chapter 04
+* __ Surah An-Nisa__: []()
 
 ***
 
 ### Chapter 05
+* __ Surah Al-Mai'dah__: []()
 
 ***
 
 ### Chapter 06
+* __Surah Al-An'am__: [](https://quran.com/6)
 
 ***
 
 ### Chapter 07
+* __Surah Al-Ar'af__: [](https://quran.com/7)
 
 ***
 
 ### Chapter 08
+* __Surah Al-Anfal__: [](https://quran.com/8)
 
 ***
 
