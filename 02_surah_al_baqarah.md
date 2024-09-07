@@ -178,6 +178,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 __2/114__: [Who does more wrong than those who prevent Allah’s Name from being mentioned in His places of worship and strive to destroy them? ](https://quran.com/2/114)
+
 ***
 
 # Hazrat Ibrahim AS
@@ -186,30 +187,29 @@ __2/114__: [Who does more wrong than those who prevent Allah’s Name from being
 * __2/124__: [He (Allah) said (to him), "Verily, I am going to make you a leader (Prophet) of mankind."](https://quranwbw.com/2#124)
 * wa-idhi ib'tala ib'rahima rabbuhu bikalimatin fa-atammahunna qala inni ja'iluka lilnnasi imaman qala wamin dhurriyyati qala la yanalu ahdi al-zalimina
 
-***
-
 ### 125. Purifty my House: A place of Return and Peace
 * __2/125__: [And (remember) when We made the House (the Ka'bah at Makkah) a place of resort for mankind and a place of safety.](https://quranwbw.com/2#125)
 
-### 126. Make this city (Makkah) a place of security
+### 126. Make this city (Makkah) a place of Security
 
-### 127. Raised the foundations
+### 127. Raised the Foundations
 
-### 128. Make Us and our Offspring Submissive to you (wa-ij'alna mus'limayni )
+### 128. Make Us and our Offspring Submissive to you (Wa-ij'alna Mus'limayni )
 
 ### 129. Send amongst them a Messenger of their own 
 
 ### 130. Millati ib'rahima
 
 ### 132-134. `Fala Tamutunna illa Wa-antum Muslimuna`
-* Wal Asbaat
+* __2/132__: [do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2#132)
 
 ### 135 Millata Ib'rahima Hanifan
 
 ### 137 `Fa-saayak-fi-ka-humu Allah-u`
-* So Allah will suffice you against them
+* __2/137__: So Allah will suffice you against them
 
-### 138-140 Sib'ghata Al-lahi
+### 138 Sib'ghata Al-lahi (Color of Allah)
+* __2/138__: [Our Sibghah (religion) is] the Sibghah (Religion) of Allah (Islam) and which Sibghah (religion) can be better than Allah's? And we are His worshippers. [Tafsir Ibn Kathir]](https://quranwbw.com/2#138)
 
 ### 141 - Qibla Direction
 
@@ -218,31 +218,27 @@ __2/114__: [Who does more wrong than those who prevent Allah’s Name from being
 
 ### 143. Ummatan Wasatan
 
-### 143-144 - `Raoofoon Raheem`
+### 144 - `Raoofoon Raheem`
 
 ### 146. They recognise him (Muhammad SAW or the Ka'bah at Makkah) as they recongise their sons
-
-### 150 - Faces towards Masjid-e-Haram
-
+* __2/146__: [Those We have given the Scripture recognize this ˹Prophet˺ as they recognize their own children. Yet a group of them hides the truth knowingly.](https://quran.com/2/146)
+* 
 ### 149-150. Face towards Ka'bah
 
 * __2/170__: [Do not follow anyone blindly.](https://quran.com/2/170)
 
-
 ## Fasting
-* [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
+* __2/183__: [Fasting has been made Obligatory](https://quran.com/2/183)
 
 ## Respond to Prayers
-* [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
+* __2/186__: [I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
 
 * __2/188__: [Don't engage in bribery](https://quran.com/2/188)
 
 * __2/191__: [Keep the etiquette of war](https://quran.com/2/191)
 
-***
-
-## Like and Dislike
-* [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
+## Your Like / Dislike
+* __2/216__: [Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
 
 * __2/220__: [Protect Orphans](https://quran.com/2/220)
 
@@ -251,15 +247,14 @@ __2/114__: [Who does more wrong than those who prevent Allah’s Name from being
 * __2/223__: [Breat feed your children for two complete years](https://quran.com/2/223)
 
 * __2/247__: [Choose rulers by their merit](https://quran.com/2/247)
-
+* 
 * __2/264__: [Do not waste your charity with reminders ˹of your generosity˺ or hurtful words...](https://quran.com/2/264)
 
-
-## Khair-e-Hadeer (A great privilege)
-* [...](https://quran.com/2/269)
+## Khair-e-kaseer (A great privilege)
+* __2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. ](https://quran.com/2/269)
 
 ## Ulul Albab (People of reason)
-* [...](https://quran.com/2/269)
+* [But none will be mindful ˹of this˺ except people of reason.](https://quran.com/2/269)
 
 * __2/273__:[Help those in need by finding them](https://quran.com/2/273)
 
