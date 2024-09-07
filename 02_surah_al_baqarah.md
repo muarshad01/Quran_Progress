@@ -65,7 +65,7 @@ Wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'mi
 ***
 
 ### Mus'Tahziuna (Mockers)
-* __Surah Baqarah 2/14__:[Wa-idha laqu alladhina amanu qalu amanna wa-idha khalaw ila shayatinihim qalu inna ma'akum innama nahnu mus'tahziuna](https://quranwbw.com/2#14)
+* __2/14__:[Wa-idha laqu alladhina amanu qalu amanna wa-idha khalaw ila shayatinihim qalu inna ma'akum innama nahnu mus'tahziuna](https://quranwbw.com/2#14)
 
 ***
 
