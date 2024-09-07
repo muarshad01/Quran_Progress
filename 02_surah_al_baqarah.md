@@ -140,6 +140,8 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 # Bani Isra'il 
 * The Children of Israel Jacob (Yaqub AS)
 * __2/40-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-75)
+* __2/42__: [Do not mix truth with falsehood or hide the truth knowingly.](https://quran.com/2/42)
+* __2/44__: [Do you preach righteousness and fail to practice it yourselves...](https://quran.com/2/44)
 * 50 - The paths were made in the Sea
 * 51 - Hazrat Musa AS would go for 40 days on Koh-e-toor
 * 52 -
@@ -151,7 +153,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 * 57 - Allah SWT sent Mann-o-Salva
 * 58
 * 59 - 12 streams-of-water erupted from a stone
-* 60 - Murder the Prophets
+* __2/60__: [...Do not go about spreading corruption in the land...](https://quran.com/2/60)
 * 61 -
 * 62 -
 * 63 - Koh-e-Toor was lifted for them
@@ -174,6 +176,8 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 ### 
 * __2/79-80__: []()
 
+***
+__2/114__: [Who does more wrong than those who prevent Allah’s Name from being mentioned in His places of worship and strive to destroy them? ](https://quran.com/2/114)
 ***
 
 # Hazrat Ibrahim AS
@@ -226,6 +230,10 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
+* __2/170__: [Do not follow anyone blindly.](https://quran.com/2/170)
+
+***
+
 ## Fasting
 * [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
 
@@ -236,8 +244,36 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
+* __2/188__: [Don't engage in bribery](https://quran.com/2/188)
+
+***
+
+* __2/191__: [Keep the etiquette of war](https://quran.com/2/191)
+
+***
+
 ## Like and Dislike
 * [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
+
+***
+
+* __2/220__: [Protect Orphans](https://quran.com/2/220)
+
+***
+
+* __2/222__: [No sex during menstual period](https://quran.com/2/222)
+
+***
+
+* __2/223__: [Breat feed your children for two complete years](https://quran.com/2/223)
+
+***
+
+* __2/247__: [Choose rulers by their merit](https://quran.com/2/247)
+
+***
+
+* __2/264__: [Do not waste your charity with reminders ˹of your generosity˺ or hurtful words...](https://quran.com/2/264)
 
 ***
 
@@ -248,5 +284,27 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ## Ulul Albab (People of reason)
 * [...](https://quran.com/2/269)
+
+***
+
+* __2/273__:[Help those in need by finding them](https://quran.com/2/273)
+
+***
+
+* __2/275__:[Don't consume interest](https://quran.com/2/275)
+
+***
+
+* __2/280__:[Grant more time to repay if debtor is in hard time](https://quran.com/2/280)
+
+***
+
+* __2/282__:[Write down the debt](https://quran.com/2/282)
+
+* __2/283__:[Keep the trust](https://quran.com/2/283)
+
+* __2/283__:[Don't spy and backbite](https://quran.com/2/283)
+
+* __2/285__:[Believe in ALL prophetes](https://quran.com/2/285)
 
 ***
