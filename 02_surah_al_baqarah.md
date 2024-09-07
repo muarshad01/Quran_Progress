@@ -158,7 +158,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 * 62 -
 * 63 - Koh-e-Toor was lifted for them
 * 64
-* 65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on * Sunday. They tricked! Allah SWT made them monkeys.
+* 65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on Sunday. They tricked! Allah SWT made them monkeys.
 * 67 - Cow Slaughter Order:
 * 68 - Neither old nor young but of middle age, Not virgin
 * 69 - Yellow, shining, looking good
@@ -173,11 +173,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 
 ***
 
-### 
-* __2/79-80__: []()
-
-***
-__2/114__: [Who does more wrong than those who prevent Allah’s Name from being mentioned in His places of worship and strive to destroy them? ](https://quran.com/2/114)
+* __2/114__: [Who does more wrong than those who prevent Allah’s Name from being mentioned in His places of worship and strive to destroy them? ](https://quran.com/2/114)
 
 ***
 
