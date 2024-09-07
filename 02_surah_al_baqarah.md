@@ -224,29 +224,18 @@ __2/114__: [Who does more wrong than those who prevent Allah’s Name from being
 
 ### 150 - Faces towards Masjid-e-Haram
 
-***
-
 ### 149-150. Face towards Ka'bah
-
-***
 
 * __2/170__: [Do not follow anyone blindly.](https://quran.com/2/170)
 
-***
 
 ## Fasting
 * [02:183 - Fasting has been made Obligatory](https://quran.com/2/183)
 
-***
-
 ## Respond to Prayers
 * [02:186 - I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
 
-***
-
 * __2/188__: [Don't engage in bribery](https://quran.com/2/188)
-
-***
 
 * __2/191__: [Keep the etiquette of war](https://quran.com/2/191)
 
@@ -255,49 +244,28 @@ __2/114__: [Who does more wrong than those who prevent Allah’s Name from being
 ## Like and Dislike
 * [02:216 - Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
 
-***
-
 * __2/220__: [Protect Orphans](https://quran.com/2/220)
-
-***
 
 * __2/222__: [No sex during menstual period](https://quran.com/2/222)
 
-***
-
 * __2/223__: [Breat feed your children for two complete years](https://quran.com/2/223)
-
-***
 
 * __2/247__: [Choose rulers by their merit](https://quran.com/2/247)
 
-***
-
 * __2/264__: [Do not waste your charity with reminders ˹of your generosity˺ or hurtful words...](https://quran.com/2/264)
 
-***
 
 ## Khair-e-Hadeer (A great privilege)
 * [...](https://quran.com/2/269)
 
-***
-
 ## Ulul Albab (People of reason)
 * [...](https://quran.com/2/269)
 
-***
-
 * __2/273__:[Help those in need by finding them](https://quran.com/2/273)
-
-***
 
 * __2/275__:[Don't consume interest](https://quran.com/2/275)
 
-***
-
 * __2/280__:[Grant more time to repay if debtor is in hard time](https://quran.com/2/280)
-
-***
 
 * __2/282__:[Write down the debt](https://quran.com/2/282)
 
