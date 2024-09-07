@@ -2,31 +2,31 @@
 
 ***
 
-### La-Rayba, Hudan (Guidance), Muttaqina (Pious)
+### La-Rayba
 * __2/2__: [Dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 
 ***
 
-### Yumi-nuna, Wayuqi-muna al-Salata, Yunfi-quna
+### Yumi-Nuna,
 * __2/3__: [
-alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
+Alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
 
 ***
 
-### Books (Quran, Gospel, Torah) and Akhirati hum Yuqi-nuna
-* __Surah Al-Baqarah 2/4__: [
+### Books (Quran, Gospel, Torah) and Akhirat
+* __2/4__: [
 wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati hum yuqinuna](https://quranwbw.com/2#4)
 
 ***
 
-### Ala Hudan and Al-Mufli-huna
-* __Surah Al-Baqarah 2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
+### Ala-Hudan and Al-Mufli-Huna
+* __2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
 
 ***
 
-### Kafaru, La Yumi-nuna
-* __Surah Al-Baqarah 2/6__: [
-inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
+### Kafaru
+* __2/6__: [
+Inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
 
 ***
 
