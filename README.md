@@ -26,7 +26,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 03
-* [03 Surah Al Imran](https://quranwbw.com/23)
+* [Surah Al-Imran](https://quranwbw.com/23)
 
 ***
 
