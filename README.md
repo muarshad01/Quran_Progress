@@ -1,3 +1,4 @@
+* [ParsQuran](http://www.parsquran.com/eng/)
 * [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
 
 ***
