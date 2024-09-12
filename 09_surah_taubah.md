@@ -1,24 +1,25 @@
-* 1-2 Allah makes a declaration of disassociation from the polytheists.
-* 2 they can travel freely for 4 months
-* 3 It would be better if they repent
-* 4 Polytheists who didn’t break any treaty are to be spared and treated with respect until time of treaty is over
-* 5 after the Sacred months have passed Polytheists are to be killed but if they repent they are accepted
-* 6 Any Polytheist who goes to Muslims and asks for protection is to be granted protection so they can hear the words of Allah
-* 7 Polytheists who upheld treaties not to be harmed
-* 8 Polytheists rebuked for not observing treaty believing they have the upper hand
-* 9 Polytheists rebuked for exchanging the signs of Allah and averting from his way
-*10 Those who broke the treaties are the transgressors
-*11 If those who broke the treaties become Muslims they are regarded as brothers to the believers
-* 12 Muslims are told to fight the leaders of disbelief
-* 13-16 Muslims exhorted to fight against the truce-breakers
-* 17-18 All but Muslims to be excluded from the sacred temples
-* 19 Abbás rebuked for his vainglory
-* 20-22 The Muhajirun assigned the first rank among Muslims—their reward
-* 23-24 True believers to refuse friendship with nearest kin if they be infidels
-* 25-27 The Battle of Hunayn victory due to God's help
-* 28 Idolators excluded from the Kaaba
-* 29 The Jews and Christians to be attacked (if they refuse to pay the Jizya tax)
-* 30 Jews and Christians reproved for applying the epithet “Son of God” to Uzayr and Jesus
+* 1-2: Allah makes a `declaration of disassociation` from the polytheists.
+* 2: they can travel freely for 4 months
+* 3: It would be better if they `repent`
+* 4: Polytheists who didn’t break any treaty are to be spared and treated with respect until time of treaty is over
+* 5: after the Sacred months have passed Polytheists are to be killed but if they repent they are accepted
+* 6: Any Polytheist who goes to Muslims and asks for protection is to be granted protection so they can hear the words of Allah
+* 7: Polytheists who upheld treaties not to be harmed
+* 8: Polytheists rebuked for not observing treaty believing they have the upper hand
+* 9: Polytheists rebuked for exchanging the signs of Allah and averting from his way
+* 10:Those who broke the treaties are the transgressors
+* 11: If those who broke the treaties become Muslims they are regarded as brothers to the believers
+* 12: Muslims are told to fight the leaders of disbelief
+* 13-16: Muslims exhorted to fight against the truce-breakers
+* 17-18: All but Muslims to be excluded from the sacred temples
+* 19: Abbás rebuked for his vainglory
+* 20-22: The Muhajirun assigned the first rank among Muslims—their reward
+* 23-24: True believers to refuse friendship with nearest kin if they be infidels
+* 25-27: The Battle of Hunayn victory due to God's help
+* 28: Idolators excluded from the Kaaba
+* 29: The Jews and Christians to be attacked (if they refuse to pay the Jizya tax)
+* 30: Jews and Christians reproved for applying the epithet “Son of God” to Uzayr and Jesus
+* ---
 * 31-32 They take their priests and monks and Jesus as Lords besides Allah.
 * 33 Islam superior to all other religions
 * 34-35 Stingy Muslims likened to covetous monks—their punishment
