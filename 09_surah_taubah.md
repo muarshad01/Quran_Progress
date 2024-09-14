@@ -1,45 +1,45 @@
-* 1-2: Allah makes a `declaration of disassociation` from the polytheists.
+* 1-2: Allah makes a `declaration-of-disassociation` from the polytheists.
 * 2: they can travel freely for 4 months
 * 3: It would be better if they `repent`
 * 4: Polytheists who didn’t break any treaty are to be spared and treated with respect until time of treaty is over
-* 5: after the Sacred months have passed Polytheists are to be killed but if they repent they are accepted
+* 5: after the `Sacred months` have passed Polytheists are to be killed but if they repent they are accepted
 * 6: Any Polytheist who goes to Muslims and asks for protection is to be granted protection so they can hear the words of Allah
 * 7: Polytheists who upheld treaties not to be harmed
-* 8: Polytheists rebuked for not observing treaty believing they have the upper hand
-* 9: Polytheists rebuked for exchanging the signs of Allah and averting from his way
-* 10:Those who broke the treaties are the transgressors
-* 11: If those who broke the treaties become Muslims they are regarded as brothers to the believers
-* 12: Muslims are told to fight the leaders of disbelief
-* 13-16: Muslims exhorted to fight against the truce-breakers
-* 17-18: All but Muslims to be excluded from the sacred temples
-* 19: Abbás rebuked for his vainglory
-* 20-22: The Muhajirun assigned the first rank among Muslims—their reward
+* 8: Polytheists rebuked for not observing treaty believing they have the upper-hand
+* 9: Polytheists rebuked for exchanging-the-signs-of-Allah and averting-from-his-way
+* 10: Those who broke the treaties are the `Transgressors`
+* 11: If those who broke the treaties become Muslims they are regarded as brothers-to-the-believers
+* 12: Muslims are told to fight the leaders-of-disbelief
+* 13-16: Muslims exhorted (strongly encouraged) to fight against the truce-breakers
+* __17-18 (Sacred Temples)__: All but Muslims to be excluded from the sacred temples
+* 19: `Abbás` rebuked for his `vainglory` (excessive or ostentatious pride especially in one's achievements)
+* __20-22 (First Rank)__: The Muhajirun assigned the first rank among Muslims—their reward
 * 23-24: True believers to refuse friendship with nearest kin if they be infidels
-* 25-27: The Battle of Hunayn victory due to God's help
-* 28: Idolators excluded from the Kaaba
+* 25-27 (Hunayn): The Battle of `Hunayn` victory due to God's help
+* __28 (Excludion)__: Idolators excluded from the Kaaba
 * 29: The Jews and Christians to be attacked (if they refuse to pay the Jizya tax)
-* 30: Jews and Christians reproved for applying the epithet “Son of God” to Uzayr and Jesus
-* ---
+* __30 (Uzayr and Jesus)__: Jews and Christians reproved for applying the `epithet` “Son of God” to Uzayr and Jesus
 * 31-32 They take their priests and monks and Jesus as Lords besides Allah.
 * 33 Islam superior to all other religions
-* 34-35 Stingy Muslims likened to covetous monks—their punishment
-* 36 Infidels may be attacked in sacred months
+* 34-35 `Stingy Muslims` likened to covetous monks—their punishment
+* 36 Infidels may be attacked in `sacred months` 
 * 37 The sacred months not to be transferred
 * 38–41 Muslims exhorted to go on expedition to `Tabuk` by reference to God's help to Muhammad and Abu Bakr in the cave; Abu Bakr is referenced as `thaniya ithnayn` ('Second of the Two')
-* 42 The lukewarm Muslims rebuked for wishing to stay at home
-* 43 Muhammad rebuked for excusing some of these from going
+* 42 The `lukewarm Muslims` rebuked for wishing to stay at home
+* 43 `Muhammad rebuked` for excusing some of these from going
 * 44-46 Willingness to fight for Muhammad, a test of faith
 * 47-50 Seditious Muslims rebuked
 * 51-52 The sure reward of the faithful
 * 53-55 God refuses the offerings of infidels and hypocrites
-* 55 The wealth and prosperity of infidels a sign of their reprobation
+* 55 The `wealth-and-prosperity of infidels` a sign of their reprobation (disapproval, rejection, and a doctrine in Christian theology)
 * 56-57 Half-hearted Muslims reproved
-* 58-59 Those who had spread `libellous reports` regarding Muhammad's use of alms rebuked
+* 58-59 Those who had spread `libellous (containing or constituting a libel) reports` regarding Muhammad's use of alms rebuked
 * 60 How alms should be expended
-* 61-69 Grumblers and hypocrites threatened
+* 61-69 Grumblers (a person who complains a lot or is given to excessive complaints, crying, and whining) and hypocrites threatened
 * 70 They are warned by the example of the wicked in former ages
 * 71-72 The faithful described—their rewards
 * 73-74 Hypocrites denounced and threatened
+* ---
 * 76-78 Prosperity of infidels a prelude to their destruction
 * 79 God shall scoff at the scoffers
 * 80 The defamers of the faithful shall never be forgiven
