@@ -57,14 +57,15 @@
 * 102-105 The `penitent confessors` in Madína are pardoned
 * 106 Others await God's decision in their case
 107-110 `Denunciation` against those who built a Masjid in opposition to Muhammad and his faithful ones
-  * ---
-111-112 True believers are sold to God
-113 Muslims not to pray for idolatrous relatives
-114 Why Abraham prayed for his idolatrous parents
-115-117 God merciful to the faithful
-118 The three recreant Ansars pardoned
-119-121 The people of Madína rebuked for want of loyalty to Muhammad
-122 Some believers excused from going to war
-123 True believers to war against neighbouring infidels and hypocrisy
-124-127 Reproof of those who doubt the revelations of God and Muhammad
-128-129 The Apostle trusts in the help of God [7]
+* ---
+* 111-112 True believers are sold to God
+* 113 Muslims not to pray for `idolatrous relatives`
+* 114 Why Abraham prayed for his `idolatrous parents`
+* 115-117 God merciful to the faithful
+* 118 The THREE recreant Ansars pardoned
+* 119-121 The people of Madína rebuked for want of loyalty to Muhammad
+* 122 Some believers excused from going to war
+* 123 True believers to war against neighbouring infidels and hypocrisy
+* 124-127 Reproof of those who doubt the revelations of God and Muhammad
+* 128-129 The `Apostle` trusts in the help of God [7]
+*** 
