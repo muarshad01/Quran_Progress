@@ -25,7 +25,7 @@
 * 34-35 Stingy Muslims likened to covetous monks—their punishment
 * 36 Infidels may be attacked in sacred months
 * 37 The sacred months not to be transferred
-* 38–41 Muslims exhorted to go on expedition to Tabuk by reference to God's help to Muhammad and Abu Bakr in the cave; Abu Bakr is referenced as thaniya ithnayn ('Second of the Two')
+* 38–41 Muslims exhorted to go on expedition to `Tabuk` by reference to God's help to Muhammad and Abu Bakr in the cave; Abu Bakr is referenced as `thaniya ithnayn` ('Second of the Two')
 * 42 The lukewarm Muslims rebuked for wishing to stay at home
 * 43 Muhammad rebuked for excusing some of these from going
 * 44-46 Willingness to fight for Muhammad, a test of faith
@@ -34,7 +34,7 @@
 * 53-55 God refuses the offerings of infidels and hypocrites
 * 55 The wealth and prosperity of infidels a sign of their reprobation
 * 56-57 Half-hearted Muslims reproved
-* 58-59 Those who had spread libellous reports regarding Muhammad's use of alms rebuked
+* 58-59 Those who had spread `libellous reports` regarding Muhammad's use of alms rebuked
 * 60 How alms should be expended
 * 61-69 Grumblers and hypocrites threatened
 * 70 They are warned by the example of the wicked in former ages
@@ -54,9 +54,10 @@
 * 99 Some of them true believers
 * 100 The reward of the Ansars and Muhájjirín
 * 101 The desert Arabs and some of the people of Madína reproved
-* 102-105 The penitent confessors in Madína are pardoned
+* 102-105 The `penitent confessors` in Madína are pardoned
 * 106 Others await God's decision in their case
-107-110 Denunciation against those who built a Masjid in opposition to Muhammad and his faithful ones
+107-110 `Denunciation` against those who built a Masjid in opposition to Muhammad and his faithful ones
+  * ---
 111-112 True believers are sold to God
 113 Muslims not to pray for idolatrous relatives
 114 Why Abraham prayed for his idolatrous parents
