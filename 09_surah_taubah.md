@@ -1,4 +1,23 @@
+<<<<<<< HEAD
 * 1-2: Allah makes a `declaration-of-disassociation` from the polytheists.
+=======
+## [Surah At-Taubah](https://www.youtube.com/watch?v=Xr_gdFFAjh0)
+* __Surah Al-Baqah 2/174__: [Indeed, those who HIDE Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies](https://quran.com/2/174)
+* __Surah Hadid 57__: [Raises the standards of Iman and Muslims who are already Muslims](https://quran.com/57)...
+  * Prophet PBUH was under a lot of stress at the time `Surah Hadid` was revealed. His hair turned grey.
+  * You will understand `Surah Hadid` once you understand `Surah Taubah` in depth and also its shan-e-nazool
+* __Surah At-Taubah 9__ :[Signs of those who CONCEAL their NIFAQ and are in Islaam's Libada](https://quran.com/9)
+  * Classic Litmus Test
+  * They'll come to you...make `Excuses to Fight`. Allah SWT knows their excuses.
+  * Those THREE people are Bycotted (Total Ten)
+  * Two are Badari Sehabi and `Kaab-bin-Malik` First `Uqba-e-ula` Sehabi (Three are Bycotted)
+  * Raises the standard of being Muslim
+  * Therometer to test FEVER
+
+***
+
+* 1-2: Allah makes a `declaration of disassociation` from the polytheists.
+>>>>>>> 42f1999 (update)
 * 2: they can travel freely for 4 months
 * 3: It would be better if they `repent`
 * 4: Polytheists who didn’t break any treaty are to be spared and treated with respect until time of treaty is over
