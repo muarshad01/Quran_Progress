@@ -99,7 +99,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 16
-* [20. Surah Tahaa](https://quranwbw.com/20) -- February 08, 2024
+* [20. Surah Tahaa](https://quranwbw.com/20) -- Sept 19, 2024
 
 ***
 
