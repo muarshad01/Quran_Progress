@@ -92,7 +92,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 15 & 16
-* [18. Surah Al-kahf (The Cave)](https://quranwbw.com/18) -- June 06, 2024
+* [18. Surah Al-kahf (The Cave)](https://quranwbw.com/18) -- Sept 19, 2024
 * [19. Surah Maryam](https://quranwbw.com/19) -- January 10, 2024
   * [I have never been disappointed in my prayer to You, my Lord!](https://quran.com/19/4)
 
