@@ -14,7 +14,6 @@
 ***
 
 * 1-2: Allah makes a `declaration of disassociation` from the polytheists.
->>>>>>> 42f1999 (update)
 * 2: they can travel freely for 4 months
 * 3: It would be better if they `repent`
 * 4: Polytheists who didn’t break any treaty are to be spared and treated with respect until time of treaty is over
@@ -30,7 +29,7 @@
 * __17-18 (Sacred Temples)__: All but Muslims to be excluded from the sacred temples
 * 19: `Abbás` rebuked for his `vainglory` (excessive or ostentatious pride especially in one's achievements)
 * __20-22 (First Rank)__: The Muhajirun assigned the first rank among Muslims—their reward
-* 23-24: True believers to refuse friendship with nearest kin if they be infidels
+* __23-24__: True believers to refuse friendship with nearest kin if they be infidels
    * 1. Parents
    * 2. Children
    * 3. Siblings
