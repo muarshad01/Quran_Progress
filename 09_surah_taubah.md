@@ -1,6 +1,3 @@
-<<<<<<< HEAD
-* 1-2: Allah makes a `declaration-of-disassociation` from the polytheists.
-=======
 ## [Surah At-Taubah](https://www.youtube.com/watch?v=Xr_gdFFAjh0)
 * __Surah Al-Baqah 2/174__: [Indeed, those who HIDE Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies](https://quran.com/2/174)
 * __Surah Hadid 57__: [Raises the standards of Iman and Muslims who are already Muslims](https://quran.com/57)...
@@ -34,6 +31,14 @@
 * 19: `Abbás` rebuked for his `vainglory` (excessive or ostentatious pride especially in one's achievements)
 * __20-22 (First Rank)__: The Muhajirun assigned the first rank among Muslims—their reward
 * 23-24: True believers to refuse friendship with nearest kin if they be infidels
+   * 1. Parents
+   * 2. Children
+   * 3. Siblings
+   * 4. Wife
+   * 5. Extended Family
+   * 6. Wealth
+   * 7. Business
+   * 8. Homes
 * 25-27 (Hunayn): The Battle of `Hunayn` victory due to God's help
 * __28 (Excludion)__: Idolators excluded from the Kaaba
 * 29: The Jews and Christians to be attacked (if they refuse to pay the Jizya tax)
