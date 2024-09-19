@@ -62,15 +62,6 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 10
 * [09: Surah Ar-Tawbah](https://github.com/muarshad01/Quran_Progress/blob/main/09_surah_taubah.md) -- Sept 19, 2024
-* __Surah At-Tawbah 9/24__: [Say, ˹O Prophet,˺ “If your parents and children and siblings and spouses and extended family and the wealth you have acquired and the trade you fear will decline and the homes you cherish—˹if all these˺ are more beloved to you than Allah and His Messenger and struggling in His Way, then wait until Allah brings about His Will. Allah does not guide the rebellious people.”](https://quran.com/9/24)
-   * 1. Parents
-   * 2. Children
-   * 3. Siblings
-   * 4. Wife
-   * 5. Extended Family
-   * 6. Wealth
-   * 7. Business
-   * 8. Homes
 
 ***
 
