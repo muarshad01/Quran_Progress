@@ -160,6 +160,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ### Chapter 24 [40 - 41]
 * [40. Surah Ghaafir (Al-Muʼmin; The Forgiver)](https://quranwbw.com/40) -- January 28, 2024
 * [41. Surah Fussilat (Explained in detail)](https://quranwbw.com/41)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md)
    * 2 days, 4 days, six days 
   
 ***
