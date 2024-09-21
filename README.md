@@ -138,7 +138,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [30. Suran Ar-Room](https://quranwbw.com/30) --
 * [31. Surah Luqman](https://quranwbw.com/31)
    * Seas and Qalams 
-* [32. Surah Sajda](https://quranwbw.com/32) -- Januray 18, 2024
+* [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32) -- Sept 21, 2024
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
 * [34. Surah xxx]()
 * [35. Surah xxx]()
