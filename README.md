@@ -16,7 +16,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ## Head (Brain) of Quran
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1)
-    * 7 Ayats, 29 Words, 139 Letters
+    * 7 Ayats, 29 Words, 139 Letters = 7 + 29 + 139 = 175 = 17 x 5
 
 *** 
 
