@@ -163,6 +163,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 * [41. Surah Ha-Meem Sajdah (Surah Fussilat)](https://quranwbw.com/41)
+   * __Qool-e-Azam 9/__: [And who is better in speech than he who](https://quranwbw.com/41#33) 
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md) -- Sept 21, 2024
   
 ***
