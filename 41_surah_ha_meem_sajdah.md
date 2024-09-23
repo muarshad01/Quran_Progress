@@ -26,7 +26,7 @@
 *** 
 * __29__: `False teachers to be trodden under foot by their own followers in hell`
 * 30-32 The glorious rewards of the faithful
-* 33 The consistent Muslim commended
+* __Qool-e-Azam 9/33__: [And who is better in speech than he who..](https://quranwbw.com/41#33) 
 * 34-35 Evil to be turned away by good
 * __36__: `God the refuge of the Prophet against Satan’s suggestions`
 * 37 - 39 God’s works testify to himself as alone worthy of worship
