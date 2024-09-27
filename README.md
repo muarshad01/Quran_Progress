@@ -113,8 +113,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 18
 * [23. Surah Al-Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
-* [24. xxx]()
-* [25. xxx]()
+* [24. Surah Noor](https://quranwbw.com/24)
+* [25. Surah Furqan](https://quranwbw.com/25)
 
 ***
 
