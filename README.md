@@ -22,38 +22,38 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 *** 
 
 ### Chapter [01, 02, 03]
-* [Surah Al-Baqarah](https://quranwbw.com/2)
+* [2. Surah Al-Baqarah](https://quranwbw.com/2)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/02_surah_al_baqarah.md) -- Sept 2024
 
 ***
 
 ### Chapter 03
-* [Surah Al-Imran](https://quranwbw.com/23)
+* [3. Surah Al-Imran](https://quranwbw.com/23)
 
 ***
 
 ### Chapter 04
-* __ Surah An-Nisa__: []()
+* __ Surah An-Nisa__: [4. ]()
 
 ***
 
 ### Chapter 05
-* __ Surah Al-Mai'dah__: []()
+* __ Surah Al-Mai'dah__: [5. ]()
 
 ***
 
 ### Chapter 06
-* __Surah Al-An'am__: [](https://quran.com/6)
+* __Surah Al-An'am__: [6. ](https://quran.com/6)
 
 ***
 
 ### Chapter 07
-* __Surah Al-Ar'af__: [](https://quran.com/7)
+* __Surah Al-Ar'af__: [7. ](https://quran.com/7)
 
 ***
 
 ### Chapter 08
-* __Surah Al-Anfal__: [](https://quran.com/8)
+* __Surah Al-Anfal__: [8. ](https://quran.com/8)
 
 ***
 
@@ -66,7 +66,6 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ***
 
-
 ### Chapter 11
 * [10: Surah Yunus](https://quranwbw.com/10)
    * [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
@@ -74,6 +73,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 12
+* [11: Surah Hud](https://quranwbw.com/11)
+* [12: Surah Yusuf](https://quranwbw.com/12)
+* [13: Surah Ar'Rad](https://quranwbw.com/13)
 
 ***
 
@@ -84,11 +86,13 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 14
+* [15. Surah Al Hijr](https://quranwbw.com/15)
+* [16. Surah An Naho](https://quranwbw.com/16)
 
 ***
 
 ### Chapter 15
-* [Surah Al-Israa](https://quranwbw.com/17)
+* [17. Surah Al-Israa](https://quranwbw.com/17)
 
 ***
 
@@ -106,8 +110,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 17
-* [21. Surah Al Anbiyaa]()
-* [22. Surah Al Hajj]()
+* [21. Surah Al Anbiyaa](https://quranwbw.com/21)
+* [22. Surah Al Hajj](https://quranwbw.com/22)
 
 ***
 
@@ -125,13 +129,13 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
    * [26:[78-83] Who is Allah SWT](https://quranwbw.com/26#78-83)
    * [26:85 Jannat Kay Waris](https://quranwbw.com/26#85)
    * [26:87 Roz-e-mashre azur hai man pazeer](https://quranwbw.com/26#87)
-* [27. xxx]()
+* [27. Suran An Namal](https://quranwbw.com/27)
   
 ***
 
 ### Chapter 20 [28 - 29]
 * [28. Surah Al-Qasas](https://quranwbw.com/28) --
-* [29. xxx]()
+* [29. Surah Al Ankaboot](https://quranwbw.com/29)
   
 ***
 
@@ -142,8 +146,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32) -- Sept 21, 2024
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md) -- Sept 27, 2024
-* [34. Surah xxx]()
-* [35. Surah xxx]()
+* [34. Surah Saba](https://quranwbw.com/34)
+* [35. Surah Faatir](https://quranwbw.com/35)
   
 ***
 
