@@ -141,7 +141,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
    * Seas and Qalams 
 * [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32) -- Sept 21, 2024
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
-   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md) -- Sept 27, 2024
 * [34. Surah xxx]()
 * [35. Surah xxx]()
   
