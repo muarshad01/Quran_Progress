@@ -5,10 +5,24 @@
 * 4-6 The Divine unity is denied by the infidels as a marvellous error
 * 7-9 The confederates are challenged
 * 10-13 Former bands of confederate infidels destroyed
-* 14-15 Judgment impending over the scoffers of Makkah
-The story of David 16 He was a true believer 17-18 Mountains and birds joined him in praising God 19 He is endowed with a kingdom, wisdom etc. 20-23 He is rebuked by the two adversaries 23 ۩ 24 David repents his fault and is forgiven 25-27 He is exhorted to judge righteously 28 He receives the Book of Psalms
-The story of Solomon 29 He is a devout servant of God 30-31 Reviewing his horses, he forgets his prayers 32 He slays the horses to atone for his neglect 33-34 The trial of the counterfeit body 35-39 The wind and the devils are made subject to Solomon
-The story of Job 40 He cries to God in his calamity against Satan 41 God discovers fountains of water for his comfort 42 His family and property restored him double 43 He chastises his wife in fulfilment of his oath 43-44 He is patient and prayerful
+* 14-15 Judgment impending over the scoffers of Makkah The story of David
+* 16 He was a true believer
+* 17-18 Mountains and birds joined him in praising God
+* 19 He is endowed with a kingdom, wisdom etc.
+* 20-23 He is rebuked by the two adversaries
+* 23 ۩ 24 David repents his fault and is forgiven
+* 25-27 He is exhorted to judge righteously
+* 28 He receives the Book of Psalms The story of Solomon
+* 29 He is a devout servant of God
+* 30-31 Reviewing his horses, he forgets his prayers
+* 32 He slays the horses to atone for his neglect
+* 33-34 The trial of the counterfeit body
+* 35-39 The wind and the devils are made subject to Solomon The story of Job
+* 40 He cries to God in his calamity against Satan
+* 41 God discovers fountains of water for his comfort
+* 42 His family and property restored him double
+* 43 He chastises his wife in fulfilment of his oath
+* 43-44 He is patient and prayerful
 * 45-48 Other prophets commended as examples of piety
 * 49-55 Paradise, its glories described
 * 55-58 Hell, its miseries delineated
