@@ -5,6 +5,7 @@
 * 4-6 The Divine unity is denied by the infidels as a marvellous error
 * 7-9 The `confederates (a person one works with, especially in something secret or illegal; an accomplice)` are challenged
 * 10-13 Former bands of confederate infidels destroyed
+
 #### David
 * 14-15 Judgment impending over the scoffers of Makkah The story of David
 * 16 He was a true believer
@@ -17,7 +18,9 @@
 * 29 He is a devout servant of God
 * 30-31 Reviewing his horses, he forgets his prayers
 * 32 He slays the horses to atone for his neglect
-* 33-34 The trial of the counterfeit body
+* 33-34 The trial of the counterfeit (to make or sell an imitation of something authentic with the intent to deceive or defraud people) body
+
+#### Solomon
 * 35-39 The wind and the devils are made subject to Solomon The story of Job
 * 40 He cries to God in his calamity against Satan
 * 41 God discovers fountains of water for his comfort
@@ -30,6 +33,7 @@
 * 59-61 Idolaters and their leaders shall mutually reproach each other in hell
 * 62-64 They shall not find the Muslims there
 * 65-68 Muhammad enjoined to preach against idolatry
+
 #### Adam and Iblis
 * 69-74 The story of the creation of Adam and the fall of Iblis revealed to Muhammad
 * 75-77 Iblīs refuses to worship Adam through pride
@@ -38,4 +42,5 @@
 * 85 God declares his purpose to fill hell with Satan and his followers
 * 86 Muhammad asks no reward for his services
 * 87-88 The Quran an admonition yet to be vindicated before unbelievers 
+
 ***
