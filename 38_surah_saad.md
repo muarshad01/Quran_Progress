@@ -3,7 +3,7 @@
 * 2 They are unmoved by the fate of former infidels
 * 3 They wonder at their warner, and call him a sorcerer and a liar
 * 4-6 The Divine unity is denied by the infidels as a marvellous error
-* 7-9 The confederates are challenged
+* 7-9 The `confederates (a person one works with, especially in something secret or illegal; an accomplice)` are challenged
 * 10-13 Former bands of confederate infidels destroyed
 #### David
 * 14-15 Judgment impending over the scoffers of Makkah The story of David
