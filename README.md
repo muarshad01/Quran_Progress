@@ -170,8 +170,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 25 [41 - 45] -- In PROGRESS
 * [41. Surah Ha-Meem Sajdah (Surah Fussilat)](https://quranwbw.com/41)
-   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md) -- Sept 21, 2024
-* [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) 
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md) -- Oct 02, 2024
+* [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) -- Oct 02, 2024
 * [43. Surah Az Zukhruf (Ornaments of Gold)](https://quranwbw.com/43) 
 * [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) 
 * [45. Surah Al Jaathya (Crouching)](https://quranwbw.com/45) 
