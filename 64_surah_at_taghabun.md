@@ -32,7 +32,7 @@
 
 ***
 
-## Dhalika Al-fawzu Al-'azimu
+## Dhalika Al-fawzu Al-'azimu (GREATEST SUCCESS)
 * __64/9__: [dhalika al-fawzu al-'azimu](https://quranwbw.com/64#9)
 
 ***
@@ -48,21 +48,21 @@
 ***
 
 ## Wives & Children are ENEMIES
-* https://quran.com/64/14
+* __64/14__: [Wives & Children ](https://quran.com/64/14-15)
 
 ***
 
 ## Wealth and Children are only a TEST
-*  https://quran.com/64/15
+*  __64/15__: [Wealth & Children](https://quran.com/64/15)
 
 ***
 
 ## SUCCESSFUL: Greediness of NAFS
-* [And whoever is saved from the selfishness of their own souls, it is they who are ˹truly˺ successful.](https://quran.com/64/16)
+* __Surah 64/16__: [And whoever is saved from the selfishness of their own souls, it is they who are ˹truly˺ successful.](https://quran.com/64/16)
 
 ***
 
 ## Most Appreciative and Most Forebearing
-* [Most Ready to appreciate and to reward, Most Forbearing](https://quranwbw.com/64#17)
+* __Surah 64/17__: [Allah SWT is Most Ready to appreciate and to reward, Most Forbearing](https://quranwbw.com/64#17)
 
 ***
