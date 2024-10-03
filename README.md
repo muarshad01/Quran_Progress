@@ -173,7 +173,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md) -- Oct 02, 2024
 * [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) -- Oct 02, 2024
 * [43. Surah Az Zukhruf (Ornaments of Gold)](https://quranwbw.com/43) 
-* [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) 
+* [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) -- Oct 03, 2024
 * [45. Surah Al Jaathya (Crouching)](https://quranwbw.com/45) 
 
 ***
