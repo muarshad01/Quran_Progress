@@ -174,6 +174,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) -- Oct 02, 2024
 * [43. Surah Az Zukhruf (Ornaments of Gold)](https://quranwbw.com/43) 
 * [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) -- Oct 03, 2024
+   * Intiqam-e-Azam (Sieze with greatest seizere . We'll take retribution)
 * [45. Surah Al Jaathya (Crouching)](https://quranwbw.com/45) 
 
 ***
