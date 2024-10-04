@@ -175,12 +175,12 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [43. Surah Az Zukhruf (Ornaments of Gold)](https://quranwbw.com/43) 
 * [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) -- Oct 03, 2024
    * Intiqam-e-Azam (Sieze with greatest seizere . We'll take retribution)
-* [45. Surah Al Jaathya (Crouching)](https://quranwbw.com/45) 
+* [45. Surah Al Jaathya (Crouching - Sitting Position)](https://quranwbw.com/45)  -- Oct 04, 2024
 
 ***
 
 ### Chapter 26 [44 - 50] -- August 10, 2024
-* [46. Surah Al-Ahqaf (The Dunes)](https://quranwbw.com/46) -- August 2024
+* [46. Surah Al-Ahqaf (The Sand Dunes)](https://quranwbw.com/46) -- August 2024
 * [47. Surah Muhammad](https://quranwbw.com/47) -- August 2024
 * [48. Surah Fath](https://quranwbw.com/48) -- August 2024
 * [49. Surah Al-Hujuraat (The Inner Apartment)](https://quranwbw.com/49) -- August 2024
