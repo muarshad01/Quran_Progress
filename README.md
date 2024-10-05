@@ -159,11 +159,11 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 23 [38 - 39]
 * [38. Surah Saad](https://quranwbw.com/38) --
-* [39. Surah Az-Zumar (The Groups)](https://quranwbw.com/39)
   
 ***
 
 ### Chapter 24 [40 - 41]
+* [39. Surah Az-Zumar (The Groups)](https://quranwbw.com/39)
 * [40. Surah Ghaafir (Al-Muʼmin; The Forgiver)](https://quranwbw.com/40) -- January 28, 2024
   
 ***
@@ -172,9 +172,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [41. Surah Ha-Meem Sajdah (Surah Fussilat)](https://quranwbw.com/41)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md) -- October 2024
 * [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) -- October 2024
-* [43. Surah Az Zukhruf (Ornaments of Gold)](https://quranwbw.com/43) -- October 2024
-* [44. Surah Ad Dukhaan (The Smoke)](https://quranwbw.com/44) -- October 2024
-   * Intiqam-e-Azam (Sieze with greatest seizere . We'll take retribution)
+* [43. Surah Az-Zukhruf (Ornaments of Gold)](https://quranwbw.com/43) -- October 2024
+* [44. Surah Ad-Dukhaan (The Smoke)](https://quranwbw.com/44) -- October 2024
+   * `Intiqam-e-Azam (Retribution)` (Sieze with greatest seizere . We'll take retribution)
 * [45. Surah Al Jaathya (Crouching - Sitting Position)](https://quranwbw.com/45)  -- October 2024
 
 ***
