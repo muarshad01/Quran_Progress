@@ -168,7 +168,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
   
 ***
 
-### Chapter 25 [41 - 45] October 05, 2024
+### Chapter 25 [41 - 45] -- October 05, 2024
 * [41. Surah Ha-Meem Sajdah (Surah Fussilat)](https://quranwbw.com/41)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md) -- October 2024
 * [42. Surah Ash Shura (Consultation)](https://quranwbw.com/) -- October 2024
