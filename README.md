@@ -146,20 +146,20 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32) -- Sept 21, 2024
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md) -- Sept 27, 2024
+  
+***
+
+### Chapter 22 [36 - 37] 
 * [34. Surah Saba](https://quranwbw.com/34)
    * [Sheikh Imran Hosein | Gaza, the Jinn, the Jasad, Dabbatul Ard](https://www.youtube.com/watch?v=QwSbNg_SzAU)
 * [35. Surah Faatir](https://quranwbw.com/35)
   
 ***
 
-### Chapter 22 [36 - 37] 
-* [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
-* [37. Surah As-Saaffaat ()](https://quranwbw.com/37)
-  
-***
-
 ### Chapter 23 [38 - 39]
-* [38. Surah Saad](https://quranwbw.com/38) --
+* [36. Surah Yaseen](https://quranwbw.com/) -- January 08,2024
+* [37. Surah As-Saaffaat (Those drawn up in Ranks)](https://quranwbw.com/37)
+* [38. Surah Saad (The Letter Saad)](https://quranwbw.com/38) --
   
 ***
 
