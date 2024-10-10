@@ -163,9 +163,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
   
 ***
 
-### Chapter 24 [40 - 41]
+### Chapter 24 [40 - 41] -- In Progress
 * [39. Surah Az-Zumar (The Groups)](https://quranwbw.com/39)
-* [40. Surah Ghaafir (Al-Muʼmin; The Forgiver)](https://quranwbw.com/40) -- January 28, 2024
+* [40. Surah Al-Ghaafir (Al-Muʼmin; The Forgiver)](https://quranwbw.com/40) -- January 28, 2024
   
 ***
 
