@@ -164,9 +164,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 24 [40 - 41] -- October 11, 2024
-* [39. Surah Az-Zumar (The Groups)](https://quranwbw.com/39) October 2024
+* [39. Surah Az-Zumar (The Groups)](https://quranwbw.com/39)
    * Ayats 71, 73   
-* [40. Surah Al-Ghaafir (Al-Muʼmin; The Forgiver)](https://quranwbw.com/40) -- October 2024
+* [40. Surah Al-Ghaafir (Al-Muʼmin; The Forgiver)](https://quranwbw.com/40)
   
 ***
 
