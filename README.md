@@ -158,7 +158,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 23 [36 - 38] -- In Progress
 * [36. Surah Yaseen](https://quranwbw.com/)
-* [37. Surah As-Saaffaat (Those drawn up in Ranks)](https://quranwbw.com/37)
+* [37. Surah As-Saaffaat (Those drawn up in Ranks)](https://quranwbw.com/37) -- October 13, 2024
 * [38. Surah Saad (The Letter Saad)](https://quranwbw.com/38)
   
 ***
