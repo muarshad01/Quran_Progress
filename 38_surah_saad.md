@@ -19,7 +19,7 @@
 * 29 He is a devout servant of God 
 * 30-31 Reviewing his horses, he forgets his prayers 
 * 32 He slays the horses to atone for his neglect 
-* 33-34 The trial of the __counterfeit__ body 
+* 33-34 The trial of the __counterfeit (a fake or unauthorized copy of an item)__ body 
 * 35-39 The __wind-and-the-devils__ are made subject to Solomon 
 ### The story of Job 
 * 40 He cries to God in his calamity against Satan 
