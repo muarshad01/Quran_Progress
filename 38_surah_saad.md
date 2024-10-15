@@ -1,4 +1,4 @@
-## Surah Saaf
+# Surah Saaf
 * 1 Unbelievers are addicted to pride-and-contention
 * 2 They are unmoved by the fate-of-former-infidels
 * 3 They wonder at their warner, and call him a sorcerer-and-a-liar
@@ -29,13 +29,16 @@
 * 42 His family and property restored him double 
 * 43 He __chastises (rebuke or reprimand severely)__ his wife in fulfilment-of-his-oath 
 * 43-44 He is patient and prayerful
+
 ***
+
 * 45-48 Other prophets commended as examples of __piety (the quality of being religious or reverent)__
 * 49-55 Paradise, its glories described
 * 55-58 Hell, its miseries delineated
 * 59-61 Idolaters and their leaders shall mutually reproach each other in hell
 * 62-64 They shall not find the Muslims there
 * 65-68 Muhammad enjoined to preach against idolatry
+
 ### Adam and Iblis
 * 69-74 The story of the creation of Adam and the fall-of-Iblis revealed to Muhammad
 * 75-77 Iblīs refuses to worship Adam through __pride__
