@@ -21,11 +21,11 @@
 * 32 He slays the horses to atone for his neglect 
 * 33-34 The trial of the __counterfeit (a fake or unauthorized copy of an item)__ body 
 * 35-39 The __wind-and-the-devils__ are made subject to Solomon 
-### The story of Job 
-* 40 He cries to God in his calamity against Satan 
+### The story of Job (Ayub AS)
+* 40 He cries to God in his __calamity against Satan__
 * 41 God discovers fountains-of-water for his comfort 
 * 42 His family and property restored him double 
-* 43 He chastises his wife in fulfilment-of-his-oath 
+* 43 He __chastises (rebuke or reprimand severely)__ his wife in fulfilment-of-his-oath 
 * 43-44 He is patient and prayerful
 ***
 * 45-48 Other prophets commended as examples of __piety__
