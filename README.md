@@ -160,7 +160,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [36. Surah Yaseen](https://quranwbw.com/)
 * [37. Surah As-Saaffaat (Those drawn up in Ranks)](https://quranwbw.com/37) -- October 13, 2024
 * [38. Surah Saad (The Letter Saad)](https://quranwbw.com/38)
-  
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/38_surah_saad.md)
 ***
 
 ### Chapter 24 [40 - 41] -- October 11, 2024
