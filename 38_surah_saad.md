@@ -8,9 +8,10 @@
 * 14-15 Judgment impending over the scoffers of Makkah 
 
 ### The story of David 
-* 16 He was a true believer 
+* [17-20](https://quranwbw.com/38#17-20)
+* 17 Our slave Dawud (David), endued with power. Verily, he was ever oft-returning in all matters and in repentance (toward Allah)
 * 17-18 Mountains-and-birds joined him in praising God 
-* 19 He is endowed with a __kingdom, wisdom, etc__
+* 20 We made his kingdom strong and __gave him Al-Hikmah (Prophethood, etc.) and sound judgement in speech and decision__
 * 20-23 He is rebuked by the two adversaries 
 * 23 ۩ 24 David repents his fault and is forgiven 
 * 25-27 He is exhorted to judge righteously 
