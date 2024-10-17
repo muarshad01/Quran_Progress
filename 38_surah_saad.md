@@ -7,6 +7,8 @@
 * 10-13 Former bands-of-confederate-infidels destroyed
 * 14-15 Judgment impending over the scoffers of Makkah 
 
+***
+
 ### The story of David 
 * [17-20](https://quranwbw.com/38#17-20)
 * 17 Our slave Dawud (David), endued with power. Verily, he was ever oft-returning in all matters and in repentance (toward Allah)
@@ -23,6 +25,15 @@
 * 32 He slays the horses to atone for his neglect 
 * 33-34 The trial of the __counterfeit (a fake or unauthorized copy of an item)__ body 
 * 35-39 The __wind-and-the-devils__ are made subject to Solomon 
+
+#### Summary
+* abdana (17) and nima al-abdu (29)
+* waataynahu al-hikmata wafasla al-khitabi (20)
+* hadha atauna fa-um'nun aw amsik bighayri hisabin (39)
+* lazulfa wahusna maabin (25, 40)
+* fa-is'taghfara rabbahu wakharra raki'an wa-anaba (24)
+
+***
 
 ### The story of Job (Ayub AS)
 * 40 He cries to God in his __calamity against Satan__
