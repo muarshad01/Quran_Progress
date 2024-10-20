@@ -153,6 +153,10 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [34. Surah Saba](https://quranwbw.com/34)
    * [Sheikh Imran Hosein | Gaza, the Jinn, the Jasad, Dabbatul Ard](https://www.youtube.com/watch?v=QwSbNg_SzAU)
 * [35. Surah Faatir](https://quranwbw.com/35)
+   * Originator
+   * Surah Malika
+   * 11-Aqli-Dalail aur Aik-Naqli-Dalil
+   * Khalif-e-Azam
   
 ***
 
