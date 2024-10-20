@@ -151,7 +151,6 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md) -- Sept 27, 2024
 * [34. Surah Saba](https://quranwbw.com/34)
-   * [Sheikh Imran Hosein | Gaza, the Jinn, the Jasad, Dabbatul Ard](https://www.youtube.com/watch?v=QwSbNg_SzAU)
 * [35. Surah Faatir](https://quranwbw.com/35)
    * Originator
    * Surah Malika
