@@ -140,7 +140,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 21 [30 - 35]
-* [30. Suran Ar-Room](https://quranwbw.com/30) --
+* [30. Surah Ar-Room](https://quranwbw.com/30) --
 * [31. Surah Luqman](https://quranwbw.com/31)
    * Seas and Qalams 
 * [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32) -- Sept 21, 2024
@@ -149,13 +149,11 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 22 [36 - 37] -- In Progress
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
-   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md) -- Sept 27, 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md)
 * [34. Surah Saba](https://quranwbw.com/34)
 * [35. Surah Faatir](https://quranwbw.com/35)
-   * Originator
-   * Surah Malika
    * 11-Aqli-Dalail aur Aik-Naqli-Dalil
-   * Khalif-e-Azam
+   * Khalifa-e-Azam
   
 ***
 
