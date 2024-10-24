@@ -138,8 +138,10 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [29. Surah Al Ankaboot](https://quranwbw.com/29)
   
 ***
-___
----
+
+# Chaper 21-30
+
+***
 
 ### Chapter 21 [30 - 32] -- In Progress
 * [30. Surah Ar-Room](https://quranwbw.com/30)
