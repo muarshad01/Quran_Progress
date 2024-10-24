@@ -129,25 +129,24 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
    * [26:[78-83] Who is Allah SWT](https://quranwbw.com/26#78-83)
    * [26:85 Jannat Kay Waris](https://quranwbw.com/26#85)
    * [26:87 Roz-e-mashre azur hai man pazeer](https://quranwbw.com/26#87)
-* [27. Suran An Namal](https://quranwbw.com/27)
   
 ***
 
-### Chapter 20 [28 - 29]
+### Chapter 20 [27 - 29]
+* [27. Suran An Namal](https://quranwbw.com/27)
 * [28. Surah Al-Qasas](https://quranwbw.com/28) --
 * [29. Surah Al Ankaboot](https://quranwbw.com/29)
   
 ***
 
-### Chapter 21 [30 - 35]
-* [30. Surah Ar-Room](https://quranwbw.com/30) --
+### Chapter 21 [30 - 32] -- In Progress
+* [30. Surah Ar-Room](https://quranwbw.com/30)
 * [31. Surah Luqman](https://quranwbw.com/31)
-   * Seas and Qalams 
-* [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32) -- Sept 21, 2024
+* [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32)
   
 ***
 
-### Chapter 22 [36 - 37] -- In Progress
+### Chapter 22 [33 - 35] -- In Progress
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md)
 * [34. Surah Saba](https://quranwbw.com/34)
