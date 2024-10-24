@@ -257,7 +257,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [098. Surah Al-Bayyina ()](https://quranwbw.com/98) -- June 2024
 * [099. Surah Al-Zilzal (The Shaking)]() -- June 2024
 * [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- June 2024
-* [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- June 2024
+* [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- October 24, 2024
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- June 2024
 * [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- June 2024
 * [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- June 2024
