@@ -139,7 +139,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
   
 ***
 
-# Chaper 21-30
+
+$${\color{red}# Chapter 21-30}$$
 
 ***
 
