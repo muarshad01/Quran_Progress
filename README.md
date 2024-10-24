@@ -138,14 +138,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [29. Surah Al Ankaboot](https://quranwbw.com/29)
   
 ***
-
-<style>
-r { color: Red }
-o { color: Orange }
-g { color: Green }
-</style>
-# <r>Chapter 21-30<r>
-
+# Chapter 21-30
 ***
 
 ### Chapter 21 [30 - 32] -- In Progress
