@@ -107,6 +107,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 16
 * [20. Surah Tahaa](https://quranwbw.com/20) -- Sept 19, 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/20_surah_taha.md)
 
 ***
 
