@@ -1,3 +1,7 @@
+## [Sureh Ahzab Ayat 33/72](https://www.youtube.com/results?search_query=surah+al+ahzab+%2B+sahil+adeem)
+
+***
+
 ### Don't Follow and Obey Kuffar
 * 1-3 Muhammad to obey God rather than the unbelievers
 
@@ -36,7 +40,7 @@
 * 49-51 Special privileges of Muhammad with respect to women
 * 52 Muhammad limited in respect to wives
 * 53-55 Conduct to be observed by believers at the Prophet’s house
-* 56 God and the angels bless Muhammad, who should be treated with respect by believers
+* __56 God and the angels bless Muhammad, who should be treated with respect by believers__
 * 57-58 The curse of those who offend Muhammad or the Muslims
 * 59 Command respecting the veiling of Muslim women
 
@@ -46,17 +50,7 @@
 * 64-68 Awful fate of infidels
 
 ###
-69-71 Believers exhorted to respectful treatment of their Prophet
-72-73 The responsibilities of the faithful [4]
-
-***
-
-## [Sureh Ahzab Ayat 33/72](https://www.youtube.com/results?search_query=surah+al+ahzab+%2B+sahil+adeem)
-
-#### Unjust (to himself) and Ignorant (of its results)
-* __Sureh Ahzab 33/72__:[Truly, We did offer AlAmanah (the trust or moral responsibility or honesty and all the duties which Allah has ordained) to the heavens and the earth, and the mountains, but they declined to bear it and were afraid of it (i.e. afraid of Allah's Torment). But man bore it. Verily, he was unjust (to himself) and ignorant (of its results)](https://quranwbw.com/33#72)
-
-### Allah SWT sends His Salat (Graces, Honours, Blessings, Mercy, etc.) on the Prophet (Muhammad SAW)
-* __Surah Al-Ahzab 33/56__: [Allah sends His Salat (Graces, Honours, Blessings, Mercy, etc.) on the Prophet (Muhammad SAW) and also His angels too (ask Allah to bless and forgive him). O you who believe! Send your Salat on (ask Allah to bless) him (Muhammad SAW), and (you should) greet (salute) him with the Islamic way of greeting (salutation i.e. AsSalamu 'Alaikum)](https://quranwbw.com/33#56)
+* 69-71 Believers exhorted to respectful treatment of their Prophet
+* __72-73 The responsibilities of the faithful__
 
 ***
