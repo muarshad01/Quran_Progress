@@ -154,7 +154,6 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md)
 * [34. Surah Saba](https://quranwbw.com/34)
 * [35. Surah Faatir](https://quranwbw.com/35)
-   * Khalifa-e-Azam
   
 ***
 
