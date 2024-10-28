@@ -1,7 +1,13 @@
-1-3 Muhammad to obey God rather than the unbelievers
-4-5 Adopted sons not to be regarded as real sons by Muslims
-6 Muhammad's wives the mothers of the faithful
-7-8 The covenant of the prophets with God
+### Don't Follow and Obey Kuffar
+* 1-3 Muhammad to obey God rather than the unbelievers
+
+### Rulings regarding Dhihar and Adoption
+* 4-5 Adopted sons not to be regarded as real sons by Muslims
+* 6 Muhammad's wives the mothers of the faithful
+
+### Objective of Contract with Prophets
+* 7-8 The covenant of the prophets with God
+
 ### Battle of Ahzaab
 * 9-11 God’s favour to the Muslims at the Ditch
 * 12-15 The disaffected people of Madína rebuked
