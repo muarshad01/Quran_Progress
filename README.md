@@ -149,7 +149,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
   
 ***
 
-### Chapter 22 [33 - 35] -- In Progress
+### Chapter 22 [33 - 35] -- October 27, 2024
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md)
 * [34. Surah Saba](https://quranwbw.com/34)
