@@ -49,7 +49,7 @@
 * 63 Men know not the hour of judgment
 * 64-68 Awful fate of infidels
 
-###
+### Motivation to adopt truthful speech and sincere obedience
 * 69-71 Believers exhorted to respectful treatment of their Prophet
 * __72-73 The responsibilities of the faithful__
 
