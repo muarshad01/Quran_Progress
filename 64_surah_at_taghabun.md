@@ -1,5 +1,5 @@
 # Yum-e-Azam (Yum-e-Taghuban)
-* [Maal Me Khair-o-Barkat](https://www.youtube.com/watch?v=S0k_1zUvd6M)
+* [Maal Me Khair-o-Barkat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
 
 ***
 
