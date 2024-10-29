@@ -212,7 +212,6 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [63. Al Munaafiqoon (The Hypocrites)](https://quranwbw.com/63) -- July 2024
 * [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- July 2024
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/64_surah_at_taghabun.md) -- July 2024
-   * Mall aur Khair-o-Barkat
 * [65. Surah At-Talaq (The Divorce)](https://quran.com/65) -- July 2024
 * [66. Surah At-Tahrim (The Prohibition)](https://quran.com/66) -- July 2024
 
