@@ -142,7 +142,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 ***
 
-### Chapter 21 [30 - 32] -- In Progress
+### Chapter 21 [30 - 32] -- October 31, 2024
 * [30. Surah Ar-Room](https://quranwbw.com/30)
 * [31. Surah Luqman](https://quranwbw.com/31)
 * [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32)
