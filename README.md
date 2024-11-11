@@ -32,36 +32,32 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ***
 
-### Chapter 04
+### Chapter [04, 05, 06]
 * __ Surah An-Nisa__: [4. ]()
 
 ***
 
-### Chapter 05
+### Chapter [06, 07]
 * __ Surah Al-Mai'dah__: [5. ]()
 
 ***
 
-### Chapter 06
+### Chapter [07, 08]
 * __Surah Al-An'am__: [6. ](https://quran.com/6)
 
 ***
 
-### Chapter 07
+### Chapter [08, 09]
 * __Surah Al-Ar'af__: [7. ](https://quran.com/7)
 
 ***
 
-### Chapter 08
+### Chapter [09, 10]
 * __Surah Al-Anfal__: [8. ](https://quran.com/8)
 
 ***
 
-### Chapter 09
-
-***
-
-### Chapter 10
+### Chapter [10, 11]
 * [09: Surah At-Tawbah](https://github.com/muarshad01/Quran_Progress/blob/main/09_surah_taubah.md) -- Sept 19, 2024
 
 ***
