@@ -261,6 +261,14 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [106. Surah Quresh (Quraish)](https://quran.com/106) -- June 2024
 * [107. Surah Al-Maun (The Act of Kindness)]() -- June 2024
 * [108. Surah Al-Kawthar ()](https://quran.com/108) -- June 2024
+```
+* Coding Theory - 10
+* Words - 10
+* Ayats 1,2,3 each have 10 letters
+* Alif - 10 times
+* All ayats end at "Raa" (Number 10)
+* Second word end at "Qaaf"
+```
 * [109. Surah Al-Kafirun (The Disbelievers)]() -- June 2024
 * [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- June 2024
 * [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- June 2024
