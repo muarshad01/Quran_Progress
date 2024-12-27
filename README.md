@@ -57,8 +57,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ***
 
-### Chapter [10, 11]
-* [09: Surah At-Tawbah](https://github.com/muarshad01/Quran_Progress/blob/main/09_surah_taubah.md) -- Sept 19, 2024
+### Chapter [10, 11] -- Sept 19, 2024
+* [09: Surah At-Tawbah](https://github.com/muarshad01/Quran_Progress/blob/main/09_surah_taubah.md) 
 
 ***
 ***
