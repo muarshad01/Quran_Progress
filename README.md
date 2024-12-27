@@ -21,14 +21,14 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 *** 
 
-### Chapter [01, 02, 03]
+### Chapter [01, 02, 03] -- Sept 2024
 * [2. Surah Al-Baqarah](https://quranwbw.com/2)
-   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/02_surah_al_baqarah.md) -- Sept 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/02_surah_al_baqarah.md) 
 
 ***
 
-### Chapter [03, 04]
-* [3. Surah Al-Imran](https://quranwbw.com/23) -- November, 2024
+### Chapter [03, 04] -- November, 2024
+* [3. Surah Al-Imran](https://quranwbw.com/23) 
 
 ***
 
