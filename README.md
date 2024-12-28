@@ -109,7 +109,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 17
 * [21. Surah Al Anbiyaa](https://quranwbw.com/21)
-* [22. Surah Al Hajj (The Pilgrimage)](https://quranwbw.com/22)
+* [22. Surah Al Hajj (The Pilgrimage)](https://quranwbw.com/22) -- December, 2024
 
 ***
 
