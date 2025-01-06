@@ -109,7 +109,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 17
 * [21. Surah Al Anbiyaa](https://quranwbw.com/21)-- December, 2024
-   * [Ayat e Kareema Ke Asraat](https://www.youtube.com/watch?v=k7C8bKFDa8Y)
+   * [Ayat-e-Kareema Ke Asraat](https://www.youtube.com/watch?v=k7C8bKFDa8Y)
    * 10 Moharram
 * [22. Surah Al Hajj (The Pilgrimage)](https://quranwbw.com/22) 
 
