@@ -192,6 +192,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 27 [51 - 58]
 * [51. Surah Dhaariyat (The Winnowing Winds)](https://quranwbw.com/51) -- July 2024
+   * [Why Jinn and Insaan were created](https://quran.com/51/56)
 * [52. Surah At-Tur](https://quran.com/52) -- July 2024
 * [53. Surah Najam](https://quranwbw.com/53) -- July 2024
 * [54. Surah Al-Qamar](https://quran.com/54) -- July 2024
@@ -219,6 +220,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 29 [67 - 77]
 * [67. Surah Al-Mulk (The Control)](https://quranwbw.com/67) -- July 2024
+   * [The Easiest Way to Memorize Surah Al-Mulk: Mind Maps & Tafsir](https://www.youtube.com/watch?v=_82aG-hAhVI)
 * [68. Surah Al Qalam (The Pen)](https://quranwbw.com/68) -- July 2024
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/68_surah_al_qalam.md)
 * [69. Surah Al-Haqqah (The Reality)](https://quran.com/69) -- July 2024
