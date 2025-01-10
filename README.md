@@ -135,6 +135,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 20 [27 - 29]
 * [27. Suran An Namal](https://quranwbw.com/27)
+   * [Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quran.com/27/19)
 * [28. Surah Al-Qasas](https://quranwbw.com/28) --
 * [29. Surah Al Ankaboot](https://quranwbw.com/29)
   
