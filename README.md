@@ -195,6 +195,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [53. Surah Najam](https://quranwbw.com/53) -- July 2024
 * [54. Surah Al-Qamar](https://quran.com/54) -- July 2024
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- July 2024
+   * [The Easiest Way to Memorize Surah Ar-Rahman: Mind Maps & Tafsir](https://www.youtube.com/watch?v=UcoZTbyWIeA)
 * [56. Surah Al-Waaqia](https://quranwbw.com/56) -- July 2024
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- July 2024
   
