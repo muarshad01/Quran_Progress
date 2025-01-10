@@ -229,6 +229,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [74. Surat al-Muddaththir (The Cloaked One)]()
 * [75. Surat al-Qiyamah (The Day of Judgement)]()
 * [76. Surah Al-Insaan (Man)](https://quranwbw.com/76) -- July 2024
+      * [Human Creation](https://www.youtube.com/shorts/GZT8bV6wnxI)
 * [77. Surat al Mursalat (The Winds)](https://quran.com/77) -- July 2024
 
 ***
