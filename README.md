@@ -90,6 +90,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 15
 * [17. Surah Al-Israa](https://quranwbw.com/17)
+   * [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
 
 ***
 
