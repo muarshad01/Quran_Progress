@@ -24,7 +24,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ### Chapter [01, 02, 03] -- September 2024
 * [2. Surah Al-Baqarah](https://quranwbw.com/2)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/02_surah_al_baqarah.md) 
-
+   * [Benefits of First Three Rukus](https://www.youtube.com/shorts/s3_yBHCKipY)
 ***
 
 ### Chapter [03, 04] -- November, 2024
