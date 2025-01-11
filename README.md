@@ -159,6 +159,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 23 [36 - 38] -- October 19, 2024
 * [36. Surah Yaseen](https://quranwbw.com/)
+   * [The Easiest Way to learn Surah Yassen: Mind Maps & Links (12-19)](https://www.youtube.com/watch?v=ZbiShYWPKeE)
+   * [The Easiest Way to Memorize Surah Yassen: Mind Maps & Tafsir](https://www.youtube.com/watch?v=-7lzCmJ2ovE&list=PLF13cAKvQBLA23ap4K2SNXQlG2zwVmGW_&index=2)
 * [37. Surah As-Saaffaat (Those drawn up in Ranks)](https://quranwbw.com/37)
 * [38. Surah Saad (The Letter Saad)](https://quranwbw.com/38)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/38_surah_saad.md)
