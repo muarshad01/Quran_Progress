@@ -168,7 +168,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 24 [40 - 41] -- October 11, 2024
 * [39. Surah Az-Zumar (The Groups)](https://quranwbw.com/39)
-   * Ayats 71, 73   
+   * Ayat 53: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded-the-limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.
+](https://quranwbw.com/39/53) 
+   * Ayats: 71, 73   
 * [40. Surah Al-Ghaafir (Al-Muʼmin; The Forgiver)](https://quranwbw.com/40)
   
 ***
