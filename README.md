@@ -257,7 +257,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [090. Surah Al-Balad](https://quranwbw.com/90) -- June 2024
 * [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91)-- June 2024
 * [092. Surah Al Lail ()](https://quranwbw.com/92) -- June 2024
-* [093. Surah Ad-Duha (The Early Hours)](https://quranwbw.com/93) -- June 2024 (Amna: Jan 15, 2024)
+* [093. Surah Ad-Duha (The Early Hours)](https://quranwbw.com/93) -- June 2024 (Amna: Jan 16, 2024)
 * [094. Su Al-Inshirah (The opening up)](https://quranwbw.com/94) -- June 2024
 * [095. Surah At-Tin (The Fig)](https://quranwbw.com/95) -- June 2024
 * [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- June 2024
