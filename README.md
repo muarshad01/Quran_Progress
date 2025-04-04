@@ -72,11 +72,11 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ### Chapter 12
 * [11: Surah Hud](https://quranwbw.com/11)
 * [12: Surah Yusuf](https://quranwbw.com/12)
-* [13: Surah Ar'Rad](https://quranwbw.com/13)
 
 ***
 
 ### Chapter 13
+* [13: Surah Ar'Rad](https://quranwbw.com/13)
 * [14. Surah Ibrahim](https://quranwbw.com/14)
    * [14:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7) -- Surah Rahman
 
