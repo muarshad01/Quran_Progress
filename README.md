@@ -79,7 +79,12 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ### Chapter 13
 * [13: Surah Ar'Rad](https://quranwbw.com/13)
 * [14. Surah Ibrahim](https://quranwbw.com/14)
-   * [14:07 - Shukar Guzari (If you are grateful, I will certainly give you more)](https://quranwbw.com/14#7) -- Surah Rahman
+
+#### Thankfulness
+* [14:07 - Shukar Guzari](https://quranwbw.com/14#7)
+* He was put in Fire
+* He was ordered to Slaughter his son
+* He was ordered to leave his family (wife & son) alone in Makkah
 
 ***
 
