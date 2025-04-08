@@ -4,16 +4,16 @@
 * 4 Unbelievers punished after death
 * 5-6 God's works are signs to all men
 * 7-11 Rewards and punishments of the faithful and the unbelieving
-* 12 People stop thanking God when there is no need.
-* 13 Men pray to God in affliction, but forget Him with the return of prosperity
+* 12 - __People stop thanking God when there is no need__.
+* 13 - __Men pray to God in affliction, but forget Him with the return of prosperity__
 * 14-15 The people of Makkah warned by the example of former generations
 * 16-18 The Quraysh desire a different Quran — Muhammad protests his inability to alter it
 * 19 Idolaters trust intercessors who can neither profit nor harm them
-* 20 All men originally professed one religion
+* 20 __All men originally professed one religion__
 * 21 The people demand of Muhammad a sign
 * 22 When men despise the judgments of God he threatens greater suffering
-* 23-24 Unbelievers remember God in distress by land and sea, but forget Him when delivered
-* 25 Life likened to water which sustains vegetable life
+* 23-24 __Unbelievers remember God in distress by land and sea, but forget Him when delivered__
+* 25 __Life likened to water which sustains vegetable life__
 * 26-28 Paradise for Muslims and hell for the infidels
 * 29-31 Idolaters will be deserted by their gods in the judgment-day
 * 32-37 Idolaters exhorted to worship him whom they recognise as their Creator, Preserver, and Governor
