@@ -28,7 +28,11 @@
 
 * 31–34: Commands to Believers & Signs of Allah
 
-* 35–41: Prophet Ibrahim’s Supplications
+***
+
+### 35–41: Prophet Ibrahim’s Supplications
+
+***
 
 * 42–44: Warning of the Day of Judgment
 
