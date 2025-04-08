@@ -4,7 +4,11 @@
 
 * 9–14: Past Nations and Their Rejection of Prophets
 
-* 15–17: Scene from Hell & Fate of the Arrogant
+***
+
+### 15–17: Scene from Hell & Fate of the Arrogant
+
+***
 
 * 18–20: Worthlessness of Disbelief
 
