@@ -80,11 +80,6 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [13: Surah Ar'Rad](https://quranwbw.com/13)
 * [14. Surah Ibrahim](https://quranwbw.com/14) -- April 2025
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/14_surah_ibrahim.md)
-#### Thankfulness
-* [14:07 - Shukar Guzari](https://quranwbw.com/14#7)
-* He was put in Fire
-* He was ordered to Slaughter his son
-* He was ordered to leave his family (wife & son) alone in Makkah
 
 ***
 
