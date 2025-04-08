@@ -10,7 +10,9 @@
 
 ***
 
-* 18–20: Worthlessness of Disbelief
+### 18–20: Worthlessness of Disbelief
+* Ashes fiercely blown away by wind on a stormy day
+* If He wills, He can eliminate you and produce a new creation.
 
 ***
 
