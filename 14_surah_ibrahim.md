@@ -8,13 +8,21 @@
 
 * 18–20: Worthlessness of Disbelief
 
-* 21–22: Shaytan’s Speech & Regret of Followers
+***
 
-* 23–27: Parables and Reward of Believers
+### 21–22: Shaytan’s Speech & Regret of Followers
 
-* 24–25: Parable of the good tree – symbol of pure faith.
+***
 
-* 26: Parable of the evil tree – symbol of falsehood
+### 23–27: Parables and Reward of Believers
+
+***
+
+### 24–25: Parable of the GOOD tree – symbol of pure faith.
+
+### 26: Parable of the EVIL tree – symbol of falsehood
+
+***
 
 * 28–30: Ingratitude and Idol Worship
 
