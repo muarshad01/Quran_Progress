@@ -1,4 +1,6 @@
-* 1–5: Purpose of Revelation & Role of Prophets
+### 1–5: Purpose of Revelation & Role of Prophets
+* Surely in this are signs for whoever is steadfast, grateful.
+***
 
 * 6–8: Reminder of Allah’s Favor & Warning of Ingratitude
 
