@@ -1,3 +1,11 @@
+#### Thankfulness
+* [14:07 - Shukar Guzari](https://quranwbw.com/14#7)
+* He was put in Fire
+* He was ordered to Slaughter his son
+* He was ordered to leave his family (wife & son) alone in Makkah
+
+***
+
 ### 1–5: Purpose of Revelation & Role of Prophets
 * Surely in this are signs for whoever is steadfast, grateful.
 
