@@ -65,7 +65,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 11
-* [10: Surah Yunus](https://quranwbw.com/10)
+* [10: Surah Yunus (Jonas)](https://quranwbw.com/10)
    * [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
 
 ***
