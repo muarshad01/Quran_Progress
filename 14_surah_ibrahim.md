@@ -44,8 +44,9 @@
 
 ***
 
-* 45–48: Proof from Past Nations & Promise of Judgment
-
+### 45–48: Proof from Past Nations & Promise of Judgment
+* the earth will be changed into a different earth and the heavens as well
+  
 ***
 
 ### 49–52: Final Scene & Conclusion
