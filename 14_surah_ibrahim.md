@@ -40,7 +40,9 @@
 
 ***
 
-* 42–44: Warning of the Day of Judgment
+### 42–44: Warning of the Day of Judgment
+
+***
 
 * 45–48: Proof from Past Nations & Promise of Judgment
 
