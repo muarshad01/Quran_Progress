@@ -23,16 +23,17 @@
 * 42-47 The unbelieving Quraish declared to be reprobate
 * 48 An apostle is sent to every nation
 * 49 Unbelievers mock at the threatenings of their prophet
-* 50 Every nation has its fixed period of existence
+* 50 __Every nation has its fixed period of existence__
 * 51-55 Infidels will believe when their punishment comes upon them
 * 56-57 God is the Author of life and death
 * 58-59 The Quran an admonition and direction to the unbelievers
 * 60-61 Lawful food not to be prohibited
 * 62 Muhammad ever under Divine guidance
-* 63-65 The blessedness of those who believe and fear God
+* 63-65 __The blessedness of those who believe and fear God__
 * 66-68 Unbelievers cannot harm the Prophet
 * 69-71 Those rebuked who say that God hath begotten children
-* 72-75 Muhammad likened to Noah and other prophets
+* 72-75 __Muhammad likened to Noah and other prophets__
+***
 * 76 Moses and Aaron sent to Pharaoh and his princes
 * 77-82 They are rejected as sorcerers and perverters of the national religion
 * 83 A few of the people only believe on them
@@ -43,6 +44,7 @@
 * 90-92 He repents and is raised out of the sea for a sign to the people
 * 93 The Israelites are provided with a habitation and blessing
 * 94-95 Jews and Christians appealed to in confirmation of the statements of the Quran
+**** 
 * 96-98 No kind of miracle will suffice to make the reprobate believe
 * 99-103 Infidels do not believe on Muhammad because God does not permit them to do so
 * 104-107 The people of Makkah exhorted to accept the true orthodox faith
