@@ -85,7 +85,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 14
 * [15. Surah Al Hijr](https://quranwbw.com/15)
-* [16. Surah An Noah](https://quranwbw.com/16)
+* [16. Surah An Nahl](https://quranwbw.com/16)
 
 ***
 
