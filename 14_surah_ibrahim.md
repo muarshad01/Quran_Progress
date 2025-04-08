@@ -38,4 +38,10 @@
 
 * 45–48: Proof from Past Nations & Promise of Judgment
 
-* 49–52: Final Scene & Conclusion
+***
+
+### 49–52: Final Scene & Conclusion
+* Bound together in chains
+* with garments of tar, and their faces covered with flames.
+
+***
