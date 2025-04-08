@@ -78,7 +78,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 13
 * [13: Surah Ar'Rad](https://quranwbw.com/13)
-* [14. Surah Ibrahim](https://quranwbw.com/14)
+* [14. Surah Ibrahim](https://quranwbw.com/14) -- April 2025
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/14_surah_ibrahim.md)
 #### Thankfulness
 * [14:07 - Shukar Guzari](https://quranwbw.com/14#7)
@@ -90,7 +90,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 14
 * [15. Surah Al Hijr](https://quranwbw.com/15)
-* [16. Surah An Naho](https://quranwbw.com/16)
+* [16. Surah An Noah](https://quranwbw.com/16)
 
 ***
 
