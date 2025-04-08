@@ -39,10 +39,16 @@
 
 ***
 
-* 28–30: Ingratitude and Idol Worship
+### 28–30: Ingratitude and Idol Worship
 
-* 31–34: Commands to Believers & Signs of Allah
+***
 
+### 31–34: Commands to Believers & Signs of Allah
+* [wasakharalakumu](https://quran.com/14/32) 
+  * The Ships...by His command.
+  * The rivers.
+  * Sun & Moom
+  * Night & Day
 ***
 
 ### 35–41: Prophet Ibrahim’s Supplications
