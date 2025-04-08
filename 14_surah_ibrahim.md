@@ -3,7 +3,7 @@
 
 ***
 
-###6–8: Reminder of Allah’s Favor & Warning of Ingratitude
+### 6–8: Reminder of Allah’s Favor & Warning of Ingratitude
 
 * If you are grateful, I will certainly give you more.
 
