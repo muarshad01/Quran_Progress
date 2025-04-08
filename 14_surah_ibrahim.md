@@ -9,7 +9,8 @@
 
 ***
 
-* 9–14: Past Nations and Their Rejection of Prophets
+### 9–14: Past Nations and Their Rejection of Prophets
+* Only Allah knows how many they were
 
 ***
 
