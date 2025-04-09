@@ -3,6 +3,9 @@
 * He was put in Fire
 * He was ordered to Slaughter his son
 * He was ordered to leave his family (wife & son) alone in Makkah
+* Wife `Sarah`
+* Father `Azar`
+* Interaction with Angels?
 
 ***
 
