@@ -6,7 +6,8 @@
 * Wife `Sarah`
 * Father `Azar`
 * Interaction with Angels?
-
+* The Ziggurat of Ur. A Ziggurat is a temple building in ancient `Mesopotamian civilisations`, including Babylonia. This Ziggurat was built in the city of Ur, a Sumerian city absorbed under the Babylonian kingdom, which some scholars believed to be the birthplace of Prophet Ibrahim a.s.
+* Sumerian Tablets
 ***
 
 ### 1–5: Purpose of Revelation & Role of Prophets
