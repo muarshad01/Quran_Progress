@@ -203,7 +203,14 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [53. Surah Najam](https://quranwbw.com/53) -- July 2024
 * [54. Surah Al-Qamar](https://quran.com/54) -- July 2024
 * [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- July 2024
-   * [The Easiest Way to Memorize Surah Ar-Rahman: Mind Maps & Tafsir](https://www.youtube.com/watch?v=UcoZTbyWIeA)
+    * [The Easiest Way to Memorize Surah Ar-Rahman: Mind Maps & Tafsir](https://www.youtube.com/watch?v=UcoZTbyWIeA)
+    * 1-4 God taught the Quran to the human.
+    * 5-16 God the creator of all things.
+    * 17-25 God controlled the seas and all that is therein
+    * 26-30 God ever liveth, though all else decay and die
+    * 31-40 God will certainly judge both men and jinn
+    * 41-45 God will consign the wicked to hell-fire
+    * 46-78 The joys of Paradise described [17]
 * [56. Surah Al-Waaqia](https://quranwbw.com/56) -- July 2024
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- July 2024
   
