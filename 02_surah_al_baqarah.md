@@ -2,7 +2,7 @@
 
 ***
 
-### Alif-Laam-Meem
+## Alif-Laam-Meem
 * __2/2__: [Alif-Laam-Meem](https://quranwbw.com/2#1) - 1 + 30 + 40 = 71
 * __2/2__: [Dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 * __2/3__: [Alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
@@ -12,14 +12,14 @@
 ***
 ***
 
-### kafirs
+## kafirs
 * __2/6__: [Inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
 * __2/7__: [khatama al-lahu ala Qulubihim wa'ala Sam'ihim wa'ala Absarihim ghishawatun walahum adhabun azimun](https://quranwbw.com/2#7)
 
 ***
 ***
 
-# Hypocrites
+## Hypocrites
 * __2/8__: [Wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'minina](https://quranwbw.com/2#8)
 * __2/9__: [yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
 * __2/10__: [fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
