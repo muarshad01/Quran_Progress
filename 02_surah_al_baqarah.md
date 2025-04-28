@@ -13,29 +13,18 @@
 ***
 
 ### kafirs
-* __2/6__: [
-Inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
-
-***
-
-### khatama (Sealed)- Heart, Listening, Eyes
+* __2/6__: [Inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
 * __2/7__: [khatama al-lahu ala Qulubihim wa'ala Sam'ihim wa'ala Absarihim ghishawatun walahum adhabun azimun](https://quranwbw.com/2#7)
 
 ***
 ***
 
 # Hypocrites
+* __2/8__: [Wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'minina](https://quranwbw.com/2#8)
+* __2/9__: [yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
+* __2/10__: [fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
 
-### Amanna (We Believe)
-* __2/8__: [
-Wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'minina](https://quranwbw.com/2#8)
-
-### Yukhadi-una (Deceive)
-* __2/9__:[yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
-
-### Fi Qulub-e-him Maradun (Heart Disease)
-* __2/10__:[fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
-
+***
 ***
 
 ### La Tuf'Sidu Fi al-Ardi (Don't Corruput)
