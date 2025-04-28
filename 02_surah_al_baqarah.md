@@ -96,6 +96,14 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/44__: [Do you preach righteousness and fail to practice it yourselves...](https://quran.com/2/44)
 * __2/45__: [And seek help through patience and prayer...](https://quran.com/2/45)
 * __2/46__: [those who are certain that they will meet their Lord](https://quran.com/2/46)
+* __2/46__: [O children of Israel!...](https://quran.com/2/46)
+***
+* __2/47__: [O Children of Israel! Remember ˹all˺ the favours...](https://quran.com/2/47)
+* __2/48__: [Guard yourselves against the Day...](https://quran.com/2/48)
+* __2/49-50__: [˹Remember˺ how We delivered you from the people of Pharaoh,](https://quran.com/2/49-50)
+* __2/51__: [](https://quran.com/2/51)
+* __2/52__: [](https://quran.com/2/52)
+* __2/53__: [](https://quran.com/2/53)
 * 50 - The paths were made in the Sea
 * 51 - Hazrat Musa AS would go for 40 days on Koh-e-toor
 * 52 -
@@ -104,7 +112,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * 55 -
 * Allah SWT showed Musa AS His Tajalli (Noor)
 * 56 - Koh-e-toor was lifted and used to make-shade on top-of-them
-* 57 - Allah SWT sent Mann-o-Salva
+* __2/57__: [Allah SWT sent Mann-o-Salva]()
 * 58
 * 59 - 12 streams-of-water erupted from a stone
 * __2/60__: [...Do not go about spreading corruption in the land...](https://quran.com/2/60)
