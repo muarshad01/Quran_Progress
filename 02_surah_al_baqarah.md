@@ -94,9 +94,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/42__: [Do not mix truth with falsehood or hide the truth knowingly.](https://quran.com/2/42)
 * __2/43__: [Establish prayer...](https://quran.com/2/43)
 * __2/44__: [Do you preach righteousness and fail to practice it yourselves...](https://quran.com/2/44)
-* __2/45__: [And seek help through patience and prayer...](https://quran.com/2/45)
-* __2/46__: [those who are certain that they will meet their Lord](https://quran.com/2/46)
-* __2/46__: [O children of Israel!...](https://quran.com/2/46)
+* __2/45-46__: [And seek help through patience and prayer. Indeed, it is a burden except for the humble. those who are certain that they will meet their Lord and to Him they will return.](https://quran.com/2/45)
 ***
 * __2/47__: [O Children of Israel! Remember ˹all˺ the favours...](https://quran.com/2/47)
 * __2/48__: [Guard yourselves against the Day...](https://quran.com/2/48)
