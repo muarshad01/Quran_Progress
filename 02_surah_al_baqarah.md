@@ -29,10 +29,6 @@
 
 ### La Tuf'Sidu Fi al-Ardi (Don't Corruput)
 * __2/11__:[wa-idha qila lahum la tuf'sidu fi al-ardi qalu innama nahnu mus'lihuna](https://quranwbw.com/2#11)
-
-***
-
-### Al-Muf'Siduna (The Corruptors)
 * __2/12__:[Ala innahum humu al-muf'siduna walakin la yash'uruna](https://quranwbw.com/2#12)
 
 ***
@@ -40,16 +36,11 @@
 ### Al-Dufahau (Fools)
 * __2/13__:[wa-idha qila lahum aminu kama amana al-nasu qalu anu'minu kama amana al-sufahau ala innahum humu al-sufahau walakin la ya'lamuna](https://quranwbw.com/2#13)
 
-***
-
 ### Mus'Tahziuna (Mockers)
 * __2/14__:[Wa-idha laqu alladhina amanu qalu amanna wa-idha khalaw ila shayatinihim qalu inna ma'akum innama nahnu mus'tahziuna](https://quranwbw.com/2#14)
 
-***
-
 ### Prolongs their Tugh'Yanihim (Transgression)
-* __2/15__:[
-al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwbw.com/2#15)
+* __2/15__:[al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwbw.com/2#15)
 
 ***
 
@@ -60,25 +51,21 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 
 ###  Example -  Fire Light
-* __2/17__:[
-mathaluhum kamathali alladhi is'tawqada naran falamma adaat ma hawlahu dhahaba al-lahu binurihim watarakahum fi zulumatin la yub'siruna](https://quranwbw.com/2#17)
-
-***
+* __2/17__: [mathaluhum kamathali alladhi is'tawqada naran falamma adaat ma hawlahu dhahaba al-lahu binurihim watarakahum fi zulumatin la yub'siruna](https://quranwbw.com/2#17)
 
 ### Deaf, Dumb, Blind
-* __2/18__:[They are deaf, dumb, and blind, so they return not (to the Right Path)](https://quranwbw.com/2#18)
+* __2/18__: [They are deaf, dumb, and blind, so they return not (to the Right Path)](https://quranwbw.com/2#18)
 
 ***
 
 ### Example - Rainstorm
-* __2/19__:[
-aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahum fi adhanihim mina al-sawa'iqi hadhara al-mawti wal-lahu muhitun bil-kafirina](https://quranwbw.com/2#19)
-
-***
+* __2/19__: [aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahum fi adhanihim mina al-sawa'iqi hadhara al-mawti wal-lahu muhitun bil-kafirina](https://quranwbw.com/2#19)
 
 ### Example - Lightning
 * __2/20__:[
 yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
+
+***
 
 ### Worship Allah SWT
 * __2/21__: [O humanity! Worship your Lord, Who created you and those before you, so that you may become mindful ˹of Him˺.](https://quran.com/2/21)
