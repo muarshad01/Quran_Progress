@@ -83,7 +83,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 ***
 
-# Hadram Adam AS
+# Hadrat Adam AS
 * __2/30-39__: [˹Remember˺ when your Lord said to the angels,...](https://quran.com/2/30-39)
 
 ***
