@@ -7,7 +7,7 @@
 
 ***
 
-### Yumi-Nuna (Have Iman)
+### Yumi-Nuna (Have Imaan)
 * __2/3__: [
 Alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
 
