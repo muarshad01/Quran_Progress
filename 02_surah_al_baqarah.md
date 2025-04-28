@@ -3,34 +3,16 @@
 ***
 
 ### Alif-Laam-Meem
-* 1 + 30 + 40 = 71
-
-***
-
-### La-Rayba (No doubt)
+* __2/2__: [Alif-Laam-Meem : 1 + 30 + 40 = 71]
 * __2/2__: [Dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
-
-***
-
-### Yumi-Nuna (Have Imaan)
-* __2/3__: [
-Alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
-
-***
-
-### Books (Quran, Gospel, Torah) and Akhirat
-* __2/4__: [
-wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati hum yuqinuna](https://quranwbw.com/2#4)
-
-***
-
-### Ala-Hudan and Al-Mufli-Huna
+* __2/3__: [Alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
+* __2/4__: [wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati hum yuqinuna](https://quranwbw.com/2#4)
 * __2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
 
 ***
 ***
 
-### kAFARU
+### kafirs
 * __2/6__: [
 Inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
 
