@@ -131,6 +131,7 @@ yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama
 * __2/28-29__: [How can you deny Allah?...](https://quran.com/2/28-29)
 
 ***
+***
 
 # Hadram Adam AS
 * __2/30-39__: [˹Remember˺ when your Lord said to the angels,...](https://quran.com/2/30-39)
