@@ -28,19 +28,19 @@
 ***
 
 ### La Tuf'Sidu Fi al-Ardi (Don't Corruput)
-* __2/11__:[wa-idha qila lahum la tuf'sidu fi al-ardi qalu innama nahnu mus'lihuna](https://quranwbw.com/2#11)
-* __2/12__:[Ala innahum humu al-muf'siduna walakin la yash'uruna](https://quranwbw.com/2#12)
+* __2/11__: [wa-idha qila lahum la tuf'sidu fi al-ardi qalu innama nahnu mus'lihuna](https://quranwbw.com/2#11)
+* __2/12__: [Ala innahum humu al-muf'siduna walakin la yash'uruna](https://quranwbw.com/2#12)
 
 ***
 
 ### Al-Sufahau (Fools)
-* __2/13__:[wa-idha qila lahum aminu kama amana al-nasu qalu anu'minu kama amana al-sufahau ala innahum humu al-sufahau walakin la ya'lamuna](https://quranwbw.com/2#13)
+* __2/13__: [wa-idha qila lahum aminu kama amana al-nasu qalu anu'minu kama amana al-sufahau ala innahum humu al-sufahau walakin la ya'lamuna](https://quranwbw.com/2#13)
 
 ### Mus'Tahziuna (Mockers)
-* __2/14__:[Wa-idha laqu alladhina amanu qalu amanna wa-idha khalaw ila shayatinihim qalu inna ma'akum innama nahnu mus'tahziuna](https://quranwbw.com/2#14)
+* __2/14__: [Wa-idha laqu alladhina amanu qalu amanna wa-idha khalaw ila shayatinihim qalu inna ma'akum innama nahnu mus'tahziuna](https://quranwbw.com/2#14)
 
 ### Tugh'Yanihim (Transgression)
-* __2/15__:[al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwbw.com/2#15)
+* __2/15__: [al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwbw.com/2#15)
 
 ***
 
