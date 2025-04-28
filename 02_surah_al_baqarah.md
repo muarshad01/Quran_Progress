@@ -64,7 +64,6 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ### Inaam (Reward) of Jannh
 * __2/25__: [](https://quran.com/2/25)
-
 ***
 
 ### Example - Mosquito
@@ -88,7 +87,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-## Bani Isra'il (The Children of Israel Jacob (Yaqub AS))
+# Bani Isra'il (The Children of Israel Jacob (Yaqub AS))
 * __2/40__: [O children of Israel!...](https://quran.com/2/40)
 * __2/41__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41)
 * __2/42__: [Do not mix truth with falsehood or hide the truth knowingly.](https://quran.com/2/42)
@@ -119,10 +118,22 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * 63 - Koh-e-Toor was lifted for them
 * 64
 * 65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on Sunday. They tricked! Allah SWT made them monkeys.
-* 67 - Cow Slaughter Order:
-* 68 - Neither old nor young but of middle age, Not virgin
-* 69 - Yellow, shining, looking good
-* 70 - Not a working cow, which ploughs
+
+***
+
+## Cow
+
+### Slaughter Cow Order
+* __2/67__: [Cow Slaughter Order](https://quran.com/2/67)
+### What Type of Cow?
+* __2/68__: [Neither old nor young but of middle age, Not virgin](https://quran.com/2/68)
+### What Color?
+* __2/69__: [Yellow, shining, looking good](https://quran.com/2/69)
+### Which Cow?
+* __2/70-71__: [Not a working cow, which ploughs](https://quran.com/2/71)
+
+***
+
 * 71 - Murder
 * 72 -
 * 73 -
