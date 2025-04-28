@@ -61,6 +61,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/20__: [yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
 
 ***
+***
 
 ### Worship Allah SWT
 * __2/21__: [O humanity! Worship your Lord, Who created you and those before you, so that you may become mindful ˹of Him˺.](https://quran.com/2/21)
