@@ -31,8 +31,6 @@
 * __2/11__: [wa-idha qila lahum la tuf'sidu fi al-ardi qalu innama nahnu mus'lihuna](https://quranwbw.com/2#11)
 * __2/12__: [Ala innahum humu al-muf'siduna walakin la yash'uruna](https://quranwbw.com/2#12)
 
-***
-
 ### Al-Sufahau (Fools)
 * __2/13__: [wa-idha qila lahum aminu kama amana al-nasu qalu anu'minu kama amana al-sufahau ala innahum humu al-sufahau walakin la ya'lamuna](https://quranwbw.com/2#13)
 
@@ -42,19 +40,13 @@
 ### Tugh'Yanihim (Transgression)
 * __2/15__: [al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwbw.com/2#15)
 
-***
-
 ### Ish'Tarawu (Bought the Astraying)
 * __2/16__:[
 ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama kanu muh'tadina](https://quranwbw.com/2#16)
 
-***
-
 ###  Example -  Fire Light; (Deaf, Dumb, Blind)
 * __2/17__: [mathaluhum kamathali alladhi is'tawqada naran falamma adaat ma hawlahu dhahaba al-lahu binurihim watarakahum fi zulumatin la yub'siruna](https://quranwbw.com/2#17)
 * __2/18__: [They are deaf, dumb, and blind, so they return not (to the Right Path)](https://quranwbw.com/2#18)
-
-***
 
 ### Example - Rainstorm; Lightning
 * __2/19__: [aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahum fi adhanihim mina al-sawa'iqi hadhara al-mawti wal-lahu muhitun bil-kafirina](https://quranwbw.com/2#19)
