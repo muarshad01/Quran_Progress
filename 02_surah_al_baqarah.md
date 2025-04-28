@@ -39,7 +39,7 @@
 ### Mus'Tahziuna (Mockers)
 * __2/14__:[Wa-idha laqu alladhina amanu qalu amanna wa-idha khalaw ila shayatinihim qalu inna ma'akum innama nahnu mus'tahziuna](https://quranwbw.com/2#14)
 
-### Prolongs their Tugh'Yanihim (Transgression)
+### Tugh'Yanihim (Transgression)
 * __2/15__:[al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwbw.com/2#15)
 
 ***
