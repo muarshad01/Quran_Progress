@@ -50,20 +50,15 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-###  Example -  Fire Light
+###  Example -  Fire Light; (Deaf, Dumb, Blind)
 * __2/17__: [mathaluhum kamathali alladhi is'tawqada naran falamma adaat ma hawlahu dhahaba al-lahu binurihim watarakahum fi zulumatin la yub'siruna](https://quranwbw.com/2#17)
-
-### Deaf, Dumb, Blind
 * __2/18__: [They are deaf, dumb, and blind, so they return not (to the Right Path)](https://quranwbw.com/2#18)
 
 ***
 
-### Example - Rainstorm
+### Example - Rainstorm; Lightning
 * __2/19__: [aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahum fi adhanihim mina al-sawa'iqi hadhara al-mawti wal-lahu muhitun bil-kafirina](https://quranwbw.com/2#19)
-
-### Example - Lightning
-* __2/20__:[
-yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
+* __2/20__: [yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
 
 ***
 
