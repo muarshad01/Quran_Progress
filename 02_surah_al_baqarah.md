@@ -88,16 +88,14 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-# Bani Isra'il 
-* The Children of Israel Jacob (Yaqub AS)
-* __2/40-75__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41-75)
+# Bani Isra'il (The Children of Israel Jacob (Yaqub AS))
 * __2/40__: [O children of Israel!...](https://quran.com/2/40)
-* __2/41__: [](https://quran.com/2/41)
+* __2/41__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41)
 * __2/42__: [Do not mix truth with falsehood or hide the truth knowingly.](https://quran.com/2/42)
-* __2/43__: [](https://quran.com/2/43)
+* __2/43__: [Establish prayer...](https://quran.com/2/43)
 * __2/44__: [Do you preach righteousness and fail to practice it yourselves...](https://quran.com/2/44)
-* __2/45__: [](https://quran.com/2/45)
-* __2/46__: [](https://quran.com/2/46)
+* __2/45__: [And seek help through patience and prayer...](https://quran.com/2/45)
+* __2/46__: [those who are certain that they will meet their Lord](https://quran.com/2/46)
 * 50 - The paths were made in the Sea
 * 51 - Hazrat Musa AS would go for 40 days on Koh-e-toor
 * 52 -
