@@ -2,12 +2,12 @@
 
 ***
 
-### La-Rayba
+### La-Rayba (No doubt)
 * __2/2__: [Dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 
 ***
 
-### Yumi-Nuna,
+### Yumi-Nuna (Have Iman)
 * __2/3__: [
 Alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
 
