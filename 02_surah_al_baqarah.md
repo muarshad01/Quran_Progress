@@ -2,6 +2,11 @@
 
 ***
 
+### Alif-Laam-Meem
+* 1 + 30 + 40 = 71
+
+***
+
 ### La-Rayba (No doubt)
 * __2/2__: [Dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 
