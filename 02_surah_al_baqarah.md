@@ -28,8 +28,9 @@ wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati
 * __2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
 
 ***
+***
 
-### Kafaru
+### kAFARU
 * __2/6__: [
 Inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
 
@@ -38,6 +39,7 @@ Inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minu
 ### khatama (Sealed)- Heart, Listening, Eyes
 * __2/7__: [khatama al-lahu ala Qulubihim wa'ala Sam'ihim wa'ala Absarihim ghishawatun walahum adhabun azimun](https://quranwbw.com/2#7)
 
+***
 ***
 
 # Hypocrites
