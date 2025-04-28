@@ -67,7 +67,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-### Examples - Mosquito
+### Example - Mosquito
 * __2/26__: [Surely Allah does not shy away from using the parable of a mosquito or what is even smaller...](https://quran.com/2/26)
 
 ***
