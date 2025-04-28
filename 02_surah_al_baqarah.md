@@ -24,9 +24,6 @@
 * __2/9__: [yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
 * __2/10__: [fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
 
-***
-***
-
 ### La Tuf'Sidu Fi al-Ardi (Don't Corruput)
 * __2/11__: [wa-idha qila lahum la tuf'sidu fi al-ardi qalu innama nahnu mus'lihuna](https://quranwbw.com/2#11)
 * __2/12__: [Ala innahum humu al-muf'siduna walakin la yash'uruna](https://quranwbw.com/2#12)
