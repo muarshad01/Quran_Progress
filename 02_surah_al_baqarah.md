@@ -67,18 +67,18 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-### Examples of Mosquito
+### Examples - Mosquito
 * __2/26__: [Surely Allah does not shy away from using the parable of a mosquito or what is even smaller...](https://quran.com/2/26)
 
 ***
 
-### FASIQ - Break Covenent; Break Ties; Spreaed Corruption
+### Losers - Break Covenent; Break Ties; Spreaed Corruption
 * __2/27__: [Those who violate Allah’s COVENENT after it has been affirmed, break whatever ˹TIES˺ Allah has ordered to be maintained, and SPRED CORRUPTION in the land. It is they who are the ˹true˺ losers.](https://quran.com/2/27)
 
 ***
 
 ### Creation, Death, 7-Heavens
-* __2/28-29__: [How can you deny Allah?...](https://quran.com/2/28-29)
+* __2/28-29__: [How can you DENY Allah?...](https://quran.com/2/28-29)
 
 ***
 ***
