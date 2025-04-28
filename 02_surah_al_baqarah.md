@@ -50,11 +50,15 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/20__: [yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
 
 ***
-***
 
 ### Worship Allah SWT
 * __2/21__: [O humanity! Worship your Lord, Who created you and those before you, so that you may become mindful ˹of Him˺.](https://quran.com/2/21)
 * __2/22__: [˹He is the One˺ Who has made the earth a place of settlement for you and the sky a canopy; and sends down rain from the sky, causing fruits to grow as a provision for you. So do not knowingly set up equals to Allah ˹in worship˺.](https://quran.com/2/22)
+
+***
+
+### Challenge of Allah SWT about Quran
+* __2/23-24__: [And if you are in doubt about what We have revealed to Our servant,1 then produce a sûrah like it and call your helpers other than Allah, if what you say is true. But if you are unable to do so—and you will never be able to do so—then fear the Fire fuelled with people and stones, which is prepared for the disbelievers.](https://quranwbw.com/2#23-24)
 
 ***
 
