@@ -3,7 +3,7 @@
 ***
 
 ### Alif-Laam-Meem
-* __2/2__: [Alif-Laam-Meem : 1 + 30 + 40 = 71](https://quranwbw.com/2#1)
+* __2/2__: [Alif-Laam-Meem](https://quranwbw.com/2#1) - 1 + 30 + 40 = 71
 * __2/2__: [Dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 * __2/3__: [Alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
 * __2/4__: [wa-alladhina yu'minuna bima unzila ilayka wama unzila min qablika wabil-akhirati hum yuqinuna](https://quranwbw.com/2#4)
