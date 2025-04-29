@@ -159,10 +159,16 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-* 71 - Murder
-* 72 -
-* 73 -
-* 74 - Hearts become like stone...some stones gush forth water...
+### Murder
+* __2/72__: [Murder...](https://quran.com/2/72)
+* __2/73__: [Strike the dead body with a piece of the cow](https://quran.com/2/73)
+
+***
+
+* __2/74-80__: [Hearts became hardened like a rock or even harder](https://quran.com/2/74-80)
+
+***
+
 * 83 - 84: Don't murder and don't expel people from city
 * 91 - Murdred the Anbiaa
 * 92 - Toor was lifted
