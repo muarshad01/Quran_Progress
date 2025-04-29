@@ -126,11 +126,12 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ### Slaughter Cow Order
 * __2/67__: [Cow Slaughter Order](https://quran.com/2/67)
 ### What Type of Cow?
-* __2/68__: [Neither old nor young but of middle age, Not virgin](https://quran.com/2/68)
+* __2/68 Ask-1__: [Neither old nor young but of middle age, Not virgin](https://quran.com/2/68)
 ### What Color?
-* __2/69__: [Yellow, shining, looking good](https://quran.com/2/69)
+* __2/69 Ask-2__: [Yellow, shining, looking good](https://quran.com/2/69)
 ### Which Cow?
-* __2/70-71__: [Not a working cow, which ploughs](https://quran.com/2/71)
+* __2/70 Ask-3__: [Call upon your Lord so that He may make clear to us which cow, for all cows look the same to us](https://quran.com/2/70)
+* __2/71__: [Not a working cow, which ploughs](https://quran.com/2/71)
 
 ***
 
