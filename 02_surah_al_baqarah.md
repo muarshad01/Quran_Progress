@@ -94,32 +94,54 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/43__: [Establish prayer...](https://quran.com/2/43)
 * __2/44__: [Do you preach righteousness and fail to practice it yourselves...](https://quran.com/2/44)
 * __2/45-46__: [And seek help through patience and prayer. Indeed, it is a burden except for the humble. those who are certain that they will meet their Lord and to Him they will return.](https://quran.com/2/45)
-
-***
-
 * __2/47__: [O Children of Israel! Remember ˹all˺ the favours...](https://quran.com/2/47)
 * __2/48__: [Guard yourselves against the Day...](https://quran.com/2/48)
 * __2/49-50__: [˹Remember˺ how We delivered you from the people of Pharaoh,](https://quran.com/2/49-50)
-* __2/51__: [](https://quran.com/2/51)
-* __2/52__: [](https://quran.com/2/52)
+***
+
+### 40 Nights
+* __2/51-52__: [40 Nights](https://quran.com/2/51-52)
+
+***
+
+### The Book (Turah)
 * __2/53__: [](https://quran.com/2/53)
-* 50 - The paths were made in the Sea
-* 51 - Hazrat Musa AS would go for 40 days on Koh-e-toor
-* 52 -
-* 53 - A person who was murdered in Hazrat Musa AS time, sacrifice a cow to know to murderer.
-* 54 - Bani Israel (Yaqub AS descendents) said, "We want to see Allah SWT!"
-* 55 -
-* Allah SWT showed Musa AS His Tajalli (Noor)
-* 56 - Koh-e-toor was lifted and used to make-shade on top-of-them
-* __2/57__: [Allah SWT sent Mann-o-Salva]()
-* 58
-* 59 - 12 streams-of-water erupted from a stone
-* __2/60__: [...Do not go about spreading corruption in the land...](https://quran.com/2/60)
-* 61 -
-* 62 -
-* 63 - Koh-e-Toor was lifted for them
-* 64
-* 65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on Sunday. They tricked! Allah SWT made them monkeys.
+
+***
+
+### Execute Calf-Worshippers
+* __2/54__: [execute ˹the calf-worshippers among˺ yourselves](https://quran.com/2/54)
+
+***
+
+### Thunderbolt
+* __2/56__: [See Allah with our own eyes](https://quran.com/2/55)
+
+***
+
+### Mann-o-Salva
+* __2/57-58__: [Allah SWT sent Mann-o-Salva](https://quran.com/2/57-58)
+
+*** 
+
+### Repentance (Hittatun)
+* __2/59-60__: [](https://quran.com/2/59-60)
+
+***
+
+### No more Same Meal
+* __2/61__: [](https://quran.com/2/61)
+  
+*** 
+
+## Lifting of Koh-e-Toor
+* __2/63__: [Koh-e-Toor was lifted for them](https://quran.com/2/63)
+
+***
+
+## Disgraced Apes
+
+* __2/64-66__: [](https://quran.com/2/64-65)
 
 ***
 
@@ -144,6 +166,9 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * 83 - 84: Don't murder and don't expel people from city
 * 91 - Murdred the Anbiaa
 * 92 - Toor was lifted
+
+* 65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on Sunday. They tricked! Allah SWT made them monkeys.
+
 
 ***
 
