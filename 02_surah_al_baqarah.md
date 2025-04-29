@@ -94,7 +94,9 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/43__: [Establish prayer...](https://quran.com/2/43)
 * __2/44__: [Do you preach righteousness and fail to practice it yourselves...](https://quran.com/2/44)
 * __2/45-46__: [And seek help through patience and prayer. Indeed, it is a burden except for the humble. those who are certain that they will meet their Lord and to Him they will return.](https://quran.com/2/45)
+
 ***
+
 * __2/47__: [O Children of Israel! Remember ˹all˺ the favours...](https://quran.com/2/47)
 * __2/48__: [Guard yourselves against the Day...](https://quran.com/2/48)
 * __2/49-50__: [˹Remember˺ how We delivered you from the people of Pharaoh,](https://quran.com/2/49-50)
