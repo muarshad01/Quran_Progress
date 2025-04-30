@@ -120,12 +120,17 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 
 ### Mann-o-Salva
-* __2/57-58__: [Allah SWT sent Mann-o-Salva](https://quran.com/2/57-58)
+* __2/57__: [Allah SWT sent Mann-o-Salva](https://quran.com/2/57)
 
 *** 
 
-### Repentance (Hittatun)
-* __2/59-60__: [](https://quran.com/2/59-60)
+### Enter this City and Eat Freely ...and Repentance (Hittatun)
+* __2/58-59__: [Allah SWT sent Mann-o-Salva](https://quran.com/2/58-59)
+
+*** 
+
+### 12 Streams of Water
+* __2/60__: [We said, “Strike the rock with your staff.” Then twelve springs gushed out, ˹and˺ each tribe knew its drinking place...](https://quran.com/2/60)
 
 ***
 
