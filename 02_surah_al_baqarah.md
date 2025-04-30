@@ -105,7 +105,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 
 ### The Book (Turah)
-* __2/53__: [](https://quran.com/2/53)
+* __2/53__: [And ˹remember˺ when We gave Moses the Scripture...](https://quran.com/2/53)
 
 ***
 
