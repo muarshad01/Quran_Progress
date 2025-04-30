@@ -109,8 +109,8 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-### Execute Calf-Worshippers
-* __2/54__: [execute ˹the calf-worshippers among˺ yourselves](https://quran.com/2/54)
+### Execute the Calf Worshippers
+* __2/54__: [...so turn in repentance to your Creator and execute ˹the calf-worshippers among˺ yourselves...(https://quran.com/2/54)
 
 ***
 
