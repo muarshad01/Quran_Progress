@@ -110,12 +110,12 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 
 ### Execute the Calf Worshippers
-* __2/54__: [...so turn in repentance to your Creator and execute ˹the calf-worshippers among˺ yourselves...(https://quran.com/2/54)
+* __2/54__: [...so turn in repentance to your Creator and execute ˹the calf-worshippers among˺ yourselves...](https://quran.com/2/54)
 
 ***
 
-### Thunderbolt
-* __2/56__: [See Allah with our own eyes](https://quran.com/2/55)
+### See Allah SWT (Thunderbolt)
+* __2/55-56__: [See Allah with our own eyes](https://quran.com/2/55-56)
 
 ***
 
