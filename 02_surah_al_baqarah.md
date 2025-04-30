@@ -100,7 +100,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 
 ### 40 Nights
-* __2/51-52__: [40 Nights](https://quran.com/2/51-52)
+* __2/51-52__: [And ˹remember˺ when We appointed forty nights for Moses, then you worshipped the calf in his absence, acting wrongfully...](https://quran.com/2/51-52)
 
 ***
 
