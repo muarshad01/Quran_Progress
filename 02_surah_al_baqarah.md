@@ -146,7 +146,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ## Disgraced Apes
 
-* __2/64-66__: [](https://quran.com/2/64-65)
+* __2/64-65__: [...We said to them, “Be disgraced apes!”](https://quran.com/2/64-65)
 
 ***
 
