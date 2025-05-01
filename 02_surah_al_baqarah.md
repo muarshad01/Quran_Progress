@@ -284,8 +284,12 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 * __2/170__: [Do not follow anyone blindly.](https://quran.com/2/170)
 
+***
+
 ## Fasting
-* __2/183__: [Fasting has been made Obligatory](https://quran.com/2/183)
+* __2/183-186__: [Fasting has been made Obligatory...](https://quran.com/2/183-186)
+
+***
 
 ## Respond to Prayers
 * __2/186__: [I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
