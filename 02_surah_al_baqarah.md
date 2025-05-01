@@ -174,17 +174,68 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-* 83 - 84: Don't murder and don't expel people from city
-* 91 - Murdred the Anbiaa
-* 92 - Toor was lifted
+### Covenant
+
+* __2/83__: [And ˹remember˺ when We took a covenant from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.”](https://quran.com/2/83)
+* __2/84-85__: [And ˹remember˺ when We took your covenant that you would neither shed each other’s blood nor expel each other from their homes, ...](https://quran.com/2/84-85)
+
+***
+
+* __2/88__: [They say, “Our hearts are unreceptive!”...](https://quran.com/2/88)
+
+*** 
+
+* __2/91__: [Murdred the Anbiaa...](https://quran.com/2/91)
+
+***
+
+* __2/93__: [And when We took your covenant and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and obey,” they answered, “We hear and disobey.”...](https://quran.com/2/93)
+
+***
+
+### Wish for Death Israelities
+
+* __2/94-95__: [Wish for Death...](https://quran.com/2/94-95)
+
+***
+
+
+### 1,000 years of life
+
+* __2/96__: [Most Greedy...](https://quran.com/2/96)
+
+***
 
 * 65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on Sunday. They tricked! Allah SWT made them monkeys.
 
 
 ***
 
+### Magic
+
+* __2/102__: [[They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon....](https://quran.com/2/102)
+
+***
+
+### Raina / Unzurna
+
+* __2/104__: [O believers! Do not say, “Râ’ina.” [Herd us!] But say, “Unẓurna,” [Tend to us!] and listen ˹attentively˺.1 And the disbelievers will suffer a painful punishment.](https://quran.com/2/104)
+
+***
+
+### Guardian and Helper (Allah SWT)
+* __2/107__: [...You have no guardian or helper besides Allah?](https://quran.com/2/107)
+  
+***
+
+### Masjid
 * __2/114__: [Who does more wrong than those who prevent Allah’s Name from being mentioned in His places of worship and strive to destroy them? ](https://quran.com/2/114)
 
+***
+
+* __2/122__: [O Children of Israel! Remember My favours upon you and how I honoured you above the others.](https://quran.com/2/122)
+
+***
 ***
 
 # Hazrat Ibrahim AS
