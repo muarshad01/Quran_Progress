@@ -287,16 +287,52 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 
 ## Fasting
-* __2/183-186__: [Fasting has been made Obligatory...](https://quran.com/2/183-186)
+* __2/183-187__: [Fasting has been made Obligatory...](https://quran.com/2/183-187)
 
 ***
 
 ## Respond to Prayers
+
 * __2/186__: [I respond to one’s prayer when they call upon Me](https://quran.com/2/186)
 
-* __2/188__: [Don't engage in bribery](https://quran.com/2/188)
+***
 
-* __2/191__: [Keep the etiquette of war](https://quran.com/2/191)
+## Bribery
+* __2/188__: [Don't engage in bribery...](https://quran.com/2/188)
+
+***
+
+## Enter homes through front-doors
+
+* __2/189__: [So enter your homes through their ˹proper˺ doors...](https://quran.com/2/189)
+
+***
+
+* __2/190-195__: [Keep the etiquette of war...](https://quran.com/2/190-195)
+
+***
+
+## Hajj and Umrah
+
+* __2/196-200__: [Complete the pilgrimage and minor pilgrimage for Allah...](https://quran.com/2/196-200)
+
+***
+
+## Worst Adversaries
+* __2/204-206__: [There are some ˹hypocrites˺ who impress you...](https://quran.com/2/204-206)
+
+***
+
+## Worst Adversaries
+* __2/207-209__: [And Allah is Ever Gracious to ˹His˺ servants...](https://quran.com/2/207-209)
+
+***
+
+## ???
+* __2/210-215__: [...](https://quran.com/2/210-215)
+
+
+***
 
 ## Your Like / Dislike
 * __2/216__: [Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
