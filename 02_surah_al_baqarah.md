@@ -238,7 +238,10 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 ***
 
-# Hazrat Ibrahim AS
+# Hazrat Ibrahim AS (Muqaam-e-Tasleem)
+1. Was thrown in Fire
+2. Was ordered to slaughter his Son
+3. Was order to leave his Wife (Sara?) & Son (Ismail) in Makkah alone
 
 ### 124. Imam of Naas
 * __2/124__: [He (Allah) said (to him), "Verily, I am going to make you a leader (Prophet) of mankind."](https://quranwbw.com/2#124)
