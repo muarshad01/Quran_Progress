@@ -6,7 +6,7 @@
 # Shikwa
 
 #### Shikwa of Allah SWT - Qadar (Respect) of Allah SWT
-* __Surah Al Hajj 22/74__: [
+* __Surah Al-Hajj 22/74__: [
 ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw.com/22#74)
    * 7 + 4 = 11
 
