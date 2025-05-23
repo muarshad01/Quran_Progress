@@ -98,11 +98,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter 15 & 16
 * [18. Surah Al-kahf (The Cave)](https://quranwbw.com/18) -- Jan 10, 2025
-  * Surah Al-Kahf contains four prominent stories, each offering unique lessons and guidance for believers.
-  1. These are the story of the `Companions of the Cave`, a tale of faith and perseverance in the face of persecution.
-  2. The second story is about `the man with two gardens`, highlighting the dangers of wealth and the importance of gratitude.
-  3. The third story revolves around `Moses and Khidr`, emphasizing the pursuit of knowledge and divine wisdom.
-  4. Finally, the story of `Dhul-Qarnayn` focuses on power, justice, and the pursuit of goodness. 
+  * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/18_surah_al_kahf.md)
 
 ***
 * [19. Surah Maryam](https://quranwbw.com/19) -- January 10, 2024
