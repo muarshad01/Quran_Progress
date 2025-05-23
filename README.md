@@ -16,6 +16,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ## Head (Brain) of Quran
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1)
+    * [We have certainly granted you the seven often-repeated verses1 and the great Quran.
+](https://quran.com/15/87)
     * 7 Ayats, 29 Words, 139 Letters = 7 + 29 + 139 = 175 = 17 x 5
     * First Surah which was revealed completely at once.
     * [Surah Fatiha – One Cure for All Pains | !سورہ فاتحہ کا وظیفہ | Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=yZ7MWDeB6hY)
