@@ -1,3 +1,18 @@
+## Surah Al-Kahf contains four prominent stories, each offering unique lessons and guidance for believers.
+1. These are the story of the `Companions of the Cave`, a tale of faith and perseverance in the face of persecution.
+2. The second story is about `the man with two gardens`, highlighting the dangers of wealth and the importance of gratitude.
+3. The third story revolves around `Moses and Khidr`, emphasizing the pursuit of knowledge and divine wisdom.
+4. Finally, the story of `Dhul-Qarnayn` focuses on power, justice, and the pursuit of goodness. 
+
+***
+
+1. Trial of Faith – People of the Cave / Ashabu Al-Kahf (Verses 9 – 26) ...
+2. Trial of Wealth – The story of the man who owns two gardens (Verses 32 – 44) ...
+3. Trial of Knowledge – Moses and Al-Khidr (Verses 60–82) ...
+4. Trial of Power – Dhul-Qar-nayn with Yajuj Majuj (Verses 83–98)
+
+***
+
 ## Surah Al-Kahf (18)
 * [Ibtada e Intehaa Beginning of the End  | EP 01 | Alief TV](https://www.youtube.com/watch?v=NcS6gECLdBo) -- June 02, 2024
 * [Ibtada e Intehaa Beginning of the End  | EP 02 | Alief TV](https://www.youtube.com/watch?v=lhbsVPeld10) -- June 02, 2024
