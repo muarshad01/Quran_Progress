@@ -11,6 +11,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 #### Shikwa of Prophet Muhammad PBUH - with Allah about his Ummah
 * __Surah Al-Furqan 25/30__: [Waqala al-rasulu Ya-Rabbi inna Qawmi ittakhadhu hadha al-qur'ana Mahjuran](https://quran.com/25/30)
+* https://www.youtube.com/shorts/HNe12DgxRTY
 
 ***
 
