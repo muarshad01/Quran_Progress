@@ -41,7 +41,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter [06, 07]
-* __ Surah Al-Mai'dah__: [5. ]()
+* __ Surah Al-Mai'dah__: [...](https://quran.com/5)
+* https://www.youtube.com/shorts/tCn3Lh3LRgk
 
 ***
 
