@@ -42,7 +42,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter [06, 07]
 * __ Surah Al-Mai'dah__: [...](https://quran.com/5)
-* https://www.youtube.com/shorts/tCn3Lh3LRgk
+   * [Habeel & Kabeel](https://www.youtube.com/shorts/tCn3Lh3LRgk)
 
 ***
 
