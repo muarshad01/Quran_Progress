@@ -15,8 +15,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ***
 
-## 
-[Powerful Wazifa of Bismillah | بسم الله الرحمن الرحیم کا خاص وظیفہ](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
+## [Powerful Wazifa of Bismillah | بسم الله الرحمن الرحیم کا خاص وظیفہ](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
+
+***
 
 ## Head (Brain) of Quran
 * [01. Surah Al-Fatiha - The Opening](https://quranwbw.com/1)
