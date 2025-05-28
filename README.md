@@ -15,7 +15,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ***
 
-## [Powerful Wazifa of Bismillah | بسم الله الرحمن الرحیم کا خاص وظیفہ](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
+## Bismillah
+* [Powerful Wazifa of Bismillah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
+* [Spiritual Effects of Bismillah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
 
 ***
 
