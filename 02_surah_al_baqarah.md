@@ -311,6 +311,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
+### Fight with Kafirs
 * __2/190-195__: [Keep the etiquette of war...](https://quran.com/2/190-195)
 
 ***
