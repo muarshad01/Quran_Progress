@@ -317,7 +317,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ## Hajj and Umrah
 
-* __2/196-200__: [Complete the pilgrimage and minor pilgrimage for Allah...](https://quran.com/2/196-200)
+* __2/196-203__: [Complete the pilgrimage and minor pilgrimage for Allah...](https://quran.com/2/196-203)
 
 ***
 
