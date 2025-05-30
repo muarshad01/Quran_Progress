@@ -355,14 +355,21 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 * __2/223__: [Breat feed your children for two complete years](https://quran.com/2/223)
 
+***
+
 * __2/247__: [Choose rulers by their merit](https://quran.com/2/247)
-* 
-* __2/264__: [Do not waste your charity with reminders ˹of your generosity˺ or hurtful words...](https://quran.com/2/264)
 
 ***
 
-### Goliath and his warriors
-* __2/250-251__: [...](https://quran.com/2/250)
+### The Arc of Covenant [A sacred chest]
+* __2/248__: [...](https://quran.com/2/248)
+
+***
+
+### Talut [Saul] and Jalut [Goliath] 
+* __2/249-251__: [...](https://quran.com/2/249-251)
+
+***
 
 ### Ayut Al-Kursi
 * __2/255__: [...](https://quran.com/2/255)
