@@ -206,14 +206,17 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-* 65 - Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on Sunday. They tricked! Allah SWT made them monkeys.
+### Sabbath-breakers!
+* __Surah Al-Araf 7/163-167__: [Sabbath-breakers ...Be disgraced apes!](https://quran.com/7/163-167)
+  * Saturday, you'll not hunt Fish. They would put a catching net on Saturday then would catch Fish on Sunday.
+  * They tricked! Allah SWT made them monkeys.
 
 
 ***
 
 ### Magic
 
-* __2/102__: [[They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon....](https://quran.com/2/102)
+* __2/102__: [They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon....](https://quran.com/2/102)
 
 ***
 
@@ -260,7 +263,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ### 130. Millati ib'rahima
 
-### 132-134. `Fala Tamutunna illa Wa-antum Muslimuna`
+### 132-134. Fala Tamutunna illa Wa-antum Muslimuna
 * __2/132__: [do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2#132)
 
 ### 135 Millata Ib'rahima Hanifan
@@ -278,11 +281,11 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ### 143. Ummatan Wasatan
 
-### 144 - `Raoofoon Raheem`
+### 144 - Raoofoon Raheem
 
 ### 146. They recognise him (Muhammad SAW or the Ka'bah at Makkah) as they recongise their sons
 * __2/146__: [Those We have given the Scripture recognize this ˹Prophet˺ as they recognize their own children. Yet a group of them hides the truth knowingly.](https://quran.com/2/146)
-* 
+ 
 ### 149-150. Face towards Ka'bah
 
 * __2/170__: [Do not follow anyone blindly.](https://quran.com/2/170)
