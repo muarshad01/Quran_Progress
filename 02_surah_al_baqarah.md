@@ -359,24 +359,30 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * 
 * __2/264__: [Do not waste your charity with reminders ˹of your generosity˺ or hurtful words...](https://quran.com/2/264)
 
+***
+
 ## Khair-e-kaseer (A great privilege)
 * __2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. ](https://quran.com/2/269)
 
-## Ulul Albab (People of reason)
-* [But none will be mindful ˹of this˺ except people of reason.](https://quran.com/2/269)
+### He grants wisdom to whoever He wills
+* __2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. But none will be mindful ˹of this˺ except people of reason.](https://quran.com/2/269)
 
-* __2/273__:[Help those in need by finding them](https://quran.com/2/273)
+***
 
-* __2/275__:[Don't consume interest](https://quran.com/2/275)
+### Spending & Charity
+* __2/270 - 274__: []()
 
+***
+
+### Usuary & Charity & Zakat
+* __2/275-279__:[Don't consume interest](https://quran.com/2/275)
+
+***
+
+### Grant more time to repay if debtor is in hard time
 * __2/280__:[Grant more time to repay if debtor is in hard time](https://quran.com/2/280)
-
 * __2/282__:[Write down the debt](https://quran.com/2/282)
-
 * __2/283__:[Keep the trust](https://quran.com/2/283)
-
 * __2/283__:[Don't spy and backbite](https://quran.com/2/283)
-
-* __2/285__:[Believe in ALL prophetes](https://quran.com/2/285)
 
 ***
