@@ -361,7 +361,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-## Khair-e-kaseer (A great privilege)
+### Khair-e-kaseer (A great privilege)
 * __2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. ](https://quran.com/2/269)
 
 ### He grants wisdom to whoever He wills
