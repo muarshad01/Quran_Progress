@@ -361,6 +361,25 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
+### Goliath and his warriors
+* __2/250-251__: [...](https://quran.com/2/250)
+
+### Ayut Al-Kursi
+* __2/255__: [...](https://quran.com/2/255)
+
+### Taghut
+* __2/256-257__: [...](https://quran.com/2/256-257)
+
+### Ibrahim AS & Uzair AS Story
+* __2/258-260__: [...](https://quran.com/2/258-260)
+
+***
+
+### 700 Times & Sadaqah & Spend
+* __2/261-268__: [...](https://quran.com/2/261-268)
+
+***
+
 ### Khair-e-kaseer (A great privilege)
 * __2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. ](https://quran.com/2/269)
 
