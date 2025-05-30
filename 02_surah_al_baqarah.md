@@ -289,6 +289,11 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
+### [151-182]
+...
+
+***
+
 ## Fasting
 * __2/183-187__: [Fasting has been made Obligatory...](https://quran.com/2/183-187)
 
