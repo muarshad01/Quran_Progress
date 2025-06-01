@@ -2,7 +2,7 @@
 
 ***
 
-## Alif-Laam-Meem
+#### Alif-Laam-Meem
 * __2/1__: [Alif-Laam-Meem](https://quranwbw.com/2#1) - 1 + 30 + 40 = 71
 * __2/2__: [Dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
 * __2/3__: [Alladhina yu'minuna bil-ghaybi wayuqimuna al-salata wamimma razaqnahum yunfiquna](https://quranwbw.com/2#3)
@@ -10,76 +10,74 @@
 * __2/5__: [ulaika ala hudan min rabbihim wa-ulaika humu al-muf'lihuna](https://quranwbw.com/2#5)
 
 ***
-***
 
-## kafirs
+#### kafirs
 * __2/6__: [Inna alladhina kafaru sawaon alayhim a-andhartahum am lam tundhir'hum la yu'minuna](https://quranwbw.com/2#6)
 * __2/7__: [khatama al-lahu ala Qulubihim wa'ala Sam'ihim wa'ala Absarihim ghishawatun walahum adhabun azimun](https://quranwbw.com/2#7)
 
 ***
-***
 
-## Hypocrites
+#### Hypocrites
 * __2/8__: [Wamina al-nasi man yaqulu amanna bil-lahi wabil-yawmi al-akhiri wama hum bimu'minina](https://quranwbw.com/2#8)
 * __2/9__: [yukhadi'una al-laha wa-alladhina amanu wama Yakhda'una illa anfusahum wama yash'uruna](https://quranwbw.com/2#9)
 * __2/10__: [fi qulubihim maradun fazadahumu al-lahu maradan walahum adhabun alimun bima kanu yakdhibuna](https://quranwbw.com/2#10)
 
-### La Tuf'Sidu Fi al-Ardi (Don't Corruput)
+#### La Tuf'Sidu Fi al-Ardi (Don't Corruput)
 * __2/11__: [wa-idha qila lahum la tuf'sidu fi al-ardi qalu innama nahnu mus'lihuna](https://quranwbw.com/2#11)
 * __2/12__: [Ala innahum humu al-muf'siduna walakin la yash'uruna](https://quranwbw.com/2#12)
 
-### Al-Sufahau (Fools)
+#### Al-Sufahau (Fools)
 * __2/13__: [wa-idha qila lahum aminu kama amana al-nasu qalu anu'minu kama amana al-sufahau ala innahum humu al-sufahau walakin la ya'lamuna](https://quranwbw.com/2#13)
 
-### Mus'Tahziuna (Mockers)
+#### Mus'Tahziuna (Mockers)
 * __2/14__: [Wa-idha laqu alladhina amanu qalu amanna wa-idha khalaw ila shayatinihim qalu inna ma'akum innama nahnu mus'tahziuna](https://quranwbw.com/2#14)
 
-### Tugh'Yanihim (Transgression)
+#### Tugh'Yanihim (Transgression)
 * __2/15__: [al-lahu yastahzi-u bihim wayamudduhum fi tugh'yanihim ya'mahuna](https://quranwbw.com/2#15)
 
-### Ish'Tarawu (Bought the Astraying)
+#### Ish'Tarawu (Bought the Astraying)
 * __2/16__:[
 ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama kanu muh'tadina](https://quranwbw.com/2#16)
 
-###  Example -  Fire Light; (Deaf, Dumb, Blind)
+####  Example -  Fire Light; (Deaf, Dumb, Blind)
 * __2/17__: [mathaluhum kamathali alladhi is'tawqada naran falamma adaat ma hawlahu dhahaba al-lahu binurihim watarakahum fi zulumatin la yub'siruna](https://quranwbw.com/2#17)
 * __2/18__: [They are deaf, dumb, and blind, so they return not (to the Right Path)](https://quranwbw.com/2#18)
 
-### Example - Rainstorm; Lightning
+#### Example - Rainstorm; Lightning
 * __2/19__: [aw kasayyibin mina al-samai fihi zulumatun wara'dun wabarqun yaj'aluna asabi'ahum fi adhanihim mina al-sawa'iqi hadhara al-mawti wal-lahu muhitun bil-kafirina](https://quranwbw.com/2#19)
 * __2/20__: [yakadu al-barqu yakhtafu absarahum kullama adaa lahum mashaw fihi wa-idha azlama alayhim qamu walaw shaa al-lahu ladhahaba bisam'ihim wa-absarihim inna al-laha ala kulli shayin qadirun](https://quranwbw.com/2#20)
 
 ***
 
-### Worship Allah SWT
+#### Worship Allah SWT
 * __2/21__: [O humanity! Worship your Lord, Who created you and those before you, so that you may become mindful ˹of Him˺.](https://quran.com/2/21)
 * __2/22__: [˹He is the One˺ Who has made the earth a place of settlement for you and the sky a canopy; and sends down rain from the sky, causing fruits to grow as a provision for you. So do not knowingly set up equals to Allah ˹in worship˺.](https://quran.com/2/22)
 
 ***
 
-### Challenge of Allah SWT about Quran
+#### Challenge of Allah SWT about Quran
 * __2/23-24__: [And if you are in doubt about what We have revealed to Our servant,1 then produce a sûrah like it and call your helpers other than Allah, if what you say is true. But if you are unable to do so—and you will never be able to do so—then fear the Fire fuelled with people and stones, which is prepared for the disbelievers.](https://quranwbw.com/2#23-24)
 
 ***
 
-### Inaam (Reward) of Jannh
+#### Inaam (Reward) of Jannh
 * __2/25__: [](https://quran.com/2/25)
+
 ***
 
-### Example - Mosquito
+#### Example - Mosquito
 * __2/26__: [Surely Allah does not shy away from using the parable of a mosquito or what is even smaller...](https://quran.com/2/26)
 
 ***
 
-### Losers - Break Covenent; Break Ties; Spreaed Corruption
+#### Losers - Break Covenent; Break Ties; Spreaed Corruption
 * __2/27__: [Those who violate Allah’s COVENENT after it has been affirmed, break whatever ˹TIES˺ Allah has ordered to be maintained, and SPRED CORRUPTION in the land. It is they who are the ˹true˺ losers.](https://quran.com/2/27)
 
 ***
 
-### Creation, Death, 7-Heavens
+#### Creation, Death, 7-Heavens
 * __2/28-29__: [How can you DENY Allah?...](https://quran.com/2/28-29)
 
-***
 ***
 
 ## Hazrat Adam AS
@@ -87,7 +85,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-# Bani Isra'il (The Children of Israel Jacob (Yaqub AS))
+## Bani Isra'il (The Children of Israel Jacob (Yaqub AS))
 * __2/40__: [O children of Israel!...](https://quran.com/2/40)
 * __2/41__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41)
 * __2/42__: [Do not mix truth with falsehood or hide the truth knowingly.](https://quran.com/2/42)
