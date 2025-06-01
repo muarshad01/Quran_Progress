@@ -1,5 +1,6 @@
 * [ParsQuran](http://www.parsquran.com/eng/)
 * [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
+* [QURAAN MAJEED KO PARHNE AUR SAMAJHNE KA SAHIH TAREEQA?](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
 
 ***
 
