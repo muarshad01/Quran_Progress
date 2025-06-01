@@ -329,6 +329,11 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
+# [204 - 237] ...
+
+***
+
+
 #### Worst Adversaries
 * __2/204-206__: [There are some ˹hypocrites˺ who impress you...](https://quran.com/2/204-206)
 
