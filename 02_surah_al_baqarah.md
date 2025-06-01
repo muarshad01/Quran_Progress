@@ -357,7 +357,17 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-* __2/247__: [Choose rulers by their merit](https://quran.com/2/247)
+### Protect your Prayers
+* __2/238__: [Observe the ˹five obligatory˺ prayers—especially the middle prayer1—and stand in true devotion to Allah.](https://quran.com/2/238)
+
+***
+
+* __2/240-245__: [](https://quran.com/2/240-245)
+
+***
+***
+
+* __2/246-251__: [...](https://quran.com/2/246-251)
 
 ***
 
@@ -370,6 +380,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/249-251__: [...](https://quran.com/2/249-251)
 
 ***
+***
 
 ### Ayut Al-Kursi
 * __2/255__: [...](https://quran.com/2/255)
@@ -381,23 +392,22 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/258-260__: [...](https://quran.com/2/258-260)
 
 ***
+***
 
-### 700 Times & Sadaqah & Spend
+### Spending, Charity, & Sadaqah
 * __2/261-268__: [...](https://quran.com/2/261-268)
 
 ***
 
 ### Khair-e-kaseer (A great privilege)
-* __2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. ](https://quran.com/2/269)
-
-### He grants wisdom to whoever He wills
 * __2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. But none will be mindful ˹of this˺ except people of reason.](https://quran.com/2/269)
 
 ***
 
 ### Spending & Charity
-* __2/270 - 274__: []()
+* __2/270 - 274__: [](https://quran.com/2/270-274)
 
+***
 ***
 
 ### Usuary & Charity & Zakat
@@ -405,10 +415,9 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-### Grant more time to repay if debtor is in hard time
+### Loan 
 * __2/280__:[Grant more time to repay if debtor is in hard time](https://quran.com/2/280)
-* __2/282__:[Write down the debt](https://quran.com/2/282)
+* __2/282__:[Write down the debt...](https://quran.com/2/282)
 * __2/283__:[Keep the trust](https://quran.com/2/283)
-* __2/283__:[Don't spy and backbite](https://quran.com/2/283)
 
 ***
