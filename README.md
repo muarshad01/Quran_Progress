@@ -58,6 +58,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ### Chapter [07, 08]
 * __Surah Al-An'am__: [6. ](https://quran.com/6)
+* [Surah Al-An'am ki Fazeelat or Barkaat | Syed Sarfraz Shah Lecture 2014](https://www.youtube.com/watch?v=e9EfMiLP-Dw)
 
 ***
 
