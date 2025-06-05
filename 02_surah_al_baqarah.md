@@ -287,12 +287,27 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
  
 #### 149-150. Face towards Ka'bah
 
-* __2/170__: [Do not follow anyone blindly.](https://quran.com/2/170)
+* __2/149-150__: [Do not follow anyone blindly.](https://quran.com/2/149-150)
 
 ***
 
-#### [151-182]
-...
+#### Disown
+* __2/266-267__: [...](https://quran.com/2/266-267)
+
+***
+
+#### Turning your Face
+* __2/177__: [...](https://quran.com/2/177)
+
+***
+
+#### Legal Retribution
+* __2/178__: [...](https://quran.com/2/178)
+
+***
+
+#### The Will
+* __2/180-182__: [...](https://quran.com/2/180-182)
 
 ***
 
