@@ -236,6 +236,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
+#### Bani-Israel Remember my Blessing
 * __2/122__: [O Children of Israel! Remember My favours upon you and how I honoured you above the others.](https://quran.com/2/122)
 
 ***
