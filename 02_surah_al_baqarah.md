@@ -329,34 +329,63 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
-# [204 - 237] ...
-
-***
-
-
 #### Worst Adversaries
 * __2/204-206__: [There are some ˹hypocrites˺ who impress you...](https://quran.com/2/204-206)
 
 ***
 
-#### Worst Adversaries
-* __2/207-209__: [And Allah is Ever Gracious to ˹His˺ servants...](https://quran.com/2/207-209)
+#### Enter Islam Completely
+* __2/207-210__: [Enter Islam Completely...](https://quran.com/2/207-209)
 
 ***
 
-#### ???
-* __2/210-215__: [...](https://quran.com/2/210-215)
+#### You'll be tested like Before you...
+* __2/213__: [Do you think you will be admitted into Paradise without being tested like those before you?...](https://quran.com/2/213)
 
 ***
 
-#### Your Like / Dislike
-* __2/216__: [Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/216) 
+#### War is obligatory on You: You Like / Dislike
+* __2/215-216__: [Perhaps you dislike something which is good for you and like something which is bad for you. Allah knows and you do not know.](https://quran.com/2/215-216) 
 
+#### Wine and Gambling
+* __2/218__: [They ask you ˹O Prophet˺ about intoxicants and gambling.](https://quran.com/2/219)
+
+#### Orphanes
 * __2/220__: [Protect Orphans](https://quran.com/2/220)
 
-* __2/222__: [No sex during menstual period](https://quran.com/2/222)
+#### Marrying a Polytheist
+* __2/221__: [...](https://quran.com/2/221)
 
-* __2/223__: [Breat feed your children for two complete years](https://quran.com/2/223)
+#### Menstruation
+* __2/222__: [...](https://quran.com/2/222)
+
+#### Wives
+* __2/223__: [...](https://quran.com/2/223)
+
+***
+
+#### Divorced Women
+* __2/228__: [...](https://quran.com/2/228)
+
+***
+
+#### Halala
+* __2/230__: [...](https://quran.com/2/230)
+
+***
+
+#### Breast Feeding
+* __2/233__: [...](https://quran.com/2/233)
+
+***
+
+#### Halala
+* __2/234__: [...](https://quran.com/2/234)
+
+***
+
+#### Divorce and Marriage Gift
+* __2/235-237__: [...](https://quran.com/2/235-237)
 
 ***
 
