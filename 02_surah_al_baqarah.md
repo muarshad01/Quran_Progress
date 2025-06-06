@@ -149,6 +149,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 
 ## Cow
+* [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa](https://www.youtube.com/watch?v=N9aJQ9XzYlE)
 
 #### Slaughter Cow Order
 * __2/67__: [Cow Slaughter Order](https://quran.com/2/67)
