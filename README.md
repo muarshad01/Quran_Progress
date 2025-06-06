@@ -1,5 +1,6 @@
 * [QURAAN MAJEED KO PARHNE AUR SAMAJHNE KA SAHIH TAREEQA?](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
 * [Importance of Tilawat e Quran?](https://www.youtube.com/watch?v=Q-BoK1oCfns)
+* [Tilawat-e-Quran Kareem Ki Fazilat](https://www.youtube.com/watch?v=nf1byixjdzE)
 
 ***
 
