@@ -91,7 +91,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 12
-* [11: Surah Hud](https://quranwbw.com/11)
+* [11: Surah Hud](https://quranwbw.com/11) -- Jun 07, 2025
 * [12: Surah Yusuf](https://quranwbw.com/12)
 
 ***
