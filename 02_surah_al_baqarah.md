@@ -244,6 +244,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ***
 
 ## Hazrat Ibrahim AS (Muqaam-e-Tasleem)
+* https://www.youtube.com/shorts/_mZCW8VDuHI
 1. Was thrown in Fire
 2. Was ordered to slaughter his Son
 3. Was order to leave his Wife (Sara?) & Son (Ismail) in Makkah alone
