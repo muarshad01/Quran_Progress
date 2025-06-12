@@ -25,6 +25,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [Powerful Wazifa of Bismillah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
 * [Spiritual Effects of Bismillah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
 * [Open the Gates of Protection with Bismillah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
+* [5 Tips for Powerful Bismillah Wazifa Results](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 
 ***
 
