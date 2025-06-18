@@ -87,27 +87,27 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 11
-* [10: Surah Yunus (Jonas)](https://quranwbw.com/10)
+* [10: Surah Yunus (Jonas)](https://quranwbw.com/10) July 2025
    * [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
 
 ***
 
 ### Chapter 12
 * [11: Surah Hud](https://quranwbw.com/11) -- Jun 07, 2025
-* [12: Surah Yusuf](https://quranwbw.com/12)
+* [12: Surah Yusuf](https://quranwbw.com/12) -- July 2025
 
 ***
 
 ### Chapter 13
-* [13: Surah Ar'Rad](https://quranwbw.com/13)
+* [13: Surah Ar'Rad](https://quranwbw.com/13) -- July 2025
 * [14. Surah Ibrahim](https://quranwbw.com/14) -- April 2025
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/14_surah_ibrahim.md)
 
 ***
 
 ### Chapter 14
-* [15. Surah Al Hijr](https://quranwbw.com/15)
-* [16. Surah An Nahl](https://quranwbw.com/16)
+* [15. Surah Al Hijr](https://quranwbw.com/15) -- July, 2025
+* [16. Surah An Nahl](https://quranwbw.com/16) -- Jan 10, 2025
 
 ***
 
