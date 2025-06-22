@@ -19,6 +19,10 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * __Surah Al-Furqan 25/30__: [Waqala al-rasulu Ya-Rabbi inna Qawmi ittakhadhu hadha al-qur'ana Mahjuran](https://quran.com/25/30)
 * https://www.youtube.com/shorts/HNe12DgxRTY
 
+#### Wisdom (A Great Privilege)
+* __Surah Al-Baqarah 2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. But none will be mindful ˹of this˺ except people of reason.
+](https://quran.com/2/269)
+
 ***
 
 ## Bismillah
