@@ -23,6 +23,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * __Surah Al-Baqarah 2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. But none will be mindful ˹of this˺ except people of reason.
 ](https://quran.com/2/269)
 
+#### Open Hearts to Islam
+* __Surah Al-Anam 6/125__: [Whoever Allah wills to guide, He opens their heart to Islam...](https://quran.com/6/125)
+
 ***
 
 ## Bismillah
