@@ -1,3 +1,7 @@
+### [https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s](https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s)
+
+***
+
 ## Surah Al-Kahf contains four prominent stories, each offering unique lessons and guidance for believers.
 1. These are the story of the `Companions of the Cave`, a tale of faith and perseverance in the face of persecution.
 2. The second story is about `the man with two gardens`, highlighting the dangers of wealth and the importance of gratitude.
