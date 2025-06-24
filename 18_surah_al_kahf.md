@@ -1,4 +1,4 @@
-### [https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s](https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s)
+## [Story of Zulqarnain (Cyrus) in English by Dr. Israr Ahmed](https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s)
 
 ***
 
