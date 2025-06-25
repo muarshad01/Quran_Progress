@@ -12,9 +12,11 @@
 # Shikwa
 
 #### Shikwa of Allah SWT - Qadar (Respect) of Allah SWT
+
 * __Surah Al-Hajj 22/74__: [
 ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw.com/22#74)
-
+* __Surah Nuh 71/13__: [What is the matter with you that you are not in awe of the Majesty of Allah,](https://quranwbw.com/71/13)
+  
 #### Shikwa of Prophet Muhammad PBUH - with Allah about his Ummah
 * __Surah Al-Furqan 25/30__: [Waqala al-rasulu Ya-Rabbi inna Qawmi ittakhadhu hadha al-qur'ana Mahjuran](https://quran.com/25/30)
 * https://www.youtube.com/shorts/HNe12DgxRTY
