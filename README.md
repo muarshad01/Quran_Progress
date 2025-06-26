@@ -28,6 +28,9 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 #### Open Hearts to Islam
 * __Surah Al-Anam 6/125__: [Whoever Allah wills to guide, He opens their heart to Islam...](https://quran.com/6/125)
 
+#### You'll be asked about it
+* __Surah Az-Zukhruf 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quran.com/43/44)
+
 ***
 
 ## Bismillah
