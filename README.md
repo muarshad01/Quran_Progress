@@ -331,6 +331,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- June 2024
 * [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- June 2024
 * [112. Surah Al-Ikhlas (The Unity)](https://quran.com/112) -- June 2024
+    * [Secret Power of Surah Ikhlas| SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
 * [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- June 2024
 * [114. Surah An-Nas (The Men)](https://quran.com/114) -- June 2024
 
