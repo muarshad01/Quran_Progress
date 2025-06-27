@@ -11,6 +11,7 @@
 
 ### Whose words are better than someone?
 * __Surah Fussilat 41/33__: [And whose words are better than someone who calls ˹others˺ to Allah](https://quran.com/41/33-35)
+* __Surah Al-Asr__: [https://quran.com/103](https://quran.com/103)
 
 ***
 
