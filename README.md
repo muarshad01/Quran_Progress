@@ -72,7 +72,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter [04, 05, 06]
-* __ Surah An-Nisa__: [4. ]()
+* __ Surah An-Nisa__: [4. ](https://quranwbw.com/4/110)
 
 ***
 
@@ -82,13 +82,13 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ***
 
-### Chapter [07, 08]
+### Chapter [07, 08] -- June 2025
 * __Surah Al-An'am__: [6. ](https://quran.com/6)
 * [Surah Al-An'am ki Fazeelat or Barkaat | Syed Sarfraz Shah Lecture 2014](https://www.youtube.com/watch?v=e9EfMiLP-Dw)
 
 ***
 
-### Chapter [08, 09]
+### Chapter [08, 09] -- June 205
 * __Surah Al-Ar'af__: [7. ](https://quran.com/7)
 
 ***
@@ -111,8 +111,8 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 ***
 
 ### Chapter 12
-* [11: Surah Hud](https://quranwbw.com/11) -- Jun 07, 2025
-* [12: Surah Yusuf](https://quranwbw.com/12) -- July 2025
+* [11. Surah Hud](https://quranwbw.com/11) -- Jun 07, 2025
+* [12. Surah Yusuf](https://quranwbw.com/12) -- July 2025
 
 ***
 
