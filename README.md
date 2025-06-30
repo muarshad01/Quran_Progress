@@ -245,7 +245,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [52. Surah At-Tur](https://quran.com/52) -- July 2024
 * [53. Surah Najam](https://quranwbw.com/53) -- July 2024
 * [54. Surah Al-Qamar](https://quran.com/54) -- July 2024
-* [55. Surah Ar-Rahmaan](https://quranwbw.com/55) -- July 2024
+* [55. Surah Ar-Rahmaan (Aroos-ul-Quran)](https://quranwbw.com/55) -- July 2024
     * [The Easiest Way to Memorize Surah Ar-Rahman: Mind Maps & Tafsir](https://www.youtube.com/watch?v=UcoZTbyWIeA)
     * 1-4 God taught the Quran to the human.
     * 5-16 God the creator of all things.
