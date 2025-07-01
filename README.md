@@ -55,6 +55,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
     * First Surah which was revealed completely at once.
     * [Surah Fatiha – One Cure for All Pains](https://www.youtube.com/watch?v=yZ7MWDeB6hY)
     * [SURAH FATIHA SE APNI ZINDAGI BADLIEN?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
+    * [Surah Fatiha Ki Ahmiyat - by Qibla Syed SAS](https://www.youtube.com/watch?v=gSA_RKnzf1A)
 
 *** 
 
