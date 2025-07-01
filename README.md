@@ -56,6 +56,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
     * [Surah Fatiha – One Cure for All Pains](https://www.youtube.com/watch?v=yZ7MWDeB6hY)
     * [SURAH FATIHA SE APNI ZINDAGI BADLIEN?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
     * [Surah Fatiha Ki Ahmiyat - by Qibla Syed SAS](https://www.youtube.com/watch?v=gSA_RKnzf1A)
+    * [Surah Fatiha Main Insaan Ki Takhleeq Ka Maqsad Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
 
 *** 
 
