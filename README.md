@@ -327,6 +327,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- June 2024
 * [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- June 2024
 * [106. Surah Quresh (Quraish)](https://quran.com/106) -- June 2024
+    * [Taafseer Surah Quraish || Fehm ul Quran || Allama Talib Jauhari](https://www.youtube.com/watch?v=_744r_64WFI)
 * [107. Surah Al-Maun (The Act of Kindness)]() -- June 2024
 * [108. Surah Al-Kawthar ()](https://quran.com/108) -- June 2024
 ```
