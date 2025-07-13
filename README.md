@@ -45,6 +45,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [Open the Gates of Protection with Bismillah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
 * [5 Tips for Powerful Bismillah Wazifa Results](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 * [Bismillah Ke "Baay" Ki Wazahat - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
+* [Bismillah ki tafseer | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
 
 ***
 
