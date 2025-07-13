@@ -1,3 +1,13 @@
+
+62/5-8
+### FOUR pride things of "Jews" and Quran's Answer
+* A Prophet can't come outside Bani Israel (Answered in Ayat 4)
+* "Book" of complete law Turah is given to us (Answered in Ayat 5)
+* We're "Chosen People" (Answered in Ayat 6-7)
+    * __Surah__: [](https://quranwbw.com/2/111)
+    * __Surah__: [](https://quranwbw.com/5/18)
+* Day of Sabt (Seen, Bay, Tay; Sabata in Tibrani): Ayat 9-11
+
 ## FAVOUR of Allah SWT [Lord of Infinite Bounty]
 * [This is the FAVOUR of Allah. He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quran.com/62/4)
 
