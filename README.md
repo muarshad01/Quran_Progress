@@ -309,6 +309,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [087. Surah Al-Ala (The Most High)](https://quranwbw.com/87) -- June 2024
 * [088. Surah Al-Ghaashiyah (The Overwhelming)](https://quranwbw.com/88) -- June 2024
 * [089. Surah Al-Fajr (The Dawn)](https://quranwbw.com/89) -- June 2024
+    * [Tafseer Surah Al-Fajr || Fehm ul Quran || Allama Talib Jauhari](https://www.youtube.com/watch?v=tb2YncljogE)
 * [090. Surah Al-Balad](https://quranwbw.com/90) -- June 2024
 * [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91)-- June 2024
 * [092. Surah Al Lail ()](https://quranwbw.com/92) -- June 2024
