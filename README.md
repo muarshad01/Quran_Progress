@@ -250,6 +250,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [55. Surah Ar-Rahmaan (Aroos-ul-Quran)](https://quranwbw.com/55) -- July 2024
     * [The Easiest Way to Memorize Surah Ar-Rahman: Mind Maps & Tafsir](https://www.youtube.com/watch?v=UcoZTbyWIeA)
     * [Benefits of surah rehman | Lectures Of Israr Ahmed](https://www.youtube.com/watch?v=78mZcNXV4jk)
+    * [Meezan Kia hai? | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
     * 1 ... Ar-Rahman (No body can enter Jannah except Rehmat of Allah SWT)
     * 2 ... 
     * 3 ...
