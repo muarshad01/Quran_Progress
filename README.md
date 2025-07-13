@@ -314,6 +314,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91)-- June 2024
 * [092. Surah Al Lail ()](https://quranwbw.com/92) -- June 2024
 * [093. Surah Ad-Duha (The Early Hours)](https://quranwbw.com/93) -- June 2024 (Amna: Jan 16, 2025)
+    * [Tafseer Surah Al-Zuha || Fehm ul Quran || Allama Talib Jauhari](https://www.youtube.com/watch?v=z8VwQQJIvgc) 
 * [094. Su Al-Inshirah (The opening up)](https://quranwbw.com/94) -- June 2024
 * [095. Surah At-Tin (The Fig)](https://quranwbw.com/95) -- June 2024
 * [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- June 2024
@@ -323,6 +324,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- June 2024
 * [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- October 24, 2024
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- June 2024
+    * [Tafseer Surah Takathur || Fehm ul Quran || Allama Talib Jauhari](https://www.youtube.com/watch?v=IWRcECCTcbo)
 * [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- June 2024
 * [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- June 2024
 * [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- June 2024
