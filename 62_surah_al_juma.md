@@ -1,3 +1,4 @@
+## [Hifiz of Quran is made easy!](https://www.youtube.com/watch?v=arRe0gLSCdE)
 ## [Allama Talib Johri - Surah Jumma Verse 1-4 Tafsir - Fehm Al Qur’an](https://www.youtube.com/watch?v=yWTJn9wZtmA)
 ## [Challenge of Quran - Surah Jumma Verse 5-8 Tafsir| Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
 ## [(62) SURAH AL JUMA COMPLETE DR. ISRAR](https://www.youtube.com/watch?v=zi4F1Z0ISdA)
