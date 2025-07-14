@@ -1,8 +1,9 @@
 ## [Allama Talib Johri - Surah Jumma Verse 1-4 Tafsir - Fehm Al Qur’an](https://www.youtube.com/watch?v=yWTJn9wZtmA)
 ## [Challenge of Quran - Surah Jumma Verse 5-8 Tafsir| Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
 
-* Malik, Qaddus, Azia, Hakim
-* Recite Ayats, Tazkia, Ilm, Hikmah
+#### Order
+* Al-Malik, Al-Qaddus, Al-Azia, Al-Hakim
+* Recite Verses, Tazkia (Purify them), Ilm (Teach them), Hikmah (Wisdom)
 
 #### SEVEN Surahs that begin with (Sabbaha, Yusabbihu, Sabbิhi, Subhana) words:
 * __Al-Isra 17__: Also starts with `Subhana` which is in the infinitive form, indicating a permanent and timeless declaration of Allah's perfection. 
