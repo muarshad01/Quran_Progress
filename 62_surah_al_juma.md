@@ -1,6 +1,19 @@
-* First 4 Ayat: Tahueed & Risalat
-* Next 4 Ayat: Yahood
-* Last 3 Ayat: Jumma
+## [Allama Talib Johri - Surah Jumma Verse 1-4 Tafsir - Fehm Al Qur’an](https://www.youtube.com/watch?v=yWTJn9wZtmA)
+## [Challenge of Quran - Surah Jumma Verse 5-8 Tafsir| Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
+
+* Malik, Qaddus, Azia, Hakim
+* Recite Ayats, Tazkia, Ilm, Hikmah
+
+#### The specific surahs that begin with these words are:
+* __Al-Hadid (Chapter 57)__: Starts with `sabbaha lillahi ma fis-samawati wal-ardi` (Whatever is in the heavens and on earth glorifies Allah). 
+* __Al-Hashr (Chapter 59)__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
+* __As-Saff (Chapter 61)__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
+* __Al-Jumu'ah (Chapter 62)__: Starts with `yusabbihu lillahi ma fis-samawati` (Whatever is in the heavens and on earth glorifies Allah). 
+* __At-Taghabun (Chapter 64)__: Also starts with `yusabbihu lillahi ma fis-samawati`. 
+* __Al-A'la (Chapter 87)__: Starts with `sabbิhi isma rabbika al-a'la` (Glorify the name of your Lord, the Most High). 
+* __Al-Isra (Chapter 17)__: Also starts with `Subhana` which is in the infinitive form, indicating a permanent and timeless declaration of Allah's perfection. 
+
+***
 
 ## Lord of Infinite Bounty
 * __Surah Al Jumua 62/4__: [This is the FAVOUR of Allah. He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quran.com/62/4)
