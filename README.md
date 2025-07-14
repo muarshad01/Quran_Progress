@@ -58,6 +58,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
     * [SURAH FATIHA SE APNI ZINDAGI BADLIEN?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
     * [Surah Fatiha Ki Ahmiyat - by Qibla Syed SAS](https://www.youtube.com/watch?v=gSA_RKnzf1A)
     * [Surah Fatiha Main Insaan Ki Takhleeq Ka Maqsad Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
+    * [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
 
 *** 
 
