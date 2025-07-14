@@ -8,6 +8,8 @@
 * Al-Malik, Al-Qaddus, Al-Azia, Al-Hakim
 * Recite Verses, Tazkia (Purify them), Ilm (Teach them), Hikmah (Wisdom)
 
+***
+
 #### SEVEN Surahs that begin with (Sabbaha, Yusabbihu, Sabbิhi, Subhana) words:
 * __Al-Isra 17__: Also starts with `Subhana` which is in the infinitive form, indicating a permanent and timeless declaration of Allah's perfection. 
 * __Al-Hadid 57__: Starts with `sabbaha lillahi ma fis-samawati wal-ardi` (Whatever is in the heavens and on earth glorifies Allah). 
