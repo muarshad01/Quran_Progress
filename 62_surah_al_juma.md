@@ -4,14 +4,15 @@
 * Malik, Qaddus, Azia, Hakim
 * Recite Ayats, Tazkia, Ilm, Hikmah
 
-#### The specific surahs that begin with these words are:
-* __Al-Hadid (Chapter 57)__: Starts with `sabbaha lillahi ma fis-samawati wal-ardi` (Whatever is in the heavens and on earth glorifies Allah). 
-* __Al-Hashr (Chapter 59)__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
-* __As-Saff (Chapter 61)__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
-* __Al-Jumu'ah (Chapter 62)__: Starts with `yusabbihu lillahi ma fis-samawati` (Whatever is in the heavens and on earth glorifies Allah). 
-* __At-Taghabun (Chapter 64)__: Also starts with `yusabbihu lillahi ma fis-samawati`. 
-* __Al-A'la (Chapter 87)__: Starts with `sabbิhi isma rabbika al-a'la` (Glorify the name of your Lord, the Most High). 
-* __Al-Isra (Chapter 17)__: Also starts with `Subhana` which is in the infinitive form, indicating a permanent and timeless declaration of Allah's perfection. 
+#### SEVEN Surahs that begin with (Sabbaha, Yusabbihu, Sabbิhi, Subhana) words:
+* __Al-Isra 17__: Also starts with `Subhana` which is in the infinitive form, indicating a permanent and timeless declaration of Allah's perfection. 
+* __Al-Hadid 57__: Starts with `sabbaha lillahi ma fis-samawati wal-ardi` (Whatever is in the heavens and on earth glorifies Allah). 
+* __Al-Hashr 59__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
+* __As-Saff 61__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
+* __Al-Jumu'ah 62__: Starts with `yusabbihu lillahi ma fis-samawati` (Whatever is in the heavens and on earth glorifies Allah). 
+* __At-Taghabun 64__: Also starts with `yusabbihu lillahi ma fis-samawati`. 
+* __Al-A'la 87__: Starts with `sabbิhi isma rabbika al-a'la` (Glorify the name of your Lord, the Most High). 
+
 
 ***
 
