@@ -1,5 +1,7 @@
 ## [Allama Talib Johri - Surah Jumma Verse 1-4 Tafsir - Fehm Al Qur’an](https://www.youtube.com/watch?v=yWTJn9wZtmA)
 ## [Challenge of Quran - Surah Jumma Verse 5-8 Tafsir| Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
+## [(62) SURAH AL JUMA COMPLETE DR. ISRAR](https://www.youtube.com/watch?v=zi4F1Z0ISdA)
+## [62 Surah Jumuah | Dr Israr Ahmed Urdu](https://www.youtube.com/watch?v=4IKacXNU6fI)
 
 #### Order
 * Al-Malik, Al-Qaddus, Al-Azia, Al-Hakim
