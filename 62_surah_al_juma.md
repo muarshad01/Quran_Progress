@@ -17,7 +17,6 @@
 * __At-Taghabun 64__: Also starts with `yusabbihu lillahi ma fis-samawati`. 
 * __Al-A'la 87__: Starts with `sabbิhi isma rabbika al-a'la` (Glorify the name of your Lord, the Most High). 
 
-
 ***
 
 ## FOUR prides of "Jews" denied by Quran
