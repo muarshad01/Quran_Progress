@@ -273,6 +273,10 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- July 2024
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/64_surah_at_taghabun.md) -- July 2024
 * [65. Surah At-Talaq (The Divorce)](https://quran.com/65) -- July 2024
+  * Alif = Allah Talah = 1
+  * Qaaf = Quran Majeed = 100
+  * Raa = Rasool Kareem = 200
+  * Alif = Insaan = 1
 * [66. Surah At-Tahrim (The Prohibition)](https://quran.com/66) -- July 2024
 
 ***
