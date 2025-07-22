@@ -2,19 +2,19 @@
 
 ***
 
-# Yum-e-Azam (Yum-e-Taghuban)
-* [Maal Me Khair-o-Barkat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
+### [Maal Me Khair-o-Barkat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
+* Yum-e-Azam (Yum-e-Taghuban)
 
 ***
 
-## Surah AL-Taghaboon
+### Surah AL-Taghaboon
 * [Arzang-e-Faqeer : Session 06 Surah Al-Taghaboon](https://www.youtube.com/watch?v=j_OgniH_t0c)
 * Number 64 = 63 + 1
 * 18 Ayats
 
 ***
 
-## `Allah Ki Pehchan, Tauraf`
+### `Allah Ki Pehchan, Tauraf`
 * https://hamariweb.com/islam/download-Surah-Taghabun-urdu-translation-pdf
 * `Meri qudrat kaisi hay`
 * Mayn koon hoon?
