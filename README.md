@@ -348,6 +348,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 * [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- June 2024
 * [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- June 2024
 * [112. Surah Al-Ikhlas (The Unity)](https://quran.com/112) -- June 2024
+    * [Surah Ikhlas Mein Lafz IKHLAAS Nahi Hai? | Irfan ul Haq](https://www.youtube.com/watch?v=6a0DB8fM2_8) 
     * [Secret Power of Surah Ikhlas | SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
     * [Tauheed Ka Jawab Nahi – Surah Ikhlas Ki Mukammal Tafseer](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
     * [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
