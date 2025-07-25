@@ -45,6 +45,11 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 
 ***
 
+## Auzubillah Minashaitan Nirajeem
+* __Surah An-Nahl 16/98__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
+
+***
+
 ## Bismillah
 * [Powerful Wazifa of Bismillah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
 * [Spiritual Effects of Bismillah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
