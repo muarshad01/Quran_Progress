@@ -1,3 +1,7 @@
+### [Surah Taghabun: Cure for Inner Chaos | SSA Shah](https://www.youtube.com/watch?v=umlnQ8J2YUU)
+
+***
+
 ### [📢Surah Taghabun Ka Wazifa |🤑💰Maal Me Khair O Barkat Ka Wazifa|1Din Me Har Hajat Poori Hone Ka Wazifa](https://www.youtube.com/watch?v=S0k_1zUvd6M)
 
 ***
