@@ -364,6 +364,7 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
     * [Secret Power of Surah Ikhlas | SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
     * [Tauheed Ka Jawab Nahi – Surah Ikhlas Ki Mukammal Tafseer](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
     * [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
+    * [KOI INSAN BHI MUKAMMAL BE-NIYAAZ NAHI HOSAKTA | Irfan ul Haq](https://www.youtube.com/watch?v=iVEVxq5vnhY)
 * [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- June 2024
 * [114. Surah An-Nas (The Men)](https://quran.com/114) -- June 2024
 
