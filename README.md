@@ -15,6 +15,11 @@
 
 ***
 
+## Auzubillah Minashaitan Nirajeem (أَعُوذُ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
+* __Surah An-Nahl 16/98__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
+
+*** 
+
 ### Whose words are better than someone?
 * __Surah Fussilat 41/33__: [And whose words are better than someone who calls ˹others˺ to Allah](https://quran.com/41/33-35)
 * __Surah Al-Asr__: [https://quran.com/103](https://quran.com/103)
@@ -40,13 +45,12 @@ ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw
 #### Open Hearts to Islam
 * __Surah Al-Anam 6/125__: [Whoever Allah wills to guide, He opens their heart to Islam...](https://quran.com/6/125)
 
+#### Quran puts a Barrier
+* __Surah Al-Isra 17/45__: [When you ˹O Prophet˺ recite the Quran, We put a hidden barrier between you and those who do not believe in the Hereafter.](https://quran.com/17/45)
+
+
 #### You'll be asked about it
 * __Surah Az-Zukhruf 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quran.com/43/44)
-
-***
-
-## Auzubillah Minashaitan Nirajeem
-* __Surah An-Nahl 16/98__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
 
 ***
 
