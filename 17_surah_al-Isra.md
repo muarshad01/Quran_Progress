@@ -1,3 +1,20 @@
+## Prophets on 7 Heavens [Shab-e-Miraj Hadith]
+1. Hazrat Adam AS
+2. Hazrat Yaḥya (John the Baptist) & Issa (Jesus) AS
+3. Hazrat Yusuf (Joseph)
+4. Hazrat Idris (Enoch) AS
+* __Surah Maryam 19/56-57__: [(56) And mention in the Book ˹O Prophet, the story of˺ Enoch. He was surely a man of truth and a prophet. (57) And We elevated him to an honourable status.](https://quranwbw.com/19/56-57)
+5. Hazrat Harun AS
+6. Hazrat Musa AS
+7. Hazrat Ibrahim AS
+  ```
+  The Prophet PBUH said, “I saw Ibrahim AS and he was sitting with his back
+  leaning on al-Bayt al-Ma'mur (البيت المعمور – the Frequented House).”
+  Jibril AS said to me, “This is your father, Ibrahim AS, say salam to him.”
+  So the Prophet PBUH did so and Ibrahim responded, “Welcome, O noble son, and O noble
+  ```
+***
+
 * [Isra and Mi’raj (Part Two)](https://www.islamicity.org/24540/isra-and-miraj-part-two/)
   
 ***
