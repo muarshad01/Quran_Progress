@@ -4,9 +4,9 @@
 
 ***
 
-* [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahid Tareeqa](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
-* [Importance of Tilawat-e-Quran? | SSA Shah](https://www.youtube.com/watch?v=Q-BoK1oCfns)
-* [Tilawat-e-Quran Kareem Ki Fazilat | SSA Shah](https://www.youtube.com/watch?v=nf1byixjdzE)
+#### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahid Tareeqa | Irfan ul Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
+#### [Importance of Tilawat-e-Quran? | SSA Shah](https://www.youtube.com/watch?v=Q-BoK1oCfns)
+#### [Tilawat-e-Quran Kareem Ki Fazilat | SSA Shah](https://www.youtube.com/watch?v=nf1byixjdzE)
 
 ***
 
