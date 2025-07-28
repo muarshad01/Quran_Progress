@@ -1,3 +1,14 @@
+### [Meraj ke Safar ka Naqsha | Mufti Saeed Majadari](https://www.youtube.com/watch?v=ltja-e7azpI)
+1. Hazrat Adam AS
+2. Hazrat Issa AS & Hazrat Yahya AS
+3. Hazrat Yusuf AS ???
+4. Hazrat Idris AS (Enoch)
+5. Hazrat Haroon AS ???
+6. Hazrat Musa AS
+7. Hazrat Ibrahim AS
+
+*** 
+
 ## Prophets on 7 Heavens [Shab-e-Miraj Hadith]
 1. Hazrat Adam AS
 2. Hazrat Yaḥya (John the Baptist) & Issa (Jesus) AS
