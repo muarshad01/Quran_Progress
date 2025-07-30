@@ -67,6 +67,8 @@
     * [Surah Fatiha Main Insaan Ki Takhleeq Ka Maqsad Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
     * [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
     * https://www.youtube.com/shorts/HNe12DgxRTY
+    * [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
+    * [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part 2 | Allama Talib Jauhari](https://www.youtube.com/watch?v=s_Mz1ANEuKM)
 
 *** 
 
