@@ -1,5 +1,5 @@
 #### [Kasrat Se Quran Pak Ki Tilawat Se Kya Fawaid Hasil Hote Hain? | SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
-* Start of Mushahida (Quwat-e-Mushahida) starts during Tilawat e Quran Majeed.
+* Start of Mushahida (Quwat-e-Mushahida) starts during Tilawat of Quran-e-Majeed.
 * Israr-e-Ilahi ki Saar
 
 ***
