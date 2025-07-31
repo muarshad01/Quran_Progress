@@ -52,6 +52,7 @@
 * [5 Tips for Powerful Bismillah Wazifa Results](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 * [Bismillah Ke "Baay" Ki Wazahat - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
 * [Bismillah ki tafseer | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
+* [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 
 ***
 
