@@ -58,7 +58,7 @@
    * We turned them over, to the right-and-left, while their dog ...
    * Had you looked at them, you would have certainly fled-away from them (filled with horror)
    
-* __Surah Kahf 18/25__: [They had remained in their cave for three hundred years, adding nine.](https://quranwbw.com/18/25)](https://quranwbw.com/18/18)
+* __Surah Kahf 18/25__: [They had remained in their cave for three hundred years, adding nine.](https://quranwbw.com/18/25)](https://quranwbw.com/18/25)
    * Inside cave (a short span of time) and outside cave 309 years
 
 ***
