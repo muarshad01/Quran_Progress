@@ -30,7 +30,7 @@
 #### Tawhid of Allah SWT
   * First-Ayah starts with ("Alhamdulillah" (الحمد لله)) and Last-Ayah ends at ("ahada" (أَحَدَ))
   * Many Ayats regarding `associate none in the worship of their Lord`
-  * 26, 38, ..., 110 
+  * 26, 38, 42, ..., 110 
 
 #### Jews had asked Three questions from Prophet PBUH
 * Q1: What is `Rooh`?
