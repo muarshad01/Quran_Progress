@@ -1,6 +1,6 @@
 ## [Story of Zulqarnain (Cyrus) in English by Dr. Israr Ahmed](https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s)
 
-## [Baba G Irfan ul Haq | Surah Kahaf Kay Khazanay Aor Raaz](https://www.youtube.com/watch?v=IIMp9eyv4vQ)
+## [Surah Kahaf Kay Khazanay | Irfan-ul-Haq](https://www.youtube.com/watch?v=IIMp9eyv4vQ)
 
 ***
 
