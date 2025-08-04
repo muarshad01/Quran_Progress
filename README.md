@@ -363,13 +363,7 @@
 * [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- June 2024
     * [Sura Lahab | Allama Talib Jauhari](https://www.youtube.com/watch?v=3xlhd5IhUVw)
 * [112. Surah Al-Ikhlas (The Unity)](https://quran.com/112) -- June 2024
-    * [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
-    * [Surah Ikhlas Mein Lafz IKHLAAS Nahi Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=6a0DB8fM2_8) 
-    * [Secret Power of Surah Ikhlas | SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
-    * [Tauheed Ka Jawab Nahi – Surah Ikhlas Ki Mukammal Tafseer](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
-    * [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
-    * [Koi Insan Bhi Mukammal BE-NIYAAZ Nahi Hosakta | Irfan-ul-Haq](https://www.youtube.com/watch?v=iVEVxq5vnhY)
-    * [Quran Mein Lafz "SAMAD" Sirf aik Baar Aaya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=34b-vbh-EtQ)
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/112_surah_ikhlas.md) 
 * [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- June 2024
     * [Tafseer Sura Al-Falaq | Allama Talib Jauhari](https://www.youtube.com/watch?v=Ev1RAiAD3pI)
 * [114. Surah An-Nas (The Men)](https://quran.com/114) -- June 2024
