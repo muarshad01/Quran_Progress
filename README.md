@@ -341,7 +341,7 @@
 * [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- June 2024
 * [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- October 24, 2024
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- June 2024
-    * [Tafseer Surah Takathur || Fehm ul Quran || Allama Talib Jauhari](https://www.youtube.com/watch?v=IWRcECCTcbo)
+    * [Tafseer Surah Takathur | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=IWRcECCTcbo)
 * [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- June 2024
 * [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- June 2024
 * [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- June 2024
@@ -360,16 +360,19 @@
 * [109. Surah Al-Kafirun (The Disbelievers)]() -- June 2024
 * [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- June 2024
 * [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- June 2024
+    * [Sura Lahab | Allama Talib Jauhari](https://www.youtube.com/watch?v=3xlhd5IhUVw)
 * [112. Surah Al-Ikhlas (The Unity)](https://quran.com/112) -- June 2024
-    * [Surah Ikhlas Mein Lafz IKHLAAS Nahi Hai? | Irfan ul Haq](https://www.youtube.com/watch?v=6a0DB8fM2_8) 
+    * [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
+    * [Surah Ikhlas Mein Lafz IKHLAAS Nahi Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=6a0DB8fM2_8) 
     * [Secret Power of Surah Ikhlas | SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
     * [Tauheed Ka Jawab Nahi – Surah Ikhlas Ki Mukammal Tafseer](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
     * [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
-    * [Koi Insan Bhi Mukammal BE-NIYAAZ Nahi Hosakta | Irfan ul Haq](https://www.youtube.com/watch?v=iVEVxq5vnhY)
-    * [Quran Mein Lafz "SAMAD" Sirf aik Baar Aaya Hai | Irfan ul Haq](https://www.youtube.com/watch?v=34b-vbh-EtQ)
+    * [Koi Insan Bhi Mukammal BE-NIYAAZ Nahi Hosakta | Irfan-ul-Haq](https://www.youtube.com/watch?v=iVEVxq5vnhY)
+    * [Quran Mein Lafz "SAMAD" Sirf aik Baar Aaya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=34b-vbh-EtQ)
 * [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- June 2024
+    * [Tafseer Sura Al-Falaq | Allama Talib Jauhari](https://www.youtube.com/watch?v=Ev1RAiAD3pI)
 * [114. Surah An-Nas (The Men)](https://quran.com/114) -- June 2024
-
+    * [Tafseer Sura Al-Nas | Allama Talib Jauhari](https://www.youtube.com/watch?v=2kiXlIhY8-0)
 ***
 
 ### Reading, Understanding, and the Acting upon Quran 
