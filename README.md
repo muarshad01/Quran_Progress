@@ -367,7 +367,7 @@
 * [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- June 2024
     * [Tafseer Sura Al-Falaq | Allama Talib Jauhari](https://www.youtube.com/watch?v=Ev1RAiAD3pI)
 * [114. Surah An-Nas (The Men)](https://quran.com/114) -- June 2024
-    * [Tafseer Sura Al-Nas | Allama Talib Jauhari](https://www.youtube.com/watch?v=2kiXlIhY8-0)
+    * [Tafseer Sura An-Nas | Allama Talib Jauhari](https://www.youtube.com/watch?v=2kiXlIhY8-0)
 ***
 
 ### Reading, Understanding, and the Acting upon Quran 
