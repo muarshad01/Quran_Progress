@@ -365,7 +365,7 @@
 * [112. Surah Al-Ikhlas (The Unity)](https://quran.com/112) -- June 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/112_surah_ikhlas.md) 
 * [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- June 2024
-    * [Tafseer Sura Al-Falaq | Allama Talib Jauhari](https://www.youtube.com/watch?v=Ev1RAiAD3pI)
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/113_surah_al_falaq.md)
 * [114. Surah An-Nas (The Men)](https://quran.com/114) -- June 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/114_surah_an_naas.md)
 
