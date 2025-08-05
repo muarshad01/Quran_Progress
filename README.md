@@ -359,6 +359,7 @@
 * Second word end at "Qaaf"
 ```
 * [109. Surah Al-Kafirun (The Disbelievers)]() -- June 2024
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/109_surah_kafiroon.md)
 * [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- June 2024
 * [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- June 2024
     * [Sura Lahab | Allama Talib Jauhari](https://www.youtube.com/watch?v=3xlhd5IhUVw)
