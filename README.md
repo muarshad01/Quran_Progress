@@ -362,7 +362,7 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/109_surah_kafiroon.md)
 * [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- June 2024
 * [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- June 2024
-    * [Sura Lahab | Allama Talib Jauhari](https://www.youtube.com/watch?v=3xlhd5IhUVw)
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/111_al_masad.md)
 * [112. Surah Al-Ikhlas (The Unity)](https://quran.com/112) -- June 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/112_surah_ikhlas.md) 
 * [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- June 2024
