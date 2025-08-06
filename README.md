@@ -339,6 +339,7 @@
 * [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- June 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/96_surah_al_alaq.md)
 * [097. Surah Al-Qadr (The Majesty)](https://quranwbw.com/97) -- June 2024
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/97_surah_al-qadar.md)
 * [098. Surah Al-Bayyina ()](https://quranwbw.com/98) -- June 2024
 * [099. Surah Al-Zilzal (The Shaking)]() -- June 2024
 * [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- June 2024
