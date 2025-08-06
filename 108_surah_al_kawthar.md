@@ -1,5 +1,7 @@
 ### [Surah Kausar Tafsir | Allama Talib Johri](https://www.youtube.com/watch?v=QN_MbsU5Hok)
 
+### [Kausar aur Takasir mai Farq | Allama Talib Johri](https://www.youtube.com/watch?v=r5x1ZQum5Hs)
+
 ***
 
 * Coding Theory - 10
