@@ -332,7 +332,7 @@
 * [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91)-- June 2024
 * [092. Surah Al Lail ()](https://quranwbw.com/92) -- June 2024
 * [093. Surah Ad-Duha (The Early Hours)](https://quranwbw.com/93) -- June 2024 (Amna: Jan 16, 2025)
-    * [Tafseer Surah Al-Zuha || Fehm ul Quran || Allama Talib Jauhari](https://www.youtube.com/watch?v=z8VwQQJIvgc) 
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/93_surah_ad_duha.md)
 * [094. Su Al-Inshirah (The opening up)](https://quranwbw.com/94) -- June 2024
 * [095. Surah At-Tin (The Fig)](https://quranwbw.com/95) -- June 2024
 * [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- June 2024
