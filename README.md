@@ -142,6 +142,7 @@
 ### Chapter 14
 * [15. Surah Al Hijr](https://quranwbw.com/15) -- July, 2025
 * [16. Surah An Nahl](https://quranwbw.com/16) -- Jan 10, 2025
+    * [Fehm Al-Qur'an: Allama Talib Jauhri - Sura Nehal 101 103](https://www.youtube.com/watch?v=BU2QVXB5qBo)
 
 ***
 
@@ -177,6 +178,7 @@
 
 ### Chapter 18
 * [23. Surah Al-Muminoon](https://quranwbw.com/23) -- Januray 16, 2024
+    * [Maqsud Takhliq (Ayat: 23/115) | Allama Talib Jauhri](https://www.youtube.com/watch?v=dUgOyE4Oczc)
 * [24. Surah Noor](https://quranwbw.com/24)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/24_surah_noor.md)
 * [25. Surah Furqan](https://quranwbw.com/25)
