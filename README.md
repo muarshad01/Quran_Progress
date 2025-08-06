@@ -336,6 +336,7 @@
 * [094. Su Al-Inshirah (The opening up)](https://quranwbw.com/94) -- June 2024
 * [095. Surah At-Tin (The Fig)](https://quranwbw.com/95) -- June 2024
 * [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- June 2024
+    * [Surah Alaq | Allama Talib Johri](https://www.youtube.com/watch?v=h8w_DdxaC-w)
 * [097. Surah Al-Qadr (The Majesty)](https://quranwbw.com/97) -- June 2024
 * [098. Surah Al-Bayyina ()](https://quranwbw.com/98) -- June 2024
 * [099. Surah Al-Zilzal (The Shaking)]() -- June 2024
