@@ -241,11 +241,12 @@
 
 ### Chapter 25 [41 - 45] -- October 05, 2024
 * [41. Surah Ha-Meem Sajdah (Surah Fussilat)](https://quranwbw.com/41)
-   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md)
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/41_surah_ha_meem_sajdah.md)
 * [42. Surah Ash Shura (Consultation)](https://quranwbw.com/)
+    * [Meezan Kia hai? (42/17) | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
 * [43. Surah Az-Zukhruf (Ornaments of Gold)](https://quranwbw.com/43)
 * [44. Surah Ad-Dukhaan (The Smoke)](https://quranwbw.com/44)
-   * `Intiqam-e-Azam (Retribution)` (Sieze with greatest seizere . We'll take retribution)
+    * `Intiqam-e-Azam (Retribution)` (Sieze with greatest seizere . We'll take retribution)
 * [45. Surah Al Jaathya (Crouching - Sitting Position)](https://quranwbw.com/45)
 
 ***
@@ -266,6 +267,7 @@
 * [53. Surah Najam](https://quranwbw.com/53) -- July 2024
 * [54. Surah Al-Qamar](https://quran.com/54) -- July 2024
 * [55. Surah Ar-Rahmaan (Aroos-ul-Quran)](https://quranwbw.com/55) -- July 2024
+    * [Meezan Kia hai? (42/17) | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
     * [The Easiest Way to Memorize Surah Ar-Rahman: Mind Maps & Tafsir](https://www.youtube.com/watch?v=UcoZTbyWIeA)
     * [Benefits of surah rehman | Lectures Of Israr Ahmed](https://www.youtube.com/watch?v=78mZcNXV4jk)
     * [Meezan Kia hai? | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
