@@ -344,6 +344,7 @@
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- June 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/102_surah%20_at_takathur.md) 
 * [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- June 2024
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/103_surah_asr.md)
 * [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- June 2024
 * [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- June 2024
 * [106. Surah Quresh (Quraish)](https://quran.com/106) -- June 2024
