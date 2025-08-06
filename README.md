@@ -46,6 +46,7 @@
 ***
 
 ## Bismillah
+* [Bismillah ki tafseer | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
 * [Powerful Wazifa of Bismillah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
 * [Spiritual Effects of Bismillah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
 * [Open the Gates of Protection with Bismillah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
