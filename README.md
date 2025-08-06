@@ -342,7 +342,7 @@
 * [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- June 2024
 * [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- October 24, 2024
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- June 2024
-    * [Tafseer Surah Takathur | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=IWRcECCTcbo)
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/102_surah%20_at_takathur.md) 
 * [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- June 2024
 * [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- June 2024
 * [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- June 2024
