@@ -330,6 +330,7 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/89_surah_al_fajr.md)
 * [090. Surah Al-Balad](https://quranwbw.com/90) -- June 2024
 * [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91)-- June 2024
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/91_surah_ash_shams.md)
 * [092. Surah Al Lail ()](https://quranwbw.com/92) -- June 2024
 * [093. Surah Ad-Duha (The Early Hours)](https://quranwbw.com/93) -- June 2024 (Amna: Jan 16, 2025)
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/93_surah_ad_duha.md)
