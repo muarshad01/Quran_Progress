@@ -7,8 +7,6 @@
 ### https://www.youtube.com/shorts/SPQjTLcoKBY
 
 #### Order
-* Al-Malik, Al-Qaddus, Al-Azia, Al-Hakim
-* Recites Verses, Tazkia (Purify them), Ilm (Teach them), Hikmah (Wisdom)
 
 | Ayat-1 | Ayat-2 |
 |---|---|
