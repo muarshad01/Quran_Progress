@@ -1,8 +1,12 @@
 ### [Hifiz of Quran is made easy!](https://www.youtube.com/watch?v=arRe0gLSCdE)
+
 ### [Allama Talib Johri - Surah Jumma Verse 1-4 Tafsir - Fehm Al Qur’an](https://www.youtube.com/watch?v=yWTJn9wZtmA)
+* __Surah Al-Juma 62/2 (See Also: 2/129)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
+* __Surah Al-Baqarah 2/129 (See Also: 62/2)__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/129)
+
 ### [Challenge of Quran - Surah Jumma Verse 5-8 Tafsir| Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
 ### [(62) Surah Al Juma Complete | Dr. Israr](https://www.youtube.com/watch?v=zi4F1Z0ISdA)
-### [62 Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
+### [(62) Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
 
 ***
 ### https://www.youtube.com/shorts/SPQjTLcoKBY
