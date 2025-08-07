@@ -7,7 +7,7 @@
 
 #### Order
 * Al-Malik, Al-Qaddus, Al-Azia, Al-Hakim
-* Recite Verses, Tazkia (Purify them), Ilm (Teach them), Hikmah (Wisdom)
+* Recites Verses, Tazkia (Purify them), Ilm (Teach them), Hikmah (Wisdom)
 
 ***
 
