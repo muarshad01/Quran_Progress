@@ -44,6 +44,9 @@
 
 * __Surah Al-Baqarah 2/127__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/127)
 
+#### Hadith
+* ["They said: 'O Messenger of Allah (ﷺ)! When was the Prophethood established for you?' He said: 'While Adam was between (being) soul and body.'"](https://sunnah.com/tirmidhi:3609)
+
 ***
 
 ## FOUR prides of "Jews" denied by Quran
