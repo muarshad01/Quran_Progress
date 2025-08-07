@@ -2,6 +2,7 @@
 ### [Allama Talib Johri - Surah Jumma Verse 1-4 Tafsir - Fehm Al Qur’an](https://www.youtube.com/watch?v=yWTJn9wZtmA)
 ### [Challenge of Quran - Surah Jumma Verse 5-8 Tafsir| Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
 ### [(62) Surah Al Juma Complete | Dr. Israr](https://www.youtube.com/watch?v=zi4F1Z0ISdA)
+### [62 Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
 
 ***
 ### https://www.youtube.com/shorts/SPQjTLcoKBY
@@ -16,8 +17,6 @@
 | Al-Hakim | Hikmah (Wisdom)|
 
 ***
-
-### [62 Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
 
 | Word | Meaning| 
 |---|---|
