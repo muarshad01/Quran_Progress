@@ -10,17 +10,24 @@
 * Al-Malik, Al-Qaddus, Al-Azia, Al-Hakim
 * Recites Verses, Tazkia (Purify them), Ilm (Teach them), Hikmah (Wisdom)
 
+| Ayat-1 | Ayat-2 |
+|---|---|
+| Al-Malik | Recites Verses |
+| Al-Qaddus | Tazkia (Purify them) | 
+| Al-Azia | Ilm (Teach them) |
+| Al-Hakim | Hikmah (Wisdom)|
+
 ***
 
 ### [62 Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
 
 | Word | Meaning| 
 |---|---|
-| Sabbih (سَبِّحْ)     ||
+| Sabbih (سَبِّحْ)     | Surah Al-Alaa|
 | Sabbaha (سَبَّحَ)    ||
-| Fasabbih (فَسَبِّحْ)  ||
 | Yusabbihu (يُسَبِّحُ) | Doing and will keep doing |
-| Subhana (سُبْحَانَ)  ||
+| Fasabbih (فَسَبِّحْ)  ||
+| Subhana (سُبْحَانَ)  | Surah Al-Isra|
 | Tusabbihu (تُسَبِّحُ) | Past Tense|
 
 
@@ -35,8 +42,6 @@
 * __At-Taghabun 64/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
 
 * __Al-Alaa 87/1 (Sabbih (سَبِّحْ) - Do)__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
-
-*** 
 
 ***
 
