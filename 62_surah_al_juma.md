@@ -41,6 +41,9 @@
 
 * __Al-Alaa 87/1 (Sabbih (سَبِّحْ) - Do)__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
 
+
+* __Surah Al-Baqarah 2/127__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/127)
+
 ***
 
 ## FOUR prides of "Jews" denied by Quran
