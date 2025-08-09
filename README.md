@@ -223,6 +223,8 @@
 
 ### Chapter 23 [36 - 38] -- October 19, 2024
 * [36. Surah Yaseen](https://quranwbw.com/)
+   * Raazdan
+   * Ya-Syed-ul-Bashar 
    * [Surah Yassen | Quran Ki Tafseer | Allama Talib Johri](https://www.youtube.com/watch?v=GoB-ZbbhYZY) - TODO
    * [The Most Powerful Wazifa of Surah Yaseen | SSA Shah](https://www.youtube.com/watch?v=VPAtsLjw4FE)
    * [The Easiest Way to learn Surah Yassen: Mind Maps & Links (12-19)](https://www.youtube.com/watch?v=ZbiShYWPKeE)
