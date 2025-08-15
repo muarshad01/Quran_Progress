@@ -102,7 +102,7 @@
 
 ### Chapter [07, 08] -- June 2025
 * __Surah Al-An'am__: [6. ](https://quran.com/6)
-* [Surah Al-An'am ki Fazeelat or Barkaat | Syed Sarfraz Shah Lecture 2014](https://www.youtube.com/watch?v=e9EfMiLP-Dw)
+* [Surah Al-An'am ki Fazeelat or Barkaat | SSA Shah](https://www.youtube.com/watch?v=e9EfMiLP-Dw)
 
 ***
 
