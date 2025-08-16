@@ -1,5 +1,9 @@
 * https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf
 
+### [Benefits of First Three Rukus - Ayats: 1-29](https://www.youtube.com/shorts/s3_yBHCKipY)
+### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
+
+
 ***
 
 #### Alif-Laam-Meem
