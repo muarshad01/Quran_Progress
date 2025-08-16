@@ -1,14 +1,17 @@
-   * Raazdan
-   * Ya-Syed-ul-Bashar 
-   * [Surah Yassen | Quran Ki Tafseer | Allama Talib Johri](https://www.youtube.com/watch?v=GoB-ZbbhYZY) - TODO
-   * [The Most Powerful Wazifa of Surah Yaseen | SSA Shah](https://www.youtube.com/watch?v=VPAtsLjw4FE)
-   * [The Easiest Way to learn Surah Yassen: Mind Maps & Links (12-19)](https://www.youtube.com/watch?v=ZbiShYWPKeE)
-   * [The Easiest Way to Memorize Surah Yassen: Mind Maps & Tafsir](https://www.youtube.com/watch?v=-7lzCmJ2ovE&list=PLF13cAKvQBLA23ap4K2SNXQlG2zwVmGW_&index=2)
+1. Khuda Ka Raazdan
+2. Ya-Syed-ul-Bashar
+3. Malik ka Mahboob
+
+*** 
+
+### [Surah Yassen | Quran Ki Tafseer | Allama Talib Johri](https://www.youtube.com/watch?v=GoB-ZbbhYZY)
+### [The Most Powerful Wazifa of Surah Yaseen | SSA Shah](https://www.youtube.com/watch?v=VPAtsLjw4FE)
+### [The Easiest Way to learn Surah Yassen: Mind Maps & Links (12-19)](https://www.youtube.com/watch?v=ZbiShYWPKeE)
+### [The Easiest Way to Memorize Surah Yassen: Mind Maps & Tafsir](https://www.youtube.com/watch?v=-7lzCmJ2ovE&list=PLF13cAKvQBLA23ap4K2SNXQlG2zwVmGW_&index=2)
 
 
 ***
 
-## [Surah YaSeen (Malik ka Mahboob) - 36](https://quran.com/36)
 * Ya-Seen is one of the `haroof-e-muqataat`, short form of, `Ya Sayyad-ul-Bashar`
 * Closeness to prophet PBUH
 * One of those `72 names (titles)`, which were given to prophet PBUH Pon `Shab-e-Miraj`
