@@ -77,3 +77,8 @@
 * __Surah 64/17__: [Allah SWT is Most Ready to appreciate and to reward, Most Forbearing](https://quranwbw.com/64#17)
 
 ***
+
+* Past mistakes (from spiritual-perspective) are forgiven
+* Recite `Surah Taghuban` after Ishaa prayers to develop your spiritual-foundation
+
+***
