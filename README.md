@@ -133,7 +133,7 @@
 ### Chapter 14
 * [15. Surah Al Hijr](https://quranwbw.com/15) -- July, 2025
 * [16. Surah An Nahl](https://quranwbw.com/16) -- Jan 10, 2025
-    * [Fehm Al-Qur'an: Allama Talib Jauhri - Sura Nehal 101 103](https://www.youtube.com/watch?v=BU2QVXB5qBo)
+    * [Notes]([Notes](https://github.com/muarshad01/Quran_Progress/blob/main/16_surah_nahl.md))
 
 ***
 
