@@ -9,11 +9,13 @@
 
 ### First Surah which was revealed completely at once.
 ### [Surah Fatiha – One Cure for All Pains](https://www.youtube.com/watch?v=yZ7MWDeB6hY)
-### [SURAH FATIHA SE APNI ZINDAGI BADLIEN?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
-### [Surah Fatiha Ki Ahmiyat - by Qibla Syed SAS](https://www.youtube.com/watch?v=gSA_RKnzf1A)
+### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
+### [Surah Fatiha Se Apni Zindagi Badlien?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
+### [Surah Fatiha Ki Ahmiyat | SSA Shah](https://www.youtube.com/watch?v=gSA_RKnzf1A)
 ### [Surah Fatiha Main Insaan Ki Takhleeq Ka Maqsad Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
 ### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
-### [Barakah of Surah Fatiha | سورۂ فا تحہ کی برکت کیا ہے؟](https://www.youtube.com/watch?v=EX3HNc5kGnU)
-    * https://www.youtube.com/shorts/HNe12DgxRTY
+### [Barakah of Surah Fatiha](https://www.youtube.com/watch?v=EX3HNc5kGnU)
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part 2 | Allama Talib Jauhari](https://www.youtube.com/watch?v=s_Mz1ANEuKM)
+
+***
