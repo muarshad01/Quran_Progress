@@ -217,6 +217,7 @@
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md)
 * [34. Surah Saba](https://quranwbw.com/34)
+  * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/34_surah_sabah.md)
 * [35. Surah Faatir](https://quranwbw.com/35)
   
 ***
