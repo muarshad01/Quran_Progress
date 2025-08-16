@@ -2,7 +2,8 @@
 
 ***
 
-* Regular recition helps in nafas-par qaboo-pana
+### SSA Shah
+* Regular recition of Surah Al-Baqarah helps in nafas-par qaboo-pana
 
 ### [Benefits of First Three Rukus - Ayats: 1-29](https://www.youtube.com/shorts/s3_yBHCKipY)
 ### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
