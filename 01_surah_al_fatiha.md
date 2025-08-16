@@ -4,10 +4,41 @@
 * Words = 29
 * Letters = 139
 * Total = 7 + 29 + 139 = 175 = 17 x 5
+* Recited at-least 17 time times (Faraz Namaz Rakat) during 5 prayers dails
+* Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-
+* Opens up the secrets (Israr, Rahmat and Barakat)
 
 ***
 
-### First Surah which was revealed completely at once.
+* Magaz (`Brain`) of Quran
+* Quran starts with `Surah Fatiha` (Quran has been given in the hisaar of `Surah Fatiha`)
+* This Surah Hamad, Sanaa, and Dua 
+* Two Attributes of Allah SWT: Rahman & Raheem & Malik Yum-ud-Deen
+* It has been kept outside 30 chapters, which start with Alf-Laam-Meem 
+* First Surah which was revealed completely at once.
+
+***
+
+* Is part-of-Quran and also isn't part of Quran.
+* Surah Fatiha is the `Gist-of-Constitution` in the first 2.5 Chapters
+* First 2.5 Chapters: `Constitution of Islam`
+* Next 27.5 Chapters: `Interpretation-of-Constituion`
+
+***
+
+### Benefits
+* Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai
+* Dushman-Ki-Dushmani Se Nijat mil-jaati-hai
+
+***
+
+### Rabb
+* In Arabic - Paalnay-wala
+* Also, Tarbeeyat denay-wala
+  * Capabilities and Capacities are developed
+
+***
+
 ### [Surah Fatiha – One Cure for All Pains](https://www.youtube.com/watch?v=yZ7MWDeB6hY)
 ### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
 ### [Surah Fatiha Se Apni Zindagi Badlien?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
