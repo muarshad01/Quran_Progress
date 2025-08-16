@@ -271,7 +271,8 @@
 * [56. Surah Al-Waaqia](https://quranwbw.com/56) -- July 2024
     * [Surah Waqia | Allama Talib Johari](https://www.youtube.com/watch?v=npnktNggmAU)
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- July 2024
-  
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/57_surah_al_hadid.md)
+
 ***
 
 ### Chapter 28 [59 - 66]
