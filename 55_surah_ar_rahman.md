@@ -1,10 +1,8 @@
 #### [Meezan Kia hai? (42/17) | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
 #### [Benefits of surah rehman | Dr Israr Ahmed](https://www.youtube.com/watch?v=78mZcNXV4jk)
 #### [Meezan Kia hai? | Fehm-ul-Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
-* 1 ... Ar-Rahman (No body can enter Jannah except Rehmat of Allah SWT)
-* 2 ...
-* 3 ...
-* 4 ... 
+
+* [Chapter: No One Will Enter Paradise By Virtue Of His Deeds, Rather By The Mercy Of Allah, Exalted Is He](https://sunnah.com/muslim:2818a) -- Sahih Muslim 2818a
 
 ***
 
