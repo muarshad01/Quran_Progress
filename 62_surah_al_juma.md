@@ -62,3 +62,9 @@
 4. Day of Sabaat (Seen, Bay, Tay; Sabata in Tibrani): Ayat 9-11
 
 ***
+
+## Baba Farid-ud-din Ganjshakar
+* Memory-and-Retention Power
+* Memorize `Surah Jumma`
+
+***
