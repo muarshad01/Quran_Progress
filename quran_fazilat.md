@@ -1,32 +1,25 @@
 ## Miricle of Quran
 * Read it again-and-again and you'll start understanding its meaning
-* Quran kaa sahar
-   * Wajad tari hona [You and Allah SWT are alone]
+* Quran kaa-sehar
+    * Wajad tari-hona "You and Allah SWT are alone"!
 
 ***
 
-## What is the easiest way to reach you (Allah)?`
-* Allah SWT asked `Ahmad ibn Hanbal` in a dream - `Ahmad what do you want?`
-    * Allah SWT, `What is the easiest way to reach you?`
-    * Allah SWT replied, `Then start reading Quran a lot`
+## Easiest way to reach Allah SWT?
+* Allah SWT asked __Ahmad ibn Hanbal__ in a dream, "Ahmad what do you want?"
+    * Ahmad: Allah SWT, What is the easiest way to reach you?
+    * Allah SWT replied, "Then start reading Quran a lot".
 
 ***
 
 
 #### [Kasrat Se Quran Pak Ki Tilawat Se Kya Fawaid Hasil Hote Hain? | SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
-* Start of Mushahida (Quwat-e-Mushahida) starts during Tilawat of Quran-e-Majeed.
-* Israr-e-Ilahi ki Saar
-
-***
+* Start of Mushahida (Quwat-e-Mushahida) happens during Tilawat-of-Quran-e-Majeed.
+* Israr-e-Ilahi
 
 #### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahid Tareeqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
 #### [Importance of Tilawat-e-Quran? | SSA Shah](https://www.youtube.com/watch?v=Q-BoK1oCfns)
 #### [Tilawat-e-Quran Kareem Ki Fazilat | SSA Shah](https://www.youtube.com/watch?v=nf1byixjdzE)
-
-***
-
-* [ParsQuran](http://www.parsquran.com/eng/)
-* [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
 
 ***
 
