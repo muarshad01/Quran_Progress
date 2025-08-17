@@ -55,7 +55,32 @@
 * Start of Mushahida (Quwat-e-Mushahida) happens during Tilawat-of-Quran-e-Majeed.
 * Israr-e-Ilahi
 
-#### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahid Tareeqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
+#### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahih Tareeqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
+###### Bohot tehar-tehar-kar, samajh-samah-kay, aik-aik lafaz-par dehyan-deh-kar, quran kay batin mani bhi hayn. sahi tarjama samajh kar.
+* __Surah 73/4__: [أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا](https://quran.com/73/4)
+* __Surah 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quran.com/87/6) 
+
+##### Learn Arabic Language
+* __Surah 12/2__: [إِنَّآ أَنزَلْنَـٰهُ قُرْءَٰنًا عَرَبِيًّۭا لَّعَلَّكُمْ تَعْقِلُونَ](https://quran.com/12/2)
+* __Surah 42/7__: [وَكَذَٰلِكَ أَوْحَيْنَآ إِلَيْكَ قُرْءَانًا عَرَبِيًّۭا](https://quran.com/42/7)
+
+##### Ikhaq
+* Have you not read the Quran?
+* YOu should've Hadith and Seerah Book with you.
+* How Implementation is done? Without this your will not have the Fehem-of-Quran.
+
+##### Batin of Quran
+* __Surah 110/1__ : [إِذَا جَآءَ نَصْرُ ٱللَّهِ وَٱلْفَتْحُ](https://quran.com/110/1)
+* Hazrat Abu Bakar Siddique started to cry.
+* You associate with Quran. No one will be able to mislead you. Allah SWT tumhari agahi-aur-madad karay-gaa, rahnamai karay goo.
+* Moadad, Ba adab, tawajh, dehyaan, Ghor-o-Fikr, aqbat-ki-fikr, thinkin on how to apply it.
+* Prophet PBUH Sunnh should be in front of you. How PBUH adopted and implemented to revolutionize
+* __Surah 4/103__: [فَإِذَا قَضَيْتُمُ ٱلصَّلَوٰةَ فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ فَإِذَا ٱطْمَأْنَنتُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۚ إِنَّ ٱلصَّلَوٰةَ كَانَتْ عَلَى ٱلْمُؤْمِنِينَ كِتَـٰبًۭا مَّوْقُوتًۭا](https://quran.com/4/103)
+##### Practice of Allah SWT Attributes
+* __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
+* Ghafar
+* Razaq
+* __Surah__: [ٱلَّذِينَ ءَامَنُوا۟ وَتَطْمَئِنُّ قُلُوبُهُم بِذِكْرِ ٱللَّهِ ۗ أَلَا بِذِكْرِ ٱللَّهِ تَطْمَئِنُّ ٱلْقُلُوبُ](https://quran.com/13/28)
 
 ***
 
