@@ -1,3 +1,18 @@
+## Miricle of Quran
+* Read it again-and-again and you'll start understanding its meaning
+* Quran kaa sahar
+   * Wajad tari hona [You and Allah SWT are alone]
+
+***
+
+## What is the easiest way to reach you (Allah)?`
+* Allah SWT asked `Ahmad ibn Hanbal` in a dream - `Ahmad what do you want?`
+    * Allah SWT, `What is the easiest way to reach you?`
+    * Allah SWT replied, `Then start reading Quran a lot`
+
+***
+
+
 #### [Kasrat Se Quran Pak Ki Tilawat Se Kya Fawaid Hasil Hote Hain? | SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
 * Start of Mushahida (Quwat-e-Mushahida) starts during Tilawat of Quran-e-Majeed.
 * Israr-e-Ilahi ki Saar
@@ -45,3 +60,27 @@
 * __Surah Al-An'am 6/126__: [Whoever Allah wills to guide, He OPENS their heart to Islam](https://quran.com/6/126)
 
 *** 
+
+* @@@@
+
+* __Surah Al-An'am 6/125-126__: [Whoever Allah wills to guide, He OPENS their heart to Islam](https://quran.com/6/125-127)
+
+***
+
+## Quran puts a Barrier
+* __Surah Al-Isra 17/45__: [When you ˹O Prophet˺ recite the Quran, We put a hidden barrier between you and those who do not believe in the Hereafter.](https://quran.com/17/45)
+
+***
+
+## Quran has EVERY kind of lesson for people
+* __Surah Kahf 18/54__: [We have surely set forth in this Quran every ˹kind of˺ lesson for people](https://quran.com/18/54)
+
+## `SATAN` Statement in Life Hereafter
+* __Surah Al Araf 7/16-17__: [I'll sit in their Path. Will come from Front-Back-Left-Right](https://quranwbw.com/7#16-17)
+* __Surah Ibrahim 14/22__: [Eye Opening Statement of Shaytan in Life Hereafter](https://quran.com/14/22)
+
+## Knowers and NOT knowers
+* __Surah Baqarah 2/269__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. But none will be mindful ˹of this˺ except people of reason.](https://quran.com/2/269)
+* __Surah Az-Zumar 39/9__: [Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quran.com/39/9)
+
+***
