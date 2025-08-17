@@ -1,5 +1,5 @@
 ## Quran Fazilat
-* [Notes]()
+* [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/quran_fazilat.md)
 
 ***
 
