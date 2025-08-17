@@ -14,7 +14,7 @@
 * This Surah is `HEART-of-Quran` - prophet PUBH
 * Beneficial to read upon people who are about to die
     * Good to read daily for difficulties in life
-* 83 Ayats:
+* Ayats = 83 = 8 + 3 = 11
    * 70-ayats end on `Noon` (Noon - Which dimension of universe?)
    * 12-ayats end on `Meem`
    * 01-ayat ends on `Seen`
