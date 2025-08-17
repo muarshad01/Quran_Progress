@@ -248,6 +248,7 @@
 * [48. Surah Fath](https://quranwbw.com/48) -- August 2024
 * [49. Surah Al-Hujuraat (The Inner Apartment)](https://quranwbw.com/49) -- August 2024
 * [50. Surah Qaaf](https://quranwbw.com/50) -- August 2024
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/50_surah_qaaf.md)
 
 ***
 
