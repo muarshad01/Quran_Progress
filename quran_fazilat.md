@@ -58,5 +58,10 @@
 #### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahid Tareeqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
 #### [Importance of Tilawat-e-Quran? | SSA Shah](https://www.youtube.com/watch?v=Q-BoK1oCfns)
 #### [Tilawat-e-Quran Kareem Ki Fazilat | SSA Shah](https://www.youtube.com/watch?v=nf1byixjdzE)
-
+* Kalam-e-Ilahi, Zikr-e-Ilahi hamari Rooh Ki Ghazaa hai
+1. Keeping: Bayas Barkah
+2. Reading: Bayas Sawab (Reward)
+3. Following: Bayas Nijaat
+4. Listening: Impacts the hearts and impacts-your-personality. Impacts your Rooh (it feels happy) as it grows.
+  
 ***
