@@ -56,12 +56,25 @@
 * Israr-e-Ilahi
 
 #### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahid Tareeqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
-#### [Importance of Tilawat-e-Quran? | SSA Shah](https://www.youtube.com/watch?v=Q-BoK1oCfns)
+
+***
+
+#### [Importance of Tilawat-e-Quran and Treatment Brain Disease | SSA Shah](https://www.youtube.com/watch?v=Q-BoK1oCfns)
+* Every letter of Quran has a power-and-force.
+* When our Tonge strikes-our-Palate with a particuler-angle.
+* Vibration go to our Brain and activate Cells of our Brain.
+* Haroof-e-Muqatat = 14
+* Qaaf: Qalam & Qayamah
+* What time our blood pressure is maximum in 24-hrs
+* Zikr makes your magnetic-field strong.
+
+***
+
 #### [Tilawat-e-Quran Kareem Ki Fazilat | SSA Shah](https://www.youtube.com/watch?v=nf1byixjdzE)
-* Kalam-e-Ilahi, Zikr-e-Ilahi hamari Rooh Ki Ghazaa hai
-1. Keeping: Bayas Barkah
-2. Reading: Bayas Sawab (Reward)
-3. Following: Bayas Nijaat
-4. Listening: Impacts the hearts and impacts-your-personality. Impacts your Rooh (it feels happy) as it grows.
+* Kalam-e-Ilahi, Zikr-e-Ilahi hamari Rooh ki ghazaa-hai
+1. Keeping (Rakhna): Bayas Barkah
+2. Reading (Parhna): Bayas Sawab (Reward)
+3. Following (Amal): Bayas Nijaat
+4. Listening: Impacts the Hearts and impacts-your-personality. Impacts your Rooh (it feels happy) as it grows.
   
 ***
