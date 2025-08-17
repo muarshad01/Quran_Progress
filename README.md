@@ -1,3 +1,8 @@
+### [ParsQuran](http://www.parsquran.com/eng/)
+### [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
+
+***
+
 ## Quran Fazilat
 * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/quran_fazilat.md)
 
