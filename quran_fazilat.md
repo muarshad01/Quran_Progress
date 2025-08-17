@@ -52,9 +52,15 @@
 ***
 
 #### [Kasrat Se Quran Pak Ki Tilawat Se Kya Fawaid Hasil Hote Hain? | SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
-* Start of Mushahida (Quwat-e-Mushahida) happens during Tilawat-of-Quran-e-Majeed.
-* Israr-e-Ilahi
-
+1. Aankhayn dukhnay nahi aatain
+###### Spiritual Benefits
+1. We directly talk with Allah SWT
+2. Faqeer read quran a lot (However, keeps his ibadah secret)
+3. Faqeer does Mushahida (Quwat-e-Mushahida), which starts happening during recitation of-Quran-e-Majeed.
+* Recitation of different ayats causes differnt states on Faqeer, which make him see and observe Israr-e-Ilahi
+* Kamal
+* Memory and Retention Power (Memorize Surah Jummah)
+  
 #### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahih Tareeqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
 ###### Bohot tehar-tehar-kar, samajh-samah-kay, aik-aik lafaz-par dehyan-deh-kar, quran kay batin mani bhi hayn. sahi tarjama samajh kar.
 * __Surah 73/4__: [أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا](https://quran.com/73/4)
@@ -76,11 +82,12 @@
 * Moadad, Ba adab, tawajh, dehyaan, Ghor-o-Fikr, aqbat-ki-fikr, thinkin on how to apply it.
 * Prophet PBUH Sunnh should be in front of you. How PBUH adopted and implemented to revolutionize
 * __Surah 4/103__: [فَإِذَا قَضَيْتُمُ ٱلصَّلَوٰةَ فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ فَإِذَا ٱطْمَأْنَنتُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۚ إِنَّ ٱلصَّلَوٰةَ كَانَتْ عَلَى ٱلْمُؤْمِنِينَ كِتَـٰبًۭا مَّوْقُوتًۭا](https://quran.com/4/103)
+
 ##### Practice of Allah SWT Attributes
 * __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
 * Ghafar
 * Razaq
-* __Surah__: [ٱلَّذِينَ ءَامَنُوا۟ وَتَطْمَئِنُّ قُلُوبُهُم بِذِكْرِ ٱللَّهِ ۗ أَلَا بِذِكْرِ ٱللَّهِ تَطْمَئِنُّ ٱلْقُلُوبُ](https://quran.com/13/28)
+* __Surah 13/28__: [ٱلَّذِينَ ءَامَنُوا۟ وَتَطْمَئِنُّ قُلُوبُهُم بِذِكْرِ ٱللَّهِ ۗ أَلَا بِذِكْرِ ٱللَّهِ تَطْمَئِنُّ ٱلْقُلُوبُ](https://quran.com/13/28)
 
 ***
 
