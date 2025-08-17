@@ -49,15 +49,7 @@
 ***
 
 ## Bismillah
-* https://quran.com/27/30
-* [Bismillah ki tafseer | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
-* [Powerful Wazifa of Bismillah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
-* [Spiritual Effects of Bismillah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
-* [Open the Gates of Protection with Bismillah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
-* [5 Tips for Powerful Bismillah Wazifa Results](https://www.youtube.com/watch?v=6eDrhZDGv3A)
-* [Bismillah Ke "Baay" Ki Wazahat - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
-* [Bismillah ki tafseer | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
-* [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
+* [Bismillah](https://github.com/muarshad01/Quran_Progress/blob/main/Bismillah.md)
 
 ***
 
