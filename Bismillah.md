@@ -1,4 +1,3 @@
-## Bismillahir Rahmanir Raheem
 #### [Powerful Wazifa of Bismillah | SSA Shah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
 #### [Spiritual Effects of Bismillah | SSA Shah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
 #### [Bismillah Ke "Baay" Ki Wazahat | SSA Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
