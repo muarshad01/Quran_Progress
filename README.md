@@ -296,6 +296,7 @@
 * [71. Surah Nuh (Noah)](https://quran.com/71) -- July 2024
 * [72. Surah Jinn (The Jinn)](https://quran.com/72) -- July 2024
 * [73. Surah Al-Muzzammil (The Wrapped Up)](https://quranwbw.com/73) -- July 2024
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/73_surah_muzzamil.md)
 * [74. Surat al-Muddaththir (The Cloaked One)]()
 * [75. Surat al-Qiyamah (The Day of Judgement)]()
 * [76. Surah Al-Insaan (Man)](https://quranwbw.com/76) -- July 2024
