@@ -294,6 +294,7 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/103_surah_asr.md)
 * [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- June 2024
 * [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- June 2024
+   * [Court Me Case Jitne ka Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=RecTScUcTjY)
 * [106. Surah Quresh (Quraish)](https://quran.com/106) -- June 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/106_surah_quresh.md) 
 * [107. Surah Al-Maun (The Act of Kindness)]() -- June 2024
