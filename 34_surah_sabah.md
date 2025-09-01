@@ -1,7 +1,7 @@
 ### [Blessing of Surah Sabah | SSA Shah](https://www.youtube.com/shorts/jgwdnUwUkbg)
-* Recite for 1.5 years (18 monts) after Isha prayers
-* Builds the foundations
-* Insaan, worship Allah SWT ba-khushi
+* Recite for 1.5 years (18 monts) regularly after Isha prayers
+* Builds the foundations for that person
+* Insaan, starts worshipping Allah SWT ba-khushi (with great happiness)
 
 ***
 
