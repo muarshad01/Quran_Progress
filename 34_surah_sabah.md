@@ -1,3 +1,10 @@
+### [Blessing of Surah Sabah | SSA Shah](https://www.youtube.com/shorts/jgwdnUwUkbg)
+* Recite for 1.5 years (18 monts) after Isha prayers
+* Builds the foundations
+* Insaan, worship Allah SWT ba-khushi
+
+***
+
 ### [Surah Saba Rohani Taraqqi Main Kya Kirdaar Ada Karti Hai? | SSA Shah](https://www.youtube.com/watch?v=N-ydb9LGo2U)
 * For building foundations of Spritualism (Rohani-Ilm & Rohani-Taraqi)
     * Recite after Ishaa regurlarly (~1.5 years)
