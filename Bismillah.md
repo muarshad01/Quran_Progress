@@ -30,7 +30,6 @@
 
 ***
 
-#### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 #### [Bismillah ki tafseer | Fehm-ul-Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
 
 ***
