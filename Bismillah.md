@@ -31,6 +31,9 @@
 ***
 
 #### [Bismillah ki tafseer | Fehm-ul-Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
+1. Aqaid
+2. Akham
+3. Qasas
 
 ***
 
