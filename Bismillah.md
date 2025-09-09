@@ -17,7 +17,18 @@
 ***
 
 #### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
+1. Become Selfless
+2. Fulfill the needs, desires, comfort of others over ours
+3. Forgive ALL who will hurt us in future
+4. Remove from heart the wordly desire-of-wealth
+5. 
+
+***
+
 #### [Open the Gates-of-Protection with Bismillah | SSA Shah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
+
+***
+
 #### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 #### [Bismillah ki tafseer | Fehm-ul-Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
 
