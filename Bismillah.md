@@ -1,4 +1,10 @@
 #### [Powerful Wazifa of Bismillah | SSA Shah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
+* 786 times after Isaa, don't talk afterwards and sleep for at least 10 mins.
+* Don't eat Beef and Fish having smell.
+* Also don't eat Garlic, Onion, White Muli
+
+***
+
 #### [Spiritual Effects of Bismillah | SSA Shah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
 #### [Bismillah Ke "Baay" Ki Wazahat | SSA Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
 #### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
