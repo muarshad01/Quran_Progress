@@ -6,6 +6,10 @@
 ***
 
 #### [Spiritual Effects of Bismillah | SSA Shah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
+* Iss mayn pura-quran samaya-hai aur mayn iss-quran-ko apnay-dil-mayn samoo-loon.
+
+***
+
 #### [Bismillah Ke "Baay" Ki Wazahat | SSA Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
 #### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 #### [Open the Gates-of-Protection with Bismillah | SSA Shah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
