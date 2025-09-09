@@ -11,6 +11,11 @@
 ***
 
 #### [Bismillah Ke "Baay" Ki Wazahat | SSA Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
+* Hazrat Ali Karam Allah Wajhu - I recite full quran before sitting on a horse from once i put my feet in rikab.
+* Quaran -> Surah Fatiha -> Bismillah -> Bay -> Nuqta (with choota qaaf)
+
+***
+
 #### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 #### [Open the Gates-of-Protection with Bismillah | SSA Shah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
 #### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
