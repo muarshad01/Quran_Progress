@@ -53,6 +53,13 @@
 ***
 
 ### [Surah Fatiha Ki Ahmiyat | SSA Shah](https://www.youtube.com/watch?v=gSA_RKnzf1A)
+* Surah Yaseen - Heart of Quran
+* Surah Fatiha - Brain of Quran
+* Duaa
+* "aidhi nasirat mustaqeem"
+* Allah SWT attributes: Rehman & Raheem
+* __Al-Hamad Lillah__: Rabb Tallah iss Lafaz-kay-sadqay, apni hamad-bayan honay-say khush-hoo-kar, __loogon ko mushkil-halat-say nikal-daita-hai__
+* __Dushman-ki-dushmani say nijat-mil-jaiti-hai__
 
 ***
 
