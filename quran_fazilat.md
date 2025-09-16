@@ -60,6 +60,8 @@
 * Recitation of different ayats causes differnt states on Faqeer, which make him see and observe Israr-e-Ilahi
 * Kamal
 * Memory and Retention Power (Memorize Surah Jummah)
+
+***
   
 #### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahih Tareeqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
 ###### Bohot tehar-tehar-kar, samajh-samah-kay, aik-aik lafaz-par dehyan-deh-kar, quran kay batin mani bhi hayn. sahi tarjama samajh kar.
