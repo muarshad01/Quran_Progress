@@ -95,9 +95,9 @@
 ***
 
 #### [Importance of Tilawat-e-Quran and Treatment Brain Disease | SSA Shah](https://www.youtube.com/watch?v=Q-BoK1oCfns)
-* Every letter of Quran has a power-and-force.
+* Every letter-of-Quran has a power-and-force.
 * When our Tonge strikes-our-Palate with a particuler-angle.
-* Vibration go to our Brain and activate Cells of our Brain.
+* Vibration go to our Brain and activate Cells-of-our-Brain.
 * Haroof-e-Muqatat = 14
 * Qaaf: Qalam & Qayamah
 * What time our blood pressure is maximum in 24-hrs
@@ -106,7 +106,7 @@
 ***
 
 #### [Tilawat-e-Quran Kareem Ki Fazilat | SSA Shah](https://www.youtube.com/watch?v=nf1byixjdzE)
-* Kalam-e-Ilahi, Zikr-e-Ilahi hamari Rooh ki ghazaa-hai
+* Kalam-e-Ilahi, Zikr-e-Ilahi hamari Rooh-ki ghazaa-hai
 1. Keeping (Rakhna): Bayas Barkah
 2. Reading (Parhna): Bayas Sawab (Reward)
 3. Following (Amal): Bayas Nijaat
