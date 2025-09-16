@@ -39,15 +39,12 @@
 
 ***
 
-### [Surah Fatiha – One Cure for All Pains](https://www.youtube.com/watch?v=yZ7MWDeB6hY)
-
-***
-
 ### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
 * Dushman-say-bachao kay-laye
-* Taubah Allah SWT kay hazoor, jaldi-qabool hoti-hai
-* Insaan gunah nahi karta
-* Nasha choot jata hai
+* Insaan ki Taubah Allah SWT kay-hazoor, jaldi-qabool hoti-hai
+* Insaan dobara-gunah nahi-karta
+* Nasha choot-jata-hai
+* Cure for diseases
 
 ***
 
