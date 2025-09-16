@@ -49,6 +49,16 @@
 ***
 
 ### [Surah Fatiha Se Apni Zindagi Badlien?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
+* Hazrat Ali Karam-Allah-Wajhu RA tafseer - 200 pages
+* Other many Wali-Ullah tafseer - 10 books
+* Duaa
+* Quran had been given in its Hifazat
+* Your Namza is uncomplete without this Surah
+* Hisar for evil forces:
+  * Sad bin Abi Waqas story...
+* Keep reciting and dumm on yourself (at least 40-41 times daily)
+  * Cures ALL sicknesses
+  * Duai mangta rahi -- tuh baray-say-baray masail hal-hotay-hayn
 
 ***
 
