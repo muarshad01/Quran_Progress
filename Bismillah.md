@@ -26,7 +26,8 @@
 ***
 
 #### [Open the Gates-of-Protection with Bismillah | SSA Shah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
-* Dil kay aupur zang aur gard-o-ghubar joo hai woh utar jaata hai. Qalab ainay ki tarah saaf ho jaata hai.
+* Dil-kay-aupur zang aur gard-o-ghubar joo-hai woh utar-jaata-hai.
+* Qalab ainay-ki-tarah saaf ho-jaata-hai.
 
 ***
 
