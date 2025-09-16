@@ -73,7 +73,10 @@
 
 ***
 
-### [Surah Fatiha Main Insaan Ki Takhleeq-Ka Maqsad-Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
+### [Surah Fatiha Main Insaan Ki Takhleeq-Ka Maqsad-Hai? | SSA Shah](https://www.youtube.com/watch?v=hyTSleVTIgg)
+* When a Roah is order to depart from heaven, when its corresponding Jism is created.
+* Roah is ordered to keep Ruju towards its creator
+* Rabb ki Tareef, Iqrar uski-buzurgi-ka (Rabb Al-Alameen), Takhleeq-ka-Maqsad, We ask for Taufeeq (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ),
 
 ***
 
