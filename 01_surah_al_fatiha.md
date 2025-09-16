@@ -44,7 +44,7 @@
 * Insaan ki Taubah Allah SWT kay-hazoor, jaldi-qabool hoti-hai
 * Insaan dobara-gunah nahi-karta
 * Nasha choot-jata-hai
-* Cure for diseases
+* Cure for ALL diseases
 
 ***
 
@@ -65,7 +65,9 @@
 
 ### [Surah Fatiha Main Insaan Ki Takhleeq Ka Maqsad Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
 ### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
-### [Barakah of Surah Fatiha](https://www.youtube.com/watch?v=EX3HNc5kGnU)
+
+***
+
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part 2 | Allama Talib Jauhari](https://www.youtube.com/watch?v=s_Mz1ANEuKM)
 
