@@ -40,7 +40,17 @@
 ***
 
 ### [Surah Fatiha – One Cure for All Pains](https://www.youtube.com/watch?v=yZ7MWDeB6hY)
+
+***
+
 ### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
+* Dushman-say-bachao kay-laye
+* Taubah Allah SWT kay hazoor, jaldi-qabool hoti-hai
+* Insaan gunah nahi karta
+* Nasha choot jata hai
+
+***
+
 ### [Surah Fatiha Se Apni Zindagi Badlien?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
 ### [Surah Fatiha Ki Ahmiyat | SSA Shah](https://www.youtube.com/watch?v=gSA_RKnzf1A)
 ### [Surah Fatiha Main Insaan Ki Takhleeq Ka Maqsad Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
