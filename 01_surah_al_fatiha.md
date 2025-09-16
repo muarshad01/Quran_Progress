@@ -98,7 +98,7 @@
   * Bandagi (Ghulami)
   * Ijazi
   * Two powers, which make Insaan ashraf-al-makhlooqat
-* Joo Ibadat ko mohabbat-samajhta-hai, woh bhar-jata-hai.
+* __Joo Ibadat ko mohabbat-samajhta-hai, woh bhar-jata-hai.__
 * Ibadat mushkil ko anay nahi daiti
 ***
 
