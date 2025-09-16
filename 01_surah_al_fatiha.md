@@ -73,9 +73,24 @@
 
 ***
 
-### [Surah Fatiha Main Insaan Ki Takhleeq Ka Maqsad Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
-### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
+### [Surah Fatiha Main Insaan Ki Takhleeq-Ka Maqsad-Hai?](https://www.youtube.com/watch?v=hyTSleVTIgg)
 
+***
+
+### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
+* Quran-ka-Darwaza
+* Thankfulness - Gham ki deerayn toath jati hayn; takabar marr jata hai
+* 7 ayats, 7 secrets, 7 doors, 7 paths ...
+* Umm-al-Kitab
+  * How to talk? How to make duaa?
+* Jis nay khud-ko Rabb-kay-samnay jhuka-liya, dunya usay ghuk-kar salaam-karti-hai
+* Ahh Allah, mera-rasta sidha-kay-dah
+* Iyyaka na'budu wa iyyaka nasta'een" (إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِينُ)
+  * Bandagi (Ghulami)
+  * Ijazi
+  * Two powers, which make Insaan ashraf-al-makhlooqat
+* Joo Ibadat ko mohabbat-samajhta-hai, woh bhar-jata-hai.
+* Ibadat mushkil ko anay nahi daiti
 ***
 
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
