@@ -64,7 +64,7 @@
 ***
   
 #### [Quraan Majeed Ko Parhne Aur Samajhne Ka Sahih Tareeqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=Xo3UB-TIlFk)
-###### Bohot tehar-tehar-kar, samajh-samah-kay, aik-aik lafaz-par dehyan-deh-kar, quran kay batin mani bhi hayn. sahi tarjama samajh kar.
+* Bohot tehar-tehar-kar, samajh-samah-kay, aik-aik lafaz-par dehyan-deh-kar, quran kay batin mani bhi hayn. sahi tarjama samajh kar.
 * __Surah 73/4__: [أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا](https://quran.com/73/4)
 * __Surah 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quran.com/87/6) 
 
