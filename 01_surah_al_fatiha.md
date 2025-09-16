@@ -1,3 +1,4 @@
+
 ## Umm al-Kitab
 * __Surah Al-Hijr 15/87__: [وَلَقَدْ ءَاتَيْنَـٰكَ سَبْعًۭا مِّنَ ٱلْمَثَانِى وَٱلْقُرْءَانَ ٱلْعَظِيمَ](https://quran.com/15/87)
 * Ayats = 7
@@ -7,6 +8,11 @@
 * Recited at-least 17 time times (Faraz Namaz Rakat) during 5 prayers dails
 * Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-
 * Opens up the secrets (Israr, Rahmat and Barakat)
+
+***
+### Benefits
+* Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai
+* Dushman-Ki-Dushmani se Nijat mil-jaati-hai
 
 ***
 
