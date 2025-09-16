@@ -58,7 +58,7 @@
 * Hazrat Ali Karam-Allah-Wajhu RA tafseer - 200 pages
 * Other many Wali-Ullah tafseer - 10 books
 * Duaa
-* Quran had been given in its Hifazat
+* Quran has been given in its Hifazat
 * Your Namza is uncomplete without this Surah
 * Hisar for evil forces:
   * Sad bin Abi Waqas story...
