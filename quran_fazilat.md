@@ -2,6 +2,7 @@
 * Read it again-and-again and you'll start understanding its meaning
 * Quran kaa-sehar
     * Wajad tari-hona "You and Allah SWT are alone"!
+* __You associate with Quran. No one will be able to mislead you. Allah SWT tumhari agahi-aur-madad karay-gaa, rahnamai karay goo.__
 
 ***
 
@@ -80,9 +81,9 @@
 ##### Batin of Quran
 * __Surah 110/1__ : [إِذَا جَآءَ نَصْرُ ٱللَّهِ وَٱلْفَتْحُ](https://quran.com/110/1)
 * Hazrat Abu Bakar Siddique started to cry.
-* You associate with Quran. No one will be able to mislead you. Allah SWT tumhari agahi-aur-madad karay-gaa, rahnamai karay goo.
+* __You associate with Quran. No one will be able to mislead you. Allah SWT tumhari agahi-aur-madad karay-gaa, rahnamai karay goo.__
 * Moadad, Ba adab, tawajh, dehyaan, Ghor-o-Fikr, aqbat-ki-fikr, thinkin on how to apply it.
-* Prophet PBUH Sunnh should be in front of you. How PBUH adopted and implemented to revolutionize
+* Prophet PBUH Sunnh should be in-front of you. How PBUH adopted and implemented to revolutionize
 * __Surah 4/103__: [فَإِذَا قَضَيْتُمُ ٱلصَّلَوٰةَ فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ فَإِذَا ٱطْمَأْنَنتُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۚ إِنَّ ٱلصَّلَوٰةَ كَانَتْ عَلَى ٱلْمُؤْمِنِينَ كِتَـٰبًۭا مَّوْقُوتًۭا](https://quran.com/4/103)
 
 ##### Practice of Allah SWT Attributes
