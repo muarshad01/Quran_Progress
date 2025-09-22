@@ -11,6 +11,14 @@
   
 ***
 
+### [Surah Taghabun | SSA Shah](https://www.youtube.com/watch?v=UVygoKYmruQ)
+* Recite with Tarteel
+* If possible in to recite in open-space else in a close room.
+* Must recite
+* You'll get a lot-of-benefits
+
+***
+
 #### [Surah Taghabun Ka Wazifa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
 * 3-times daily
 * Wealth-and-Khair in the house
