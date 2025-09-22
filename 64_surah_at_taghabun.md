@@ -3,7 +3,11 @@
 ***
 
 ### [Surah Taghabin ki Fazilat Kya Hau](https://www.youtube.com/shorts/f91vhya6F_8)
-
+* Danista aur Na-danista Shagira aur Kabira Gunah
+* Planned mistakes
+* Innocent mistakes
+* Gunahon kay asrat khatam ho jatay hayn
+  
 ***
 
 ### [📢Surah Taghabun Ka Wazifa |🤑💰Maal Me Khair O Barkat Ka Wazifa|1Din Me Har Hajat Poori Hone Ka Wazifa](https://www.youtube.com/watch?v=S0k_1zUvd6M)
