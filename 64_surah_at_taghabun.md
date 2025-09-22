@@ -11,16 +11,18 @@
   
 ***
 
-### [📢Surah Taghabun Ka Wazifa |🤑💰Maal Me Khair O Barkat Ka Wazifa|1Din Me Har Hajat Poori Hone Ka Wazifa](https://www.youtube.com/watch?v=S0k_1zUvd6M)
-
-***
-
-### [Maal Me Khair-o-Barkat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
+#### [Surah Taghabun Ka Wazifa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
+* 3-times daily
+* Wealth-and-Khair in the house
+* Zalim-Jabir-Shaks: Recite 3-times and then go meet that person
 * Yum-e-Azam (Yum-e-Taghuban)
+* Sickness: Recite 41-time and blow on that person
+* Travel: Recite 3-times
+* Duas are accepted of that person
 
 ***
 
-### Surah AL-Taghaboon
+#### Surah AL-Taghaboon
 * [Arzang-e-Faqeer : Session 06 Surah Al-Taghaboon](https://www.youtube.com/watch?v=j_OgniH_t0c)
 * Number 64 = 63 + 1
 * 18 Ayats
