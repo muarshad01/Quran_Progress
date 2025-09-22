@@ -11,6 +11,17 @@
   
 ***
 
+#### [The Most Powerful Wazifa of Surah Tagabun | SSA Shah](https://www.youtube.com/watch?v=86m5Nq1Wl4Y)
+* Hamara Rabb hamaray saath-hai
+* Woh hamesha zinda-aur-qaim hai
+* Phir hamayn kahi-ki-fiqr
+* Recite Surah Taghuban after Isha prayers
+* Tuh-nay-mujhay sari-zindagi achi-halat-mayn rakha-hai
+* Agar yeah-char-din ki takleef aa-gayi-hai
+* Mujhay pura-yaqeen-hai, tuh isay-bhi apni Rehmat say jaldi tall-deh-gaa
+* Bay shak, Rabb aus takleef-ko khatam kar-detah-hai
+***
+
 #### [Surah Taghabun | SSA Shah](https://www.youtube.com/watch?v=UVygoKYmruQ)
 * Recite with Tarteel
 * If possible in to recite in open-space else in a close room.
