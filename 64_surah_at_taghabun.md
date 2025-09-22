@@ -11,7 +11,7 @@
   
 ***
 
-### [Surah Taghabun | SSA Shah](https://www.youtube.com/watch?v=UVygoKYmruQ)
+#### [Surah Taghabun | SSA Shah](https://www.youtube.com/watch?v=UVygoKYmruQ)
 * Recite with Tarteel
 * If possible in to recite in open-space else in a close room.
 * Must recite
@@ -38,7 +38,7 @@
 
 ***
 
-### `Allah Ki Pehchan, Tauraf`
+#### `Allah Ki Pehchan, Tauraf`
 * https://hamariweb.com/islam/download-Surah-Taghabun-urdu-translation-pdf
 * `Meri qudrat kaisi hay`
 * Mayn koon hoon?
