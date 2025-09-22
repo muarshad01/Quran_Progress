@@ -2,7 +2,7 @@
 
 ***
 
-### [Surah Taghabin ki Fazilat Kya Hau](https://www.youtube.com/shorts/f91vhya6F_8)
+### [Surah Taghabin ki Fazilat Kya Hau | SSA Shah](https://www.youtube.com/shorts/f91vhya6F_8)
 * Danista aur Na-danista Shagira aur Kabira Gunah
 * Planned mistakes
 * Innocent mistakes
