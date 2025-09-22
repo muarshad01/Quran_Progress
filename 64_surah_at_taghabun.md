@@ -1,12 +1,13 @@
-### [Surah Taghabun: Cure for Inner Chaos | SSA Shah](https://www.youtube.com/watch?v=umlnQ8J2YUU)
+### [Cure for Inner Chaos | SSA Shah](https://www.youtube.com/watch?v=umlnQ8J2YUU)
 
 ***
 
 ### [Surah Taghabin ki Fazilat Kya Hau | SSA Shah](https://www.youtube.com/shorts/f91vhya6F_8)
-* Danista aur Na-danista Shagira aur Kabira Gunah
+* Danista-aur-Na-danista, Shagira-aur-Kabira Gunah
 * Planned mistakes
 * Innocent mistakes
-* Gunahon kay asrat khatam ho jatay hayn
+* When you do Taubah; Want to come out of the effects of your mistakes; When you fear Allah SWT is taking you to task.
+* Gunahon-kay-asraat khatam hoo-jatay-hayn
   
 ***
 
