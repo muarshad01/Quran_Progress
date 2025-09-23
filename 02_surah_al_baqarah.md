@@ -6,6 +6,14 @@
 * Regular recition of Surah Al-Baqarah helps in nafas-par qaboo-pana
 
 ### [Benefits of First Three Rukus - Ayats: 1-29](https://www.youtube.com/shorts/s3_yBHCKipY)
+1. Insaan ko apni khatayon-ka-Ihsaas honay-lagta-hai
+2. Allah Tallah kay saath mohabbat
+3. Rabb par pyaar anay lagta-hai
+5. __Rabb kay saath Ishq-kay-safar ki Ibtida-hai__
+6. Produces self-confidence
+
+***
+
 ### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
 
 
