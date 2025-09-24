@@ -1,11 +1,13 @@
 ### [Yearning for God | Prof. ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
-* Uss Ikhlas kay mamooli say zaray ko joo ibtada-e-hayat mayn merey naseeb mayn tha
+* Uss-Ikhlas-kay mamooli-say-zaray-ko joo ibtada-e-hayat mayn merey-naseeb mayn-tha
+* Mayn nay sirf ushi-ko use-kya...usi-ko exploit-karta-raha
 * Allah SWT you know at-least I'm a bit sincere with you-:)
 * Tujhary zaib-nahi-deyta keh mataya-faqeer zaya-karay
-* Tujhary zaib-nahi-deyta keh merey is-talab ki tauheen-ho
-* Mayn terey liye, tery-tawajah ka talib-hoon aur mayn-tujhay zaroor ...matloob bana-kay chooron gaa
-* Khuda nay khabi kisi-talab ko zaya-nahi-kya
-'***
+* Tujhary zaib-nahi-deyta keh mery-iss talab-ki tauheen-ho
+* Mayn terey liye, tery-tawajah ka talib-hoon ...aur mayn-tujhay zaroor tujhay matloob bana-kay chooron-gaa
+* __Khuda nay khabi kisi-talab ko zaya-nahi-kya__
+
+***
 
 ### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
 ### [Surah Ikhlas Ki Mukammal Tafseer | Dr Israr Ahmad](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
