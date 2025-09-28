@@ -12,11 +12,11 @@
 
 ***
 
-* Ya-Seen is one of the `haroof-e-muqataat`, short form of, `Ya Sayyad-ul-Bashar`
+* Ya-Seen is one of the `Haroof-e-Muqataat`, short form of, __Ya Sayyad-ul-Bashar__
 * One of those `72 names (titles)`, which were given to prophet PBUH Pon `Shab-e-Miraj`
-* This Surah is `HEART-of-Quran` - prophet PUBH
+* This Surah is __HEART-of-Quran__ - prophet PUBH
 * Beneficial to read upon people who are about to die
-    * Good to read daily for difficulties in life
+    * Good to read daily for difficulties-in-life
 * Ayats = 83 = 8 + 3 = 11
    * 70-ayats end on `Noon` (Noon - Which dimension of universe?)
    * 12-ayats end on `Meem`
@@ -33,3 +33,7 @@
 ***
 
 #### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
+* Heat-of-Quran
+* 5 Rukus; 83 Ayats
+
+***
