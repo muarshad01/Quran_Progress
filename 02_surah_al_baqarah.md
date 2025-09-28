@@ -17,6 +17,11 @@
 * Sadqah Khariat
     * Help his makhlooq
 
+### Pakistan 
+* Future is Pakistan
+* Pakistan will attain hights...
+* 1 to 1.5 years...we'll be proud Pakistanis
+  
 ***
 
 ### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
