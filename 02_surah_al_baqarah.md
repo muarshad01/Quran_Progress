@@ -12,6 +12,10 @@
 5. __Rabb kay saath Ishq-kay-safar ki Ibtida-hai__
 6. Produces self-confidence
 
+### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
+* Jadu ka Toar, Taweezon ka Toar, Nazr-e-Baad Ka Toar (First three Rukus of Surah Baqarah)
+* Sadqah Khariat
+
 ***
 
 ### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
