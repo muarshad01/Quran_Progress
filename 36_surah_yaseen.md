@@ -3,6 +3,12 @@
 3. Malik ka Mahboob
 
 *** 
+## [BENEFITS of Surah Yaseen | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=wWBOPtmYivg)
+* Surah Dafiaa - Dafa Karna
+* Surah Qaziaa - Saab-hajat puri-karna
+* Surah Mutim - Imtamam karnay wali; hadiyat-aur-falah
+
+***
 
 #### [Tafsee Surah Yassen | Allama Talib Johri](https://www.youtube.com/watch?v=GoB-ZbbhYZY)
 
