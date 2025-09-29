@@ -92,7 +92,7 @@
 
 ### Chapter 15
 * [17. Surah Al-Israa](https://quranwbw.com/17)
-   * [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/17_surah_al-Isra.md)
 
 ***
 
