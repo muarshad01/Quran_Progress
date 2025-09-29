@@ -2,6 +2,9 @@
 #### [Benefits of surah rehman | Dr Israr Ahmed](https://www.youtube.com/watch?v=78mZcNXV4jk)
 #### [Meezan Kia hai? | Fehm-ul-Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
 
+#### [Surah Ar-Rahman: The Healing Miracle You Need! | SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
+
+
 * [Chapter: No One Will Enter Paradise By Virtue Of His Deeds, Rather By The Mercy Of Allah, Exalted Is He](https://sunnah.com/muslim:2818a) -- Sahih Muslim 2818a
 
 ***
