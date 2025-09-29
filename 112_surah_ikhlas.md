@@ -35,6 +35,7 @@
         * Raab-ka-qurab hasil-hota-hai
 ***
 
-#### [Surah Ar-Rahman: The Healing Miracle You Need! | SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
-
+#### [Surah Ar-Rahman: The Healing Miracle You Need! (Surah Ikhlas)| SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
+* Surah Ikhlas: Rabb ka Jalal
+* Baad-Roohayn / Ghair-marai-quwateen bhaag jaati-hayn
 ***
