@@ -1,3 +1,7 @@
+### [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
+
+***
+
 ### [Meraj ke Safar ka Naqsha | Mufti Saeed Majadari](https://www.youtube.com/watch?v=ltja-e7azpI)
 1. Hazrat Adam AS
 2. Hazrat Issa AS & Hazrat Yahya AS
