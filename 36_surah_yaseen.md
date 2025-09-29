@@ -1,4 +1,4 @@
-1. Ya-Syed-ul-Bashar
+1. Ya Syed-ul-Bashar
 2. Khuda Ka Raazdan (Closeness to prophet PBUH)
 3. Malik ka Mahboob
 
@@ -45,5 +45,6 @@
 #### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
 * Heat-of-Quran
 * 5 Rukus; 83 Ayats
+* Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai
 
 ***
