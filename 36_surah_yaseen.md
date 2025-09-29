@@ -8,6 +8,10 @@
 
 ***
 
+#### [Ya-Seen Ka Kya-Matlab Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=Y9am2W3fHIc)
+
+***
+
 #### [The Most Powerful Wazifa of Surah Yaseen | SSA Shah](https://www.youtube.com/watch?v=VPAtsLjw4FE)
 
 ***
