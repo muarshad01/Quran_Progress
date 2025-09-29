@@ -34,3 +34,7 @@
     * Read only for sake of Allah SWT, keeping in mind this is His qalam-e-ilahi
         * Raab-ka-qurab hasil-hota-hai
 ***
+
+#### [Surah Ar-Rahman: The Healing Miracle You Need! | SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
+
+***
