@@ -1,5 +1,5 @@
-1. Ya Syed-ul-Bashar
-2. Khuda Ka Raazdan (Closeness to prophet PBUH)
+1. __Ya Syed-ul-Bashar__
+2. __Khuda Ka Raazdan__ (Closeness to prophet PBUH)
 3. Malik ka Mahboob
 
 *** 
