@@ -30,6 +30,16 @@
 
 ***
 
+### [Shab-e-Miraj | Ehkamat 24 - 29 | SSA Shah](https://www.youtube.com/watch?v=t88JoNNi2hM)
+* 24 - Zahiri-aur-Baatni Pakeegzi (Shooch durast ho jaai)
+* 25 - Don't call anyone with a bad name
+* 26 - Taank-Jhank aur Mehfil-mayn-shargooshion say doar-rehayn
+* 27 - Always tal Haqq
+* 28 - Ful-fill the promise
+* 29 - Haar-aik-ki parda-daari kar-lee-jai
+
+***
+
 ### [Meraj ke Safar ka Naqsha | Mufti Saeed Majadari](https://www.youtube.com/watch?v=ltja-e7azpI)
 1. Hazrat Adam AS
 2. Hazrat Issa AS & Hazrat Yahya AS
