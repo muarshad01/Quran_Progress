@@ -22,9 +22,9 @@
 #### [BENEFITS of Surah Yaseen | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=wWBOPtmYivg)
 * Aulad kay liye - 3-times daily
 * After hamal - 1-time daily (No birth-complication)
-* __Surah Daafia__ - Balaaon ko daafaa-karnay-wali
-* __Surah Qaziaa__ - Hajatayn puri-karna wali
-* Surah Mutim - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah.
+* __Surah Dafia__ - Balaaon ko daafaa-karnay-wali
+* __Surah Qazia__ - Hajatayn puri-karna wali
+* __Surah Mutim_ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
 * 7 Mubeen Wazifa
 
 ***
