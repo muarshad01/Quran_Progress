@@ -5,9 +5,9 @@
 *** 
 
 #### [BENEFITS of Surah Yaseen | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=wWBOPtmYivg)
-* Surah Dafiaa - Dafa Karna
-* Surah Qaziaa - Saab-hajat puri-karna
-* Surah Mutim - Imtamam karnay wali; hadiyat-aur-falah
+* Surah Daafia - Balaoon ko daafaa-karnay-wali
+* Surah Qaziaa - Hajatayn puri-karna wali
+* Surah Mutim - Imtamam karnay wali; hadiyat-aur-falah kay jitnay bhi rastay hayn...allah SWT app par tamam kar deyn gah.
 * 7 Mubeen Wazifa
 
 ***
