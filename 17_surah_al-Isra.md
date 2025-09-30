@@ -2,6 +2,24 @@
 
 ***
 
+### [Miraj Rohani Thi Ya Jismani? | SSA Shah](https://www.youtube.com/watch?v=OXoBvkz62Fg)
+* Greek Mythology
+* Hindu Mythology
+* Islamic Mythology
+* Speed of light...
+* Rays 200x faster than speed-of-light...
+* ...
+
+***
+
+### [Shab-e-Miraj | Ehkamat 15 - 18 | SSA Shah](https://www.youtube.com/watch?v=TzaaCQNeRy4)
+* 15 - Parents respect; Not even Uff; Don't break their heart
+* 16 - Don't talk loud; Loud voice is voice of Donkey
+* 17 - Soock ki Pakeezgi. Haus-o-Hawas ko durast rakheen. Sooch ko pakeeza-rakhin. Start of every thing is sooch-or-khyal. Then Irada and aftwerwards amaal.
+* 18 - Apas mayn itefaaq. Couresy!
+
+***
+
 ### [Meraj ke Safar ka Naqsha | Mufti Saeed Majadari](https://www.youtube.com/watch?v=ltja-e7azpI)
 1. Hazrat Adam AS
 2. Hazrat Issa AS & Hazrat Yahya AS
