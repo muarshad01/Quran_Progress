@@ -48,10 +48,10 @@
    * 36/5: [Al-Azizu, Al-Raheemu](https://quranwbw.com/36/5)
    * 36/11: [Al-Rahmanu](https://quranwbw.com/36/11)
    * 36/38: [Al-Azizu, Al-Aleemu](https://quranwbw.com/36/38) 
-* Recite: 3 times after Fajar prayer
+* __Recite: 3 times after Fajar prayer__
 * Recite: 5 times after Ishaa prayer
-    * Attitude towards-life changes. People get-attracted-to-him
-    * Improvement: Mentally, physically, socially, economically
+    * __Attitude towards-life changes. People get-attracted-to-him__
+    * __Improvement: Mentally, physically, socially, economically__
 
 ***
 
