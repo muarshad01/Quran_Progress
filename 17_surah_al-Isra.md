@@ -12,6 +12,16 @@
 
 ***
 
+### [Shab-e-Miraj | Ehkamat 9 - 14 | SSA Shah](https://www.youtube.com/watch?v=3gc77YyTDgw)
+* 9 - Adal; halal-o-harm;
+* 10 - No Hasad, Bugaz, aur Khena. Faqar-o-Darwaish...Dil aina-ki-tarah saaf-hoo
+* 11 - Sedhay ho kar chalary jai...it causes gharoor-and-keena
+* 12 - Haqooq Allah for others...
+* 13 -
+* 14 - Apni-aur-doosron ki abroo-ki-hifazat
+
+*** 
+
 ### [Shab-e-Miraj | Ehkamat 15 - 18 | SSA Shah](https://www.youtube.com/watch?v=TzaaCQNeRy4)
 * 15 - Parents respect; Not even Uff; Don't break their heart
 * 16 - Don't talk loud; Loud voice is voice of Donkey
