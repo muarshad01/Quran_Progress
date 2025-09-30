@@ -26,6 +26,7 @@
 * __Surah Qazia__ - Hajatayn puri-karna wali
 * __Surah Mutim_ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
 * 7 Mubeen Wazifa
+* 21-times daily: Husband returned back...-:)
 
 ***
 
