@@ -8,6 +8,7 @@
 * Surah Dafiaa - Dafa Karna
 * Surah Qaziaa - Saab-hajat puri-karna
 * Surah Mutim - Imtamam karnay wali; hadiyat-aur-falah
+* 7 Mubeen Wazifa
 
 ***
 
