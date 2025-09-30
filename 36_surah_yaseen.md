@@ -4,16 +4,33 @@
 
 *** 
 
+#### [BENEFITS and VIRTUES of Surah Yasin | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=nXSNsBq4u_U)
+* Number 36; Makki; Heart-of-Quran
+* Mubaligh-e-Azam (Muhammad PBUH)
+* Ibrahim Khalil Allah
+* Musa Kaleem Allah
+* Issa Rooh Allah
+* Nuh Safiullah (نوح صفی اللہ)
+* Yusuf Haseem Allah
+* Yaqoob Nabi Allah
+
+* 5 aqli-dalayal risalat-par 
+* 5 shiway kufar-say
+
+***
+
 #### [BENEFITS of Surah Yaseen | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=wWBOPtmYivg)
-* Surah Daafia - Balaoon ko daafaa-karnay-wali
-* Surah Qaziaa - Hajatayn puri-karna wali
-* Surah Mutim - Imtamam karnay wali; hadiyat-aur-falah kay jitnay bhi rastay hayn...allah SWT app par tamam kar deyn gah.
+* Aulad kay liye - 3-times daily
+* After hamal - 1-time daily (No birth-complication)
+* __Surah Daafia__ - Balaaon ko daafaa-karnay-wali
+* __Surah Qaziaa__ - Hajatayn puri-karna wali
+* Surah Mutim - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah.
 * 7 Mubeen Wazifa
 
 ***
 
 #### 7 Mubeens [12,17,24,47,60,69,77]
-* 1 - __Surah 36/12__: [إِنَّا نَحْنُ نُحْىِ ٱلْمَوْتَىٰ وَنَكْتُبُ مَا قَدَّمُوا۟ وَءَاثَـٰرَهُمْ ۚ وَكُلَّ شَىْءٍ أَحْصَيْنَـٰهُ فِىٓ إِمَامٍۢ مُّبِينٍۢ](https://quran.com/36/12)
+* 1 - __Surah 36/12 (Loh-e-Mehfooz)__: [إِنَّا نَحْنُ نُحْىِ ٱلْمَوْتَىٰ وَنَكْتُبُ مَا قَدَّمُوا۟ وَءَاثَـٰرَهُمْ ۚ وَكُلَّ شَىْءٍ أَحْصَيْنَـٰهُ فِىٓ إِمَامٍۢ مُّبِينٍۢ](https://quran.com/36/12)
 * 2 - __Surah 36/17__: [وَمَا عَلَيْنَآ إِلَّا ٱلْبَلَـٰغُ ٱلْمُبِينُ](https://quran.com/36/17)
 * 3 - __Surah 36/24__: [إِنِّىٓ إِذًۭا لَّفِى ضَلَـٰلٍۢ مُّبِينٍ](https://quran.com/36/24)
 * 4 - __Surah 36/47__: [وَإِذَا قِيلَ لَهُمْ أَنفِقُوا۟ مِمَّا رَزَقَكُمُ ٱللَّهُ قَالَ ٱلَّذِينَ كَفَرُوا۟ لِلَّذِينَ ءَامَنُوٓا۟ أَنُطْعِمُ مَن لَّوْ يَشَآءُ ٱللَّهُ أَطْعَمَهُۥٓ إِنْ أَنتُمْ إِلَّا فِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/36/47)
