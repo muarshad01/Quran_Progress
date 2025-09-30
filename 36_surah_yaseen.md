@@ -58,6 +58,6 @@
 #### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
 * Heat-of-Quran
 * 5 Rukus; 83 Ayats
-* Shadeed-mushkilat-mayn iss surat-ki __kasrat-say-tilawat__ ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai
+* __Shadeed-mushkilat-mayn__ iss surat-ki __kasrat-say-tilawat__ ki-jai tu, __musaibat taal-jaati-hai__...insaan araam say guzar-jaata-hai
 
 ***
