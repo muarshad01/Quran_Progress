@@ -1,4 +1,4 @@
-#### [Bismillahir Rahmanir Raheem](https://qurantalkblog.com/2021/11/14/bismillah-19-letters/)
+#### [Bismillahir Rahmanir Raheem (بِسْمِ اللهِ الرَّحْمٰنِ الرَّحِيْمِ)](https://qurantalkblog.com/2021/11/14/bismillah-19-letters/)
 * It is the first verse written on Loh-e-Mehfooz situated on Arsh-e-Maulaa
 * __Surah At-Tawbah 9__ doesn't start with this Ayat.
 * __Surah An-Namal 27/30 (Repeat...)__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ][It is from Solomon, and it reads: ‘In the Name of Allah—the Most Compassionate, Most Merciful.](https://quran.com/27/30)
