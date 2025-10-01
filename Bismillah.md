@@ -20,7 +20,7 @@
 ***
 
 #### [Bismillah Ke "Baay" Ki Wazahat | SSA Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
-* Hazrat Ali Karam Allah Wajhu - I recite full-Quran before sitting-on-a-horse from once i put my feet in rikab.
+* Hazrat Ali Karam Allah Wajhu - I recite full-Quran before sitting-on-a-horse from once i put-my-feet-in-rikab.
 * FUll Quaran -> Surah Fatiha -> Bismillah -> Bay -> Nuqta (with choota Qaaf)
 
 ***
