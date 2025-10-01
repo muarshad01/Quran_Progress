@@ -9,7 +9,16 @@
 * Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-
 * Opens up the secrets (Israr, Rahmat and Barakat)
 
+
 ***
+
+* Al-sabah Al-masani
+* Al-munajat
+* Asas-ul-Quran
+* Umm-ul-Quran
+
+***
+
 ### Benefits
 * Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai
 * Dushman-Ki-Dushmani se Nijat mil-jaati-hai
