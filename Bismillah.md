@@ -9,7 +9,7 @@
 
 #### [Powerful Wazifa of Bismillah | SSA Shah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
 * 786 times after Isaa, don't talk afterwards and sleep for at least 10 mins.
-* Don't eat Beef and Fish having smell.
+* Don't eat Beef-and-Fish having smell.
 * Also don't eat Garlic, Onion, White Muli
 
 ***
