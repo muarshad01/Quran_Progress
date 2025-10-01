@@ -47,3 +47,7 @@
 * Sahara Allah Ka Naam Ka
 
 ***
+
+#### [Bismillah Sharif NUMBER 19 KA WAZIFA | Dr. Fahad Artani](https://www.youtube.com/watch?v=p2VjBPZPmos)
+
+***
