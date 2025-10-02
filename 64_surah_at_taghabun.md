@@ -6,7 +6,7 @@
 * Danista-aur-na-danista, Shageea-aur-Kabira Gunah
 * Planned mistakes
 * __Innocent mistakes__
-* When you do Taubah; Want to come-out of the-effects-of-your-mistakes; When you fear that Allah SWT is taking you to task.
+* __When you do Taubah; You want to come-out of the-effects-of-your-mistakes; When you fear that Allah SWT is taking-you-to-task.__
 * __Gunahon-kay-asraat khatam hoo-jatay-hayn__
   
 ***
