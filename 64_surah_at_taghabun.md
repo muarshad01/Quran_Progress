@@ -27,7 +27,7 @@
 * If possible, try to recite in open-space else in a close-room.
 * Must recite
 * __You'll get a lot-of-benefits__
-* After Surah Fatiha / Bismillah Wazifa sleep for some time without talking with someone.
+* After Surah Fatiha / Bismillah Wazifa sleep-for-some-time without talking with someone.
 
 ***
 
