@@ -46,6 +46,7 @@
 * [Arzang-e-Faqeer : Session 06 Surah Al-Taghaboon](https://www.youtube.com/watch?v=j_OgniH_t0c)
 * Number 64 = 63 + 1
 * 18 Ayats
+* 2 Rukus
 
 ***
 
