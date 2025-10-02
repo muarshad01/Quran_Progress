@@ -5,7 +5,7 @@
 #### [Surah Taghabin ki Fazilat Kya Hau | SSA Shah](https://www.youtube.com/shorts/f91vhya6F_8)
 * Danista-aur-na-danista, Shageea-aur-Kabira Gunah
 * Planned mistakes
-* Innocent mistakes
+* __Innocent mistakes__
 * When you do Taubah; Want to come out of the effects of your mistakes; When you fear Allah SWT is taking you to task.
 * Gunahon-kay-asraat khatam hoo-jatay-hayn
   
