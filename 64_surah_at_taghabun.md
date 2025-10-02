@@ -2,7 +2,7 @@
 
 ***
 
-#### [Surah Taghabin ki Fazilat Kya Hau | SSA Shah](https://www.youtube.com/shorts/f91vhya6F_8)
+#### [Surah Taghabun ki Fazilat Kya Hau | SSA Shah](https://www.youtube.com/shorts/f91vhya6F_8)
 * Danista-aur-na-danista, Shageea-aur-Kabira Gunah
 * Planned mistakes
 * __Innocent mistakes__
