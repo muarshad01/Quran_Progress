@@ -6,27 +6,27 @@
 * Danista-aur-na-danista, Shageea-aur-Kabira Gunah
 * Planned mistakes
 * __Innocent mistakes__
-* When you do Taubah; Want to come out of the effects of your mistakes; When you fear Allah SWT is taking you to task.
-* Gunahon-kay-asraat khatam hoo-jatay-hayn
+* When you do Taubah; Want to come-out of the-effects-of-your-mistakes; When you fear that Allah SWT is taking you to task.
+* __Gunahon-kay-asraat khatam hoo-jatay-hayn__
   
 ***
 
 #### [The Most Powerful Wazifa of Surah Tagabun | SSA Shah](https://www.youtube.com/watch?v=86m5Nq1Wl4Y)
-* Hamara Rabb hamaray saath-hai
-* Woh hamesha zinda-aur-qaim hai
-* Phir hamayn kahi-ki-fiqr
+* Hamara-Rabb hamaray saath-hai
+* Woh-hamesha zinda-aur-qaim hai
+* Phir-hamayn kahay-ki-fiqr
 * Recite Surah Taghuban after Isha prayers
 * Tuh-nay-mujhay sari-zindagi achi-halat-mayn rakha-hai
 * Agar yeah-char-din ki takleef aa-gayi-hai
-* Mujhay pura-yaqeen-hai, tuh isay-bhi apni Rehmat say jaldi tall-deh-gaa
+* Mujhay pura-yaqeen-hai, tuh isay-bhi apni-Rehmat-say jaldi tall-deah-gaa
 * Bay shak, Rabb aus takleef-ko khatam kar-detah-hai
 ***
 
 #### [Surah Taghabun | SSA Shah](https://www.youtube.com/watch?v=UVygoKYmruQ)
 * Recite with Tarteel
-* If possible in to recite in open-space else in a close room.
+* If possible, try to recite in open-space else in a close-room.
 * Must recite
-* You'll get a lot-of-benefits
+* __You'll get a lot-of-benefits__
 * After Surah Fatiha / Bismillah Wazifa sleep for some time without talking with someone.
 
 ***
@@ -34,7 +34,7 @@
 #### [Surah Taghabun Ka Wazifa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
 * 3-times daily
 * Wealth-and-Khair in the house
-* Zalim-Jabir-Shaks: Recite 3-times and then go meet that person
+* __Zalim-Jabir-Shaks: Recite 3-times and then go meet that person__
 * Yum-e-Azam (Yum-e-Taghuban)
 * Sickness: Recite 41-time and blow on that person
 * Travel: Recite 3-times
@@ -51,9 +51,9 @@
 
 #### `Allah Ki Pehchan, Tauraf`
 * https://hamariweb.com/islam/download-Surah-Taghabun-urdu-translation-pdf
-* `Meri qudrat kaisi hay`
-* Mayn koon hoon?
-* Kaisa hoon?
+* Meri qudrat-kaisi-hay
+* Mayn koon-hoon?
+* Kaisa-hoon?
 * How you can know me?
 * `Surah Taghaabun` and `Surah Rahman` are related!!
 
