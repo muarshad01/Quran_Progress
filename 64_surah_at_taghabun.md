@@ -15,11 +15,11 @@
 * Hamara-Rabb hamaray saath-hai
 * Woh-hamesha zinda-aur-qaim hai
 * Phir-hamayn kahay-ki-fiqr
-* Recite Surah Taghuban after Isha prayers
+* Recite Surah Taghuban after Isha-Prayers
 * Tuh-nay-mujhay sari-zindagi achi-halat-mayn rakha-hai
-* Agar yeah-char-din ki takleef aa-gayi-hai
-* Mujhay pura-yaqeen-hai, tuh isay-bhi apni-Rehmat-say jaldi tall-deah-gaa
-* Bay shak, Rabb aus takleef-ko khatam kar-detah-hai
+* Agar yeah-char-din ki-takleef aa-gayi-hai
+* __Mujhay pura-yaqeen-hai, tuh isay-bhi apni-REHMAT-say jaldi tall-deah-gaa__
+* __BAY-AHAK, Rabb aus-takleef-ko khatam kar-detah-hai__
 ***
 
 #### [Surah Taghabun | SSA Shah](https://www.youtube.com/watch?v=UVygoKYmruQ)
