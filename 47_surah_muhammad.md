@@ -1,11 +1,11 @@
-### [Surah Muhammad SAW - Israr-e-Ilahi | SSA Shah](https://www.youtube.com/watch?v=u-YURexBsQo)
+#### [Surah Muhammad SAW - Israr-e-Ilahi | SSA Shah](https://www.youtube.com/watch?v=u-YURexBsQo)
 * `Baba Farid-ud-din Ganj-shakar` (13th Century)
 * For Israr-e-Ilahi , recite Surah Muhammad
 * 41x in one-sitting
 
 *** 
 
-### [Surah Muhammad MEANING, VIRTUES and BENEFITS | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=c_8BIIGurzY)
+#### [Surah Muhammad Meaning, Virtues and Benefitsv| Mufti Muneer Akhoon](https://www.youtube.com/watch?v=c_8BIIGurzY)
 * Hamad-e-Azam
 * Ahmed - Who praised Allah SWT the most
 * Reward: Made him Muhammad (The most praised). Wa rafana la ka zirkif. Became part of Kalma!
