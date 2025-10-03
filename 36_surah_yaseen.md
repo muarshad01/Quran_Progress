@@ -1,3 +1,8 @@
+* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai__
+* __Improvement: Mentally, physically, socially, economically__
+
+***
+
 #### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
 * Heat-of-Quran
 * 5 Rukus; 83 Ayats
