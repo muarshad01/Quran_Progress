@@ -1,3 +1,10 @@
+#### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
+* Heat-of-Quran
+* 5 Rukus; 83 Ayats
+* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai__
+
+***
+
 1. __Ya Syed-ul-Bashar__
 2. __Khuda Ka Raazdan__ (Closeness to prophet PBUH)
 3. Malik ka Mahboob
@@ -7,11 +14,11 @@
 #### [BENEFITS and VIRTUES of Surah Yasin | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=nXSNsBq4u_U)
 * Number 36; Makki; Heart-of-Quran
 * Mubaligh-e-Azam (Muhammad PBUH)
+* Nuh Safiullah (نوح صفی اللہ)
 * Ibrahim Khalil Allah
 * Musa Kaleem Allah
 * Issa Rooh Allah
-* Nuh Safiullah (نوح صفی اللہ)
-* Yusuf Haseem Allah
+* Yusuf Haseen Allah
 * Yaqoob Nabi Allah
 
 * 5 aqli-dalayal risalat-par 
@@ -24,8 +31,8 @@
 * After hamal - 1-time daily (No birth-complication)
 * __Surah Dafia__ - Balaaon ko daafaa-karnay-wali
 * __Surah Qazia__ - Hajatayn puri-karna wali
-* __Surah Mutim_ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
-* 7 Mubeen Wazifa
+* __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
+* 7-Mubeen Wazifa
 * 21-times daily: Husband returned back...-:)
 
 ***
@@ -70,12 +77,5 @@
 * __Recite: 5 times after Ishaa prayer__
     * __Attitude towards-life changes. People get-attracted-to-him__
     * __Improvement: Mentally, physically, socially, economically__
-
-***
-
-#### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
-* Heat-of-Quran
-* 5 Rukus; 83 Ayats
-* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai__
 
 ***
