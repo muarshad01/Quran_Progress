@@ -9,6 +9,7 @@
 * `Baba Farid-ud-din Ganj-shakar` (13th Century)
 * For Israr-e-Ilahi , recite Surah Muhammad
 * 41x in one-sitting
+* Hazrat data jang baksh: Faqeer par yeah lazim hai kay woh doosron ki khidmay iss tarah say kary keh woh yeah samjhayan keh woh faqeer par ihsaan kar rahay hayn.
 
 *** 
 
