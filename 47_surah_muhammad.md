@@ -1,3 +1,10 @@
+* 4-Rukus
+* 38-Ayats
+* 2nd Ayat mentions Name Muhammad
+* 20th Ayat - Qital ...Surah Qital
+
+***
+
 #### [Surah Muhammad SAW - Israr-e-Ilahi | SSA Shah](https://www.youtube.com/watch?v=u-YURexBsQo)
 * `Baba Farid-ud-din Ganj-shakar` (13th Century)
 * For Israr-e-Ilahi , recite Surah Muhammad
