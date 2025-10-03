@@ -63,7 +63,7 @@
 
 ***
 
-### [Surah Fatiha Se Apni Zindagi Badlien?](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
+### [Surah Fatiha Se Apni Zindagi Badlien? | Irfan-ul_Haq](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
 * Hazrat Ali Karam-Allah-Wajhu RA tafseer - 200 pages
 * Other many Wali-Ullah tafseer - 10 books
 * Duaa
@@ -71,9 +71,9 @@
 * Your Namza is uncomplete without this Surah
 * Hisar for evil forces:
   * Sad bin Abi Waqas story...
-* Keep reciting and dumm on yourself (at least 40-41 times daily)
-  * Cures ALL sicknesses
-  * Duai mangta rahi -- tuh baray-say-baray masail hal-hotay-hayn
+* __Keep reciting and dumm on yourself (at least 40-41 times daily)__
+   * __Cures ALL sicknesses__
+   * __Duaaiyn mangta-rayn -- tuh baray-say-baray masail hal-hotay-hayn__
 
 ***
 
@@ -113,5 +113,9 @@
 
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part 2 | Allama Talib Jauhari](https://www.youtube.com/watch?v=s_Mz1ANEuKM)
+
+***
+
+### [Surah Fateha | Har Marz Ki Shifa | Irfan-ul-Haq](https://www.youtube.com/watch?v=wXeSG6qCMUg)
 
 ***
