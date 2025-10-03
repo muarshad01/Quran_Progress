@@ -197,6 +197,7 @@
 ### Chapter 26 [44 - 50] -- August 10, 2024
 * [46. Surah Al-Ahqaf (The Sand Dunes)](https://quranwbw.com/46) -- August 2024
 * [47. Surah Muhammad](https://quranwbw.com/47) -- August 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/47_surah_muhammad.md)
 * [48. Surah Fath](https://quranwbw.com/48) -- August 2024
 * [49. Surah Al-Hujuraat (The Inner Apartment)](https://quranwbw.com/49) -- August 2024
 * [50. Surah Qaaf](https://quranwbw.com/50) -- August 2024
