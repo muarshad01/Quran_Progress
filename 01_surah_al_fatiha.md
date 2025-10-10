@@ -1,3 +1,8 @@
+* __Joo Ibadat ko mohabbat-samajhta-hai, woh bhar-jata-hai.__
+* Ibadat mushkil-ko aanay-nahi-daiti
+* Jis nay khud-ko Rabb-kay-samnay jhuka-liya, dunya usay ghuk-kar salaam-karti-hai
+
+*** 
 
 ## Umm al-Kitab
 * __Surah Al-Hijr 15/87__: [وَلَقَدْ ءَاتَيْنَـٰكَ سَبْعًۭا مِّنَ ٱلْمَثَانِى وَٱلْقُرْءَانَ ٱلْعَظِيمَ](https://quran.com/15/87)
@@ -9,13 +14,13 @@
 * Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-
 * Opens up the secrets (Israr, Rahmat and Barakat)
 
-
 ***
 
 * Al-sabah Al-masani
 * Al-munajat
 * Asas-ul-Quran
-* Umm-ul-Quran
+* Umm-al-Kitab
+* Quran-ka-Darwaza
 
 ***
 
@@ -30,32 +35,33 @@
 * This Surah Hamad, Sanaa, and Dua 
 * Two Attributes of Allah SWT: Rahman & Raheem & Malik Yum-ud-Deen
 * It has been kept outside 30 chapters, which start with Alf-Laam-Meem 
-* First Surah which was revealed completely at once.
+* First Surah, which was revealed completely-at-once.
 
 ***
 
 * Is part-of-Quran and also isn't part of Quran.
 * Surah Fatiha is the `Gist-of-Constitution` in the first 2.5 Chapters
-* First 2.5 Chapters: `Constitution of Islam`
+* First 2.5 Chapters: `Constitution-of-Islam`
 * Next 27.5 Chapters: `Interpretation-of-Constituion`
 
 ***
 
-### Benefits
+#### Benefits
 * __Alhamdulillah" (ٱلْحَمْدُ لِلَّٰهِ) ka Wazifa - Mushkil halat-say-nikal-jata-hai__
+* __Al-Hamad Lillah__: Rabb Tallah iss Lafaz-kay-sadqay, apni hamad-bayan honay-say khush-hoo-kar, __loogon ko mushkil-halat-say nikal-daita-hai__
 * __Dushman-ki-dushmani se Nijat mil-jaati-hai__
 
 ***
 
-### Rabb
+#### Rabb
 * In Arabic - Paalnay-wala
 * Also, Tarbeeyat denay-wala
   * Capabilities and Capacities are developed
 
 ***
 
-### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
-* Dushman-say-bachao kay-laye
+#### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
+* __Dushman-say-bachao kay-laye__
 * Insaan ki Taubah Allah SWT kay-hazoor, jaldi-qabool hoti-hai
 * Insaan dobara-gunah nahi-karta
 * Nasha choot-jata-hai
@@ -72,14 +78,14 @@
 * Hisar for evil forces:
   * Sad bin Abi Waqas story...
 * __Keep reciting and dumm on yourself (at least 40-41 times daily)__
-   * __Cures ALL sicknesses__
+   * __Cures ALL Sicknesses__
    * __Duaaiyn mangta-rayn -- tuh baray-say-baray masail hal-hotay-hayn__
 
 ***
 
 ### [Surah Fatiha Ki Ahmiyat | SSA Shah](https://www.youtube.com/watch?v=gSA_RKnzf1A)
-* Surah Yaseen - Heart of Quran
 * Surah Fatiha - Brain of Quran
+* Surah Yaseen - Heart of Quran
 * Duaa
 * "aidhi nasirat mustaqeem"
 * Allah SWT attributes: Rehman & Raheem
@@ -89,15 +95,15 @@
 ***
 
 ### [Surah Fatiha Main Insaan Ki Takhleeq-Ka Maqsad-Hai? | SSA Shah](https://www.youtube.com/watch?v=hyTSleVTIgg)
-* When a Roah is order to depart from heaven, when its corresponding Jism is created.
-* Roah is ordered to keep Ruju towards its creator
+* When a Roah is ordered to depart-from-heaven, when its corresponding Jism is created.
+* Roah is ordered to keep-Ruju towards-its-creator
 * Rabb ki Tareef, Iqrar uski-buzurgi-ka (Rabb Al-Alameen), Takhleeq-ka-Maqsad, We ask for Taufeeq (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ),
 
 ***
 
 ### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
 * Quran-ka-Darwaza
-* Thankfulness - Gham ki deerayn toath jati hayn; takabar marr jata hai
+* __Thankfulness__ - Gham ki deewarayn toath-jati-hayn; takabar marr-jata-hai
 * 7 ayats, 7 secrets, 7 doors, 7 paths ...
 * Umm-al-Kitab
   * How to talk? How to make duaa?
@@ -108,7 +114,8 @@
   * Ijazi
   * Two powers, which make Insaan ashraf-al-makhlooqat
 * __Joo Ibadat ko mohabbat-samajhta-hai, woh bhar-jata-hai.__
-* Ibadat mushkil ko anay nahi daiti
+* Ibadat mushkil-ko aanay-nahi-daiti
+
 ***
 
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
