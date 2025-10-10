@@ -39,3 +39,5 @@
 * Surah Ikhlas: Rabb ka Jalal
 * Baad-Roohayn / Ghair-marai-quwateen bhaag jaati-hayn
 ***
+
+#### [Wahid aur Ahad Mein Farq | Allama Talib Jauhari](https://www.youtube.com/)
