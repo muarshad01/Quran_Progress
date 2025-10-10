@@ -1,3 +1,9 @@
+1. __Ya Syed-ul-Bashar__
+2. __Khuda Ka Raazdan__ (Closeness to prophet PBUH)
+3. Malik ka Mahboob
+
+*** 
+
 * __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai__
 * __Improvement: Mentally, physically, socially, economically__
 
@@ -9,12 +15,6 @@
 * __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai__
 
 ***
-
-1. __Ya Syed-ul-Bashar__
-2. __Khuda Ka Raazdan__ (Closeness to prophet PBUH)
-3. Malik ka Mahboob
-
-*** 
 
 #### [BENEFITS and VIRTUES of Surah Yasin | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=nXSNsBq4u_U)
 * Number 36; Makki; Heart-of-Quran
