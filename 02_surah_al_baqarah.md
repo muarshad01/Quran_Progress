@@ -13,20 +13,21 @@
 6. Produces self-confidence
 
 ### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
-* Jadu ka Toar, Taweezon ka Toar, Nazr-e-Baad Ka Toar (First three Rukus of Surah Baqarah)
+* Jadu ka-Toar, Taweezon ka-Toar, Nazr-e-Baad Ka-Toar (First three Rukus of Surah Baqarah)
 * Sadqah Khariat
-    * Help his makhlooq
+    * Help his Makhlooq
 
 ### Pakistan 
 * Future is Pakistan
 * Pakistan will attain hights...
-* 1 to 1.5 years...we'll be proud Pakistanis
+* 1-to-1.5 years...we'll be proud Pakistanis
 * 50 years... 
 
 ***
 
 ### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
-
+* For Self-confidence, recite 7th Ruku, 7-times after Tahajad
+* Surah Taha: Jalal
 
 ***
 
