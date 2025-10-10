@@ -23,7 +23,7 @@
 ***
 
 #### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
-* __Jadu ka-Toar, Taweezon ka-Toar, Nazr-e-Baad Ka-Toar (First three Rukus of Surah Baqarah)__
+* __Jadu ka-Toar, Taweezon ka-Toar, Nazr-e-Baad Ka-Toar (First three Rukus of Surah Baqarah)__ 40:40
 * Sadqah Khariat
     * Help his Makhlooq
 
