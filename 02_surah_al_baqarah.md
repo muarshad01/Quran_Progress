@@ -2,10 +2,12 @@
 
 ***
 
-### SSA Shah
+#### SSA Shah
 * Regular recition of Surah Al-Baqarah helps in nafas-par qaboo-pana
 
-### [Benefits of First Three Rukus - Ayats: 1-29](https://www.youtube.com/shorts/s3_yBHCKipY)
+***
+
+#### [Benefits of First Three Rukus - Ayats: 1-29](https://www.youtube.com/shorts/s3_yBHCKipY)
 1. Insaan ko apni khatayon-ka-Ihsaas honay-lagta-hai
 2. Allah Tallah kay saath Mohabbat
 3. Rabb par pyaar anay lagta-hai
@@ -14,18 +16,18 @@
 
 ***
 
-### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
+#### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
 * For __Self-confidence__, recite 7th Ruku, 7-times after Tahajad
 * Surah Taha: Jalal
 
 ***
 
-### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
+#### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
 * __Jadu ka-Toar, Taweezon ka-Toar, Nazr-e-Baad Ka-Toar (First three Rukus of Surah Baqarah)__
 * Sadqah Khariat
     * Help his Makhlooq
 
-### Pakistan 
+#### Pakistan 
 * Future is Pakistan
 * Pakistan will attain hights...
 * 1-to-1.5 years...we'll be proud Pakistanis
