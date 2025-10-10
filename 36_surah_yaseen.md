@@ -4,15 +4,15 @@
 
 *** 
 
-* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai__
-* __Improvement: Mentally, physically, socially, economically__
+* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai-tu, musaibat taal-jaati-hai...Insaan araam say guzar-jaata-hai__
+* __Improvement__: Mentally, Physically, Socially, Economically
 
 ***
 
 #### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
 * Heat-of-Quran
 * 5 Rukus; 83 Ayats
-* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...insaan araam say guzar-jaata-hai__
+* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...Insaan araam say guzar-jaata-hai__
 
 ***
 
@@ -37,7 +37,7 @@
 * __Surah Dafia__ - Balaaon ko daafaa-karnay-wali
 * __Surah Qazia__ - Hajatayn puri-karna wali
 * __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
-* 7-Mubeen Wazifa
+* __7-Mubeen Wazifa__
 * 21-times daily: Husband returned back...-:)
 
 ***
@@ -66,7 +66,7 @@
 ***
 
 * Ya-Seen is one of the `Haroof-e-Muqataat`, short form of, __Ya Sayyad-ul-Bashar__
-* One of those `72 names (titles)`, which were given to prophet PBUH Pon `Shab-e-Miraj`
+* One of those _72 names (titles)__, which were given to prophet PBUH Pon `Shab-e-Miraj`
 * This Surah is __HEART-of-Quran__ - prophet PUBH
 * Beneficial to read upon people who are about to die
     * Good to read daily for difficulties-in-life
@@ -81,6 +81,6 @@
 * __Recite: 3 times after Fajar prayer__
 * __Recite: 5 times after Ishaa prayer__
     * __Attitude towards-life changes. People get-attracted-to-him__
-    * __Improvement: Mentally, physically, socially, economically__
+    * __Improvement__: Mentally, physically, socially, economically
 
 ***
