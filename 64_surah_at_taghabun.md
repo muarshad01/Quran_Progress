@@ -17,9 +17,10 @@
 * Phir-hamayn kahay-ki-fiqr
 * Recite Surah Taghuban after Isha-Prayers
 * Tuh-nay-mujhay sari-zindagi achi-halat-mayn rakha-hai
-* Agar yeah-char-din ki-takleef aa-gayi-hai
-* __Mujhay pura-yaqeen-hai, tuh isay-bhi apni-REHMAT-say jaldi tall-deah-gaa__
-* __BAY-AHAK, Rabb aus-takleef-ko khatam kar-detah-hai__
+* Agar yeah-char-din-ki-takleef aa-gayee-hai
+* __Mujhay pura-yaqeen-hai, Tuh isay-bhi apni-REHMAT-say jaldi tall-deyh-gaa__
+* __BAY-AHAK, Rabb aus-takleef-ko khatam kar-dytah-hai__
+
 ***
 
 #### [Surah Taghabun | SSA Shah](https://www.youtube.com/watch?v=UVygoKYmruQ)
@@ -37,7 +38,7 @@
 * __Zalim-Jabir-Shaks: Recite 3-times and then go meet that person__
 * Yum-e-Azam (Yum-e-Taghuban)
 * Sickness: Recite 41-time and blow-on-that-person
-* Travel: Recite 3-times
+* __Travel: Recite 3-times__
 * __Duaas are accepted of that person__
 
 ***
@@ -50,7 +51,7 @@
 
 ***
 
-#### `Allah Ki Pehchan, Tauraf`
+#### Allah Ki Pehchan, Tauraf
 * https://hamariweb.com/islam/download-Surah-Taghabun-urdu-translation-pdf
 * Meri qudrat-kaisi-hay?
 * Mayn koon-hoon?
@@ -73,7 +74,7 @@
 
 ***
 
-## Dhalika Al-fawzu Al-'azimu (GREATEST SUCCESS)
+## Al-fawzu Al-'azimu (GREATEST SUCCESS)
 * __Surah 64/9__: [يَوْمَ يَجْمَعُكُمْ لِيَوْمِ ٱلْجَمْعِ ۖ ذَٰلِكَ يَوْمُ ٱلتَّغَابُنِ ۗ وَمَن يُؤْمِنۢ بِٱللَّهِ وَيَعْمَلْ صَـٰلِحًۭا يُكَفِّرْ عَنْهُ سَيِّـَٔاتِهِۦ وَيُدْخِلْهُ جَنَّـٰتٍۢ تَجْرِى مِن تَحْتِهَا ٱلْأَنْهَـٰرُ خَـٰلِدِينَ فِيهَآ أَبَدًۭا ۚ ذَٰلِكَ ٱلْفَوْزُ ٱلْعَظِيمُ](https://quran.com/64/9)
 
 ***
