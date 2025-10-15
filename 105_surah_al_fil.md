@@ -7,4 +7,5 @@
 * 100 times Surah Al-fil
 * keep reciting Surah Al-fil in court room
 * Ya Allah Hu, Ya Azizu, Ya Nasiru, Ya Samadu
+
 ***
