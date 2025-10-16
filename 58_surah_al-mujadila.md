@@ -7,7 +7,7 @@
 
 ***
 
-### [Dushman say bachnay kay liye mufti sahab ne asan or behtreen wazifa bta diya| Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vS_UHoXWTV8)
-* Surha Lafab for Dushman
+#### [Dushman say bachnay kay liye mufti sahab ne asan or behtreen wazifa bta diya| Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vS_UHoXWTV8)
+* Surha Lahab for Dushman
 
 ***
