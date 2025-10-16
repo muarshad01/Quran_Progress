@@ -1,3 +1,7 @@
+#### [Open the Gates of Protection with Bismillah | SSA Shah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
+
+***
+
 #### [Bismillahir Rahmanir Raheem (بِسْمِ اللهِ الرَّحْمٰنِ الرَّحِيْمِ)](https://qurantalkblog.com/2021/11/14/bismillah-19-letters/)
 * It is the first verse written on Loh-e-Mehfooz situated on Arsh-e-Maulaa
 * __Surah At-Tawbah 9__ doesn't start with this Ayat.
