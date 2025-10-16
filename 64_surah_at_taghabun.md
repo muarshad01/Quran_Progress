@@ -28,7 +28,7 @@
 * Tuh-nay-mujhay sari-zindagi achi-halat-mayn rakha-hai
 * Agar yeah-char-din-ki-takleef aa-gayee-hai
 * __Mujhay pura-yaqeen-hai, Tuh isay-bhi apni-REHMAT-say jaldi tall-deyh-gaa__
-* __BAY-AHAK, Rabb aus-takleef-ko khatam kar-dytah-hai__
+* __BAY-SHAK, Rabb aus-takleef-ko khatam kar-dytah-hai__
 
 ***
 
