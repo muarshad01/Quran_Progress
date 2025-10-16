@@ -24,7 +24,7 @@
 * Hamara-Rabb hamaray saath-hai
 * Woh-hamesha zinda-aur-qaim hai
 * Phir-hamayn kahay-ki-fiqr
-* __Recite Surah Taghuban (EVERY Night) after Isha-Prayers
+* __Recite Surah Taghuban (EVERY Night) after Isha-Prayers__
 * Tuh-nay-mujhay sari-zindagi achi-halat-mayn rakha-hai
 * Agar yeah-char-din-ki-takleef aa-gayee-hai
 * __Mujhay pura-yaqeen-hai, Tuh isay-bhi apni-REHMAT-say jaldi tall-deyh-gaa__
