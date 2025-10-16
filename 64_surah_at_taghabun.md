@@ -48,7 +48,7 @@
 * Yum-e-Azam (Yum-e-Taghuban)
 * __Sickness: Recite 41-time and blow-on-that-person__
 * __Travel: Recite 3-times__
-* __Duaas are accepted of that person__
+* __Duaas-are-accepted of that person__
 
 ***
 
