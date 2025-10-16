@@ -1,4 +1,6 @@
 #### [Open the Gates of Protection with Bismillah | SSA Shah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
+* Dil-kay-aupur zang aur gard-o-ghubar joo-hai woh utar-jaata-hai.
+* Qalab ainay-ki-tarah saaf ho-jaata-hai.
 
 ***
 
@@ -12,14 +14,14 @@
 ***
 
 #### [Powerful Wazifa of Bismillah | SSA Shah](https://www.youtube.com/watch?v=ZVQWOkLd0Ys)
-* 786 times after Isaa, don't talk afterwards and sleep for at least 10 mins.
+* 786-times after-Isaa, don't talk-afterwards and sleep for at-least-10-mins.
 * Don't eat Beef-and-Fish having smell.
 * Also don't eat Garlic, Onion, White Muli
 
 ***
 
 #### [Spiritual Effects of Bismillah | SSA Shah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
-* Iss mayn pura-quran samaya-hai aur mayn iss-quran-ko apnay-dil-mayn samoo-loon.
+* Iss mayn pura-quran samaya-hai aur-mayn iss-quran-ko apnay-dil-mayn samoo-loon.
 
 ***
 
@@ -31,9 +33,9 @@
 
 #### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
 1. Become Self-less
-2. Ful-fill the needs, desires, comfort of others over ours
-3. Forgive ALL who will hurt-us-in-future
-4. Remove from heart the wordly desire-of-wealth
+2. Ful-fill the needs, desires, comfort-of-others over ours
+3. Forgive ALL, who will hurt-us-in-future
+4. Remove-from-heart the wordly desire-of-wealth
 5. 
 
 ***
