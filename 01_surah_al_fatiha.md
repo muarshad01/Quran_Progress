@@ -79,7 +79,7 @@
   * Sad bin Abi Waqas story...
 * __Keep reciting and dumm on yourself (at least 40-41 times daily)__
    * __Cures ALL Sicknesses__
-   * __Duaaiyn mangta-rayn -- tuh baray-say-baray masail hal-hotay-hayn__
+   * __Duaiyn mangta-rayhn -- Tuh baray-say-baray masail hal-hotay-hayn__
 
 ***
 
