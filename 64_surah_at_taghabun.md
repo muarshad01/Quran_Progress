@@ -52,7 +52,7 @@
 
 ***
 
-#### Surah AL-Taghaboon
+#### Surah At-Taghaboon
 * [Arzang-e-Faqeer : Session 06 Surah Al-Taghaboon](https://www.youtube.com/watch?v=j_OgniH_t0c)
 * Number 64 = 63 + 1
 * 18 Ayats
@@ -73,47 +73,47 @@
 
 ***
 
-## Our FINAL return
+#### Our FINAL return
 * __Surah 64/3__: [خَلَقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ بِٱلْحَقِّ وَصَوَّرَكُمْ فَأَحْسَنَ صُوَرَكُمْ ۖ وَإِلَيْهِ ٱلْمَصِيرُ](https://quran.com/64/3)
 
 ***
 
-## What is Hidden in HEARTS
+#### What is Hidden in HEARTS
 * __Surah 64/4__: [يَعْلَمُ مَا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَيَعْلَمُ مَا تُسِرُّونَ وَمَا تُعْلِنُونَ ۚ وَٱللَّهُ عَلِيمٌۢ بِذَاتِ ٱلصُّدُورِ](https://quran.com/64/4)
 
 ***
 
-## Al-fawzu Al-'azimu (GREATEST SUCCESS)
+#### Al-fawzu Al-'azimu (GREATEST SUCCESS)
 * __Surah 64/9__: [يَوْمَ يَجْمَعُكُمْ لِيَوْمِ ٱلْجَمْعِ ۖ ذَٰلِكَ يَوْمُ ٱلتَّغَابُنِ ۗ وَمَن يُؤْمِنۢ بِٱللَّهِ وَيَعْمَلْ صَـٰلِحًۭا يُكَفِّرْ عَنْهُ سَيِّـَٔاتِهِۦ وَيُدْخِلْهُ جَنَّـٰتٍۢ تَجْرِى مِن تَحْتِهَا ٱلْأَنْهَـٰرُ خَـٰلِدِينَ فِيهَآ أَبَدًۭا ۚ ذَٰلِكَ ٱلْفَوْزُ ٱلْعَظِيمُ](https://quran.com/64/9)
 
 ***
 
-## Allah Guides the HEARTS
+#### Allah Guides the HEARTS
 * __Surah 64/11__: [مَآ أَصَابَ مِن مُّصِيبَةٍ إِلَّا بِإِذْنِ ٱللَّهِ ۗ وَمَن يُؤْمِنۢ بِٱللَّهِ يَهْدِ قَلْبَهُۥ ۚ وَٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/64/11)
 
 ***
 
-## Momins TRUST in Allah SWT
+#### Momins TRUST in Allah SWT
 * __Surah 64/13__: [ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ۚ وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُؤْمِنُونَ](https://quran.com/64/13)
 
 ***
 
-## Wives & Children are ENEMIES
+#### Wives & Children are ENEMIES
 * __Surah 64/14__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوٓا۟ إِنَّ مِنْ أَزْوَٰجِكُمْ وَأَوْلَـٰدِكُمْ عَدُوًّۭا لَّكُمْ فَٱحْذَرُوهُمْ ۚ وَإِن تَعْفُوا۟ وَتَصْفَحُوا۟ وَتَغْفِرُوا۟ فَإِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/64/14-15)
 
 ***
 
-## Wealth and Children are only a TEST
+#### Wealth and Children are only a TEST
 *  __Surah 64/15__: [إِنَّمَآ أَمْوَٰلُكُمْ وَأَوْلَـٰدُكُمْ فِتْنَةٌۭ ۚ وَٱللَّهُ عِندَهُۥٓ أَجْرٌ عَظِيمٌۭ](https://quran.com/64/15)
 
 ***
 
-## SUCCESSFUL: Greediness of NAFS
+#### SUCCESSFUL: Greediness of NAFS
 * __Surah 64/16__: [فَٱتَّقُوا۟ ٱللَّهَ مَا ٱسْتَطَعْتُمْ وَٱسْمَعُوا۟ وَأَطِيعُوا۟ وَأَنفِقُوا۟ خَيْرًۭا لِّأَنفُسِكُمْ ۗ وَمَن يُوقَ شُحَّ نَفْسِهِۦ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ](https://quran.com/64/16)
 
 ***
 
-## Most Appreciative and Most Forebearing
+#### Most Appreciative and Most Forebearing
 * __Surah 64/17__: [إِن تُقْرِضُوا۟ ٱللَّهَ قَرْضًا حَسَنًۭا يُضَـٰعِفْهُ لَكُمْ وَيَغْفِرْ لَكُمْ ۚ وَٱللَّهُ شَكُورٌ حَلِيمٌ](https://quran.com/64/17)
 
 ***
