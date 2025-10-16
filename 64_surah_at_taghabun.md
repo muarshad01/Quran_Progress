@@ -3,7 +3,7 @@
 * 18 - Ayat
 * 64 - Number
 * 108 - Nazool
-* Zalim-kay-dil ko naram-karna; Mushkil say nikalna;
+* __Zalim-kay-dil ko naram-karna; Mushkil say nikalna__
 
 ***
 
@@ -12,7 +12,7 @@
 ***
 
 #### [Surah Taghabun ki Fazilat Kya Hau | SSA Shah](https://www.youtube.com/shorts/f91vhya6F_8)
-* Danista-aur-na-danista, Shageera-aur-Kabira Gunah
+* Hum say Allah ki na-farmani hoti rehti hai, danista-aur-na-danista, Shageera-aur-Kabira Gunah
 * Planned mistakes
 * __Innocent mistakes__
 * When you do Taubah; __You want to come-out of the-effects-of-your-mistakes; When you fear that Allah SWT is taking-you-to-task.__
