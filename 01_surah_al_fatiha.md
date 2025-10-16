@@ -25,8 +25,8 @@
 ***
 
 ### Benefits
-* Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai
-* Dushman-Ki-Dushmani se Nijat mil-jaati-hai
+* __Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai__
+* Dushman-ki-dushmani se nijat mil-jaati-hai
 
 ***
 
