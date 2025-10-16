@@ -11,7 +11,7 @@
 * Letters = 139
 * Total = 7 + 29 + 139 = 175 = 17 x 5
 * Recited at-least 17 time times (Faraz Namaz Rakat) during 5 prayers dails
-* Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-
+* Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-`
 * Opens up the secrets (Israr, Rahmat and Barakat)
 
 ***
@@ -26,7 +26,7 @@
 
 ### Benefits
 * __Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai__
-* Dushman-ki-dushmani se nijat mil-jaati-hai
+* __Dushman-ki-dushmani se nijat mil-jaati-hai__
 
 ***
 
@@ -49,7 +49,8 @@
 #### Benefits
 * __Alhamdulillah" (ٱلْحَمْدُ لِلَّٰهِ) ka Wazifa - Mushkil halat-say-nikal-jata-hai__
 * __Al-Hamad Lillah__: Rabb Tallah iss Lafaz-kay-sadqay, apni hamad-bayan honay-say khush-hoo-kar, __loogon ko mushkil-halat-say nikal-daita-hai__
-* __Dushman-ki-dushmani se Nijat mil-jaati-hai__
+* __Dushman-ki-dushmani se nijat mil-jaati-hai__
+* __Duaiyn mangta-rayhn, Tuh baray-say-baray masail hal-hotay-hayn__
 
 ***
 
@@ -95,8 +96,8 @@
 ***
 
 ### [Surah Fatiha Main Insaan Ki Takhleeq-Ka Maqsad-Hai? | SSA Shah](https://www.youtube.com/watch?v=hyTSleVTIgg)
-* When a Roah is ordered to depart-from-heaven, when its corresponding Jism is created.
-* Roah is ordered to keep-Ruju towards-its-creator
+* When a Roah is ordered to depart-from-heaven, when its corresponding Jism-is-created.
+* Rooah is ordered to keep-Rujoo towards-its-creator
 * Rabb ki Tareef, Iqrar uski-buzurgi-ka (Rabb Al-Alameen), Takhleeq-ka-Maqsad, We ask for Taufeeq (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ),
 
 ***
