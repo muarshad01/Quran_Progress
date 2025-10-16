@@ -54,7 +54,7 @@
 
 ***
 
-#### [Bismillah Sharif NUMBER 19 KA WAZIFA | Dr. Fahad Artani](https://www.youtube.com/watch?v=p2VjBPZPmos)
+#### [Bismillah Sharif NUMBER-19 Ka Wazifa | Dr. Fahad Artani](https://www.youtube.com/watch?v=p2VjBPZPmos)
 
 ***
 
