@@ -46,7 +46,7 @@
   * Wealth-and-Khair in that house
 * __Zalim-Jabir-Shaks: Recite 3-times and then go meet that person__
 * Yum-e-Azam (Yum-e-Taghuban)
-* Sickness: Recite 41-time and blow-on-that-person
+* __Sickness: Recite 41-time and blow-on-that-person__
 * __Travel: Recite 3-times__
 * __Duaas are accepted of that person__
 
