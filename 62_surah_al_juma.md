@@ -68,3 +68,5 @@
 * Memorize `Surah Jumma`
 
 ***
+
+#### [Kasrat Se Quran Pak Ki Tilawat Se Kya Fawaid Hasil Hote Hain? | SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
