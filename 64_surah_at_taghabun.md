@@ -1,3 +1,12 @@
+#### [Muqadma mein kamyabi ka wazifa | Mufti Zar Wali Khan](https://www.youtube.com/watch?v=4hfwAVkTGGI)
+* 2 - Ruku
+* 18 - Ayat
+* 64 - Number
+* 108 - Nazool
+* Zalim-kay-dil ko naram-karna; Mushkil say nikalna;
+
+***
+
 #### [Cure for Inner Chaos | SSA Shah](https://www.youtube.com/watch?v=umlnQ8J2YUU)
 
 ***
