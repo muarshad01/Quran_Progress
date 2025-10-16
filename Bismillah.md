@@ -51,3 +51,7 @@
 #### [Bismillah Sharif NUMBER 19 KA WAZIFA | Dr. Fahad Artani](https://www.youtube.com/watch?v=p2VjBPZPmos)
 
 ***
+
+#### [📢 Chasht Ke bad 786 bar Ka Wazifa | Qismat Badal Dene Wala powerful Wazifa 💯 |‪ Mufti Muneer Akhoon](https://www.youtube.com/watch?v=j7dJK3alxdA)
+
+***
