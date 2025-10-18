@@ -58,6 +58,14 @@
 
 ***
 
-#### [📢 Chasht Ke bad 786 bar Ka Wazifa | Qismat Badal Dene Wala powerful Wazifa 💯 |‪ Mufti Muneer Akhoon](https://www.youtube.com/watch?v=j7dJK3alxdA)
+#### [📢 Chasht Ke bad 786 bar Ka Wazifa |‪ Mufti Muneer Akhoon](https://www.youtube.com/watch?v=j7dJK3alxdA)
+
+***
+
+#### [Bismillah Shareef k Beshumar-Fawaid | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=w3vqDt3XiDU)
+* 19 Angels-of-Jahanum
+* Hazrat Adam AS
+* Hazrat Muhammad PBUH
+* After Maghrib prayer, 786-times awal/akhir 11 dimes darood-shareef, for one week for-some-difficult-task
 
 ***
