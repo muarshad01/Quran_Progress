@@ -1,6 +1,6 @@
 * __Joo Ibadat-ko Mohabbat-samajhta-hai, Woh bhar-jata-hai.__
-* Ibadat mushkil-ko aanay-nahi-daiti
-* Jis nay khud-ko Rabb-kay-samnay jhuka-liya, dunya usay jhuk-kar salaam-karti-hai
+* __Ibadat mushkil-ko aanay-nahi-daiti__
+* __Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya-usay jhuk-kar salaam-karti-hai__
 
 *** 
 
