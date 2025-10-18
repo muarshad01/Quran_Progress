@@ -2,7 +2,7 @@
 * Madni
 * 58 - Number
 * 22 - Ayats
-* Agar-koi-dushman aap-ko sata-raha-hai, tang-kar-raha-hai, aur app-chahatay-hayn yeah-dafah-kar--jai...
+* __Agar-koi-dushman aap-ko sata-raha-hai, tang-kar-raha-hai, aur app-chahatay-hayn yeah-dafah-kar-jai__
 * __Recite 3-times anytime, blow-on-some-matti and throw-matti towards that direction-where-that-enemy-lives and then dua__.
 
 ***
