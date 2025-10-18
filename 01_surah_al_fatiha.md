@@ -2,6 +2,10 @@
 * __Ibadat mushkil-ko aanay-nahi-daiti__
 * __Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya-usay jhuk-kar salaam-karti-hai__
 
+### Benefits
+* __Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai__
+* __Dushman-ki-dushmani se nijat mil-jaati-hai__
+
 *** 
 
 ## Umm al-Kitab
@@ -24,11 +28,6 @@
 
 ***
 
-### Benefits
-* __Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai__
-* __Dushman-ki-dushmani se nijat mil-jaati-hai__
-
-***
 
 * Magaz (`Brain`) of Quran
 * Quran starts with `Surah Fatiha` (Quran has been given in the hisaar of `Surah Fatiha`)
