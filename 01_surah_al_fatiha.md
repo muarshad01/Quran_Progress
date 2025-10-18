@@ -5,6 +5,8 @@
 ### Benefits
 * __Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai__
 * __Dushman-ki-dushmani se nijat mil-jaati-hai__
+* __Duaiyn mangta-rayhn, Tuh baray-say-baray masail hal-hotay-hayn__
+* __Dushman-say-bachao kay-laye__
 
 *** 
 
@@ -27,7 +29,6 @@
 * Quran-ka-Darwaza
 
 ***
-
 
 * Magaz (`Brain`) of Quran
 * Quran starts with `Surah Fatiha` (Quran has been given in the hisaar of `Surah Fatiha`)
@@ -62,7 +63,7 @@
 
 #### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
 * __Dushman-say-bachao kay-laye__
-* Insaan ki Taubah Allah SWT kay-hazoor, jaldi-qabool hoti-hai
+* Insaan-ki-Taubah Allah SWT kay-hazoor, jaldi-qabool hoti-hai
 * Insaan dobara-gunah nahi-karta
 * Nasha choot-jata-hai
 * Cure for ALL diseases
@@ -84,8 +85,8 @@
 ***
 
 ### [Surah Fatiha Ki Ahmiyat | SSA Shah](https://www.youtube.com/watch?v=gSA_RKnzf1A)
-* Surah Fatiha - Brain of Quran
-* Surah Yaseen - Heart of Quran
+* Surah Fatiha - Brain-of-Quran
+* Surah Yaseen - Heart-of-Quran
 * Duaa
 * "aidhi nasirat mustaqeem"
 * Allah SWT attributes: Rehman & Raheem
@@ -95,15 +96,15 @@
 ***
 
 ### [Surah Fatiha Main Insaan Ki Takhleeq-Ka Maqsad-Hai? | SSA Shah](https://www.youtube.com/watch?v=hyTSleVTIgg)
-* When a Roah is ordered to depart-from-heaven, when its corresponding Jism-is-created.
-* Rooah is ordered to keep-Rujoo towards-its-creator
-* Rabb ki Tareef, Iqrar uski-buzurgi-ka (Rabb Al-Alameen), Takhleeq-ka-Maqsad, We ask for Taufeeq (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ),
+* When a Rooah is ordered to depart-from-heaven, when its corresponding Jism-is-created.
+* Rooah-is-ordered to keep-Rujoo towards-its-creator
+* Rabb-ki-Tareef, Iqrar uski-buzurgi-ka (Rabb Al-Alameen), Takhleeq-ka-Maqsad, We ask for Taufeeq (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ),
 
 ***
 
 ### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
 * Quran-ka-Darwaza
-* __Thankfulness__ - Gham ki deewarayn toath-jati-hayn; takabar marr-jata-hai
+* __Thankfulness__ - Gham-ki-deewarayn toath-jati-hayn; takabar marr-jata-hai
 * 7 ayats, 7 secrets, 7 doors, 7 paths ...
 * Umm-al-Kitab
   * How to talk? How to make duaa?
@@ -114,7 +115,7 @@
   * Ijazi
   * Two powers, which make Insaan ashraf-al-makhlooqat
 * __Joo Ibadat ko mohabbat-samajhta-hai, woh bhar-jata-hai.__
-* Ibadat mushkil-ko aanay-nahi-daiti
+* __Ibadat mushkil-ko aanay-nahi-daiti__
 
 ***
 
