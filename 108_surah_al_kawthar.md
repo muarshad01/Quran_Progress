@@ -12,3 +12,10 @@
 * Second word end at "Qaaf"
 
 ***
+
+#### [Benefits of Surah Al Kawthar || Mufti Muneer Ahmad Akhoon || RahamTV Zikr-o-Dua](https://www.youtube.com/watch?v=jf0KVEI3cJc)
+* A group of enemies
+* 41-time for 21 day...11-time darood-sharid awal akhir
+* 313-times daily
+
+**** 
