@@ -288,6 +288,7 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/97_surah_al-qadar.md)
 * [098. Surah Al-Bayyina ()](https://quranwbw.com/98) -- June 2024
 * [099. Surah Al-Zilzal (The Shaking)]() -- June 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/99_surah_az_zalzalah.md)
 * [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- June 2024
 * [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- October 24, 2024
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- June 2024
