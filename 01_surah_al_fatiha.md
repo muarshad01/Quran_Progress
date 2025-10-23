@@ -119,6 +119,10 @@
 
 ***
 
+#### [The Greatest Secret of Surah Al-Fatiha | Wasif Ali Wasif](https://www.youtube.com/watch?v=E0oaPn46pN8)
+
+***
+
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part 2 | Allama Talib Jauhari](https://www.youtube.com/watch?v=s_Mz1ANEuKM)
 
