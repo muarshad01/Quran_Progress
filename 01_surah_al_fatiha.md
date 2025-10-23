@@ -120,7 +120,11 @@
 ***
 
 #### [The Greatest Secret of Surah Al-Fatiha | Wasif Ali Wasif](https://www.youtube.com/watch?v=E0oaPn46pN8)
-
+* __Recite 7-time after Fajr with awal/akhir darood-e-ibrahimi__
+* Ah Allah mujhay sedha rasta dikha; wo -rasta joo teri-mohabbat, teri-raza aur teri-qurbat tak lay-jai.
+* Dil mayn Allah SWT ki mujoodgi mehsoon-karayn
+* Yeh Surah, Insaan-ki-taqdeer badalnay-ki taqat rakhti-hai
+* Surah Fatiha, Rabb-say mulaqat-ka darwaza-hai.
 ***
 
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
