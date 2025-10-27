@@ -4,9 +4,9 @@
 
 ### Benefits
 * __Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai__
+* __Dushman-say-bachao kay-laye__
 * __Dushman-ki-dushmani se nijat mil-jaati-hai__
 * __Duaiyn mangta-rayhn, Tuh baray-say-baray masail hal-hotay-hayn__
-* __Dushman-say-bachao kay-laye__
 
 *** 
 
