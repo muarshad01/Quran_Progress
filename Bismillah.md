@@ -66,6 +66,6 @@
 * 19 Angels-of-Jahanum
 * Hazrat Adam AS
 * Hazrat Muhammad PBUH
-* After Maghrib prayer, 786-times awal/akhir 11 dimes darood-shareef, for one week for-some-difficult-task
+* __After Maghrib prayer, 786-times awal/akhir 11-times darood-shareef, for one week for-some-difficult-task__
 
 ***
