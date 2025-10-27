@@ -78,9 +78,9 @@
 * Your Namza is uncomplete without this Surah
 * Hisar for evil forces:
   * Sad bin Abi Waqas story...
-* __Keep reciting and dumm on yourself (at least 40-41 times daily)__
+* __Keep reciting and dumm-on-yourself (at least 40-41 times daily)__
    * __Cures ALL Sicknesses__
-   * __Duaiyn mangta-rayhn -- Tuh baray-say-baray masail hal-hotay-hayn__
+   * __Duaiyn mangta-rayhn -- tuh baray-say-baray masail hal-hotay-hayn__
 
 ***
 
