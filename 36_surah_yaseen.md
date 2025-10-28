@@ -106,3 +106,12 @@
 Present your hajjat in bargah-e-ilahi
 
 ***
+
+#### [Surah Yaseen, 7-Mubeen Wazifa | Mufti Zarwali Khan](https://www.youtube.com/watch?v=c_h4BRX9dcc)
+* For solutions to trials/tribulations recite-at-night
+* For success during the data recite-after-Fajr.
+* Illness and Fiqr-of-dunya
+* You become "Mustajab-ud-dawat"
+* Write your dua on paper. Recite dua at the start / end and at every Mubeen.
+
+***
