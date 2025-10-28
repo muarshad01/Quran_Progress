@@ -103,13 +103,13 @@
 ***
 
 ### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
-* Quran-ka-Darwaza; Kainat-Ki-Kunji
-* __Thankfulness__ - Gham-ki-deewarayn toath-jati-hayn; takabar marr-jata-hai
-* 7 ayats, 7 secrets, 7 doors, 7 paths ...
-* Umm-al-Kitab
-  * How to talk? How to make duaa?
-* Jis nay khud-ko Rabb-kay-samnay jhuka-liya, dunya usay ghuk-kar salaam-karti-hai
-* Ahh Allah, mera-rasta sidha-kay-dah
+* Quran-ka-Darwaza (door); Kainat-Ki-Kunji
+* __Thankfulness__ - Gham-ki-deewarayn toath-jati-hayn; takabar maar-jata-hai
+* 7-ayats, 7-secrets, 7-doors, 7-paths ...
+* __Umm-al-Kitab__
+  * How to talk? How to ask? How to make duaa?
+* Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya usay Jhuk-kar salaam-karti-hai
+* Ah-Allah, mera-rasta sidha-kay-dah
 * Iyyaka na'budu wa iyyaka nasta'een" (إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِينُ)
   * Bandagi (Ghulami)
   * Ijazi
@@ -121,10 +121,20 @@
 
 #### [The Greatest Secret of Surah Al-Fatiha | Wasif Ali Wasif](https://www.youtube.com/watch?v=E0oaPn46pN8)
 * __Recite 7-time after Fajr with awal/akhir darood-e-ibrahimi__
-* Ah Allah mujhay sedha rasta dikha; wo -rasta joo teri-mohabbat, teri-raza aur teri-qurbat tak lay-jai.
-* Dil mayn Allah SWT ki mujoodgi mehsoon-karayn
-* Yeh Surah, Insaan-ki-taqdeer badalnay-ki taqat rakhti-hai
+* Ah-Allah mujhay sedha-rasta dikha; wo-rasta joo teri-Mohabbat, teri-Raza aur teri-Qurbat tak lay-jai.
+* Dil mayn Allah SWT ki mujoodgi mehsoos-karayn
+* __Yeh Surah, Insaan-ki-Taqdeer badalnay-ki taqat rakhti-hai__
 * Surah Fatiha, Rabb-say mulaqat-ka darwaza-hai.
+
+***
+
+#### [Surah Al-Fatiha ka Haqeeqi Wazifa | Wasif Ali Wasif ](https://www.youtube.com/watch?v=jM1pGFDWR-U)
+* O Allah SWT, make my path straight.
+
+***
+
+#### [Surah Fatiha Ka Sab Se Bara Raaz | Wafif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
+
 ***
 
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
@@ -132,6 +142,6 @@
 
 ***
 
-### [Surah Fateha | Har Marz Ki Shifa | Irfan-ul-Haq](https://www.youtube.com/watch?v=wXeSG6qCMUg)
+#### [Surah Fateha | Har Marz Ki Shifa | Irfan-ul-Haq](https://www.youtube.com/watch?v=wXeSG6qCMUg)
 
 ***
