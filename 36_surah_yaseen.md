@@ -94,5 +94,15 @@
 ***
 
 #### [Surah Yaseen 7-Mubeen ka-wazifa | Ashraf Shakir](https://www.youtube.com/watch?v=g91ghoJriUc)
+* Friday after Jumma Prayers
+* 3-times Surah Yaseen
+1. Surah Ikhlas
+2. Surah Kawthar
+3. Surah Alam Nashrah
+4. Surah Fatiha
+5. Aytul Kursi
+6. __Surah 42/19__: [ٱللَّهُ لَطِيفٌۢ بِعِبَادِهِۦ يَرْزُقُ مَن يَشَآءُ ۖ وَهُوَ ٱلْقَوِىُّ ٱلْعَزِيزُ](https://quran.com/42/19)
+7. 3-times darood sharif
+Present your hajjat in bargah-e-ilahi
 
 ***
