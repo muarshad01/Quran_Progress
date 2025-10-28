@@ -88,3 +88,7 @@
     * __Improvement__: Mentally, physically, socially, economically
 
 ***
+
+#### [2-Nafil or Surah-Yaseen 3-times Ka-Amal | Har Murad Puri Hone Ki Dua | Uqbari](https://www.youtube.com/watch?v=tL2s3xHaX18)
+
+***
