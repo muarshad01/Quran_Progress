@@ -1,4 +1,4 @@
-#### [BENEFITS of Surah al Hadid | سورۃ الحدید کےفوائد اور فضائل | Syed Sarfraz Ahmed Shah Sahab](https://www.youtube.com/watch?v=u5-0ZhW4LvQ)
+#### [BENEFITS of Surah al Hadid | سورۃ الحدید کےفوائد اور فضائل | SSA Shah](https://www.youtube.com/watch?v=u5-0ZhW4LvQ)
 * Recite at Asr time: Generally Relative become friendly (Meherban)
 * Recite Before sleep time: Strength like a momin
 
