@@ -115,3 +115,5 @@ Present your hajjat in bargah-e-ilahi
 * Write your dua on paper. Recite dua at the start / end and at every Mubeen.
 
 ***
+
+#### [Surah Yaseen ka 7-Mubeen wala wazifa | Peer Zulfiqar Ahmed Naqshbandi](https://www.youtube.com/watch?v=-RKERQkHyK0)
