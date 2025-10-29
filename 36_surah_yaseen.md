@@ -6,8 +6,8 @@
 
 * __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai-tu, musaibat taal-jaati-hai...Insaan araam say guzar-jaata-hai__
 * __Improvement__: Mentally, Physically, Socially, Economically
-* __Surah Dafia__ - Balaaon ko daafaa-karnay-wali
-* __Surah Qazia__ - Hajatayn puri-karna wali
+* __Surah Dafia - Balaaon ko daafaa-karnay-wali__
+* __Surah Qazia - Hajatayn puri-karna wali__
 * __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
 * __7-Mubeen Wazifa__
 
