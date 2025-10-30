@@ -145,3 +145,7 @@
 #### [Surah Fateha | Har Marz Ki Shifa | Irfan-ul-Haq](https://www.youtube.com/watch?v=wXeSG6qCMUg)
 
 ***
+
+#### [Surah Fatiha se sarh satti ka Tor | Ubqari](https://www.youtube.com/watch?v=pKzMalepVu4)
+
+***
