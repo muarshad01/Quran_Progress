@@ -3,6 +3,10 @@
 3. Malik ka Mahboob
 
 *** 
+### Mubeen Ayats
+* [12,17,24,47,60,69,77]
+
+***
 
 * __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai-tu, musaibat taal-jaati-hai...Insaan araam say guzar-jaata-hai__
 * __Improvement__: Mentally, Physically, Socially, Economically
