@@ -210,6 +210,7 @@
    * [Why Jinn and Insaan were created](https://quran.com/51/56)
 * [52. Surah At-Tur](https://quran.com/52) -- July 2024
 * [53. Surah Najam](https://quranwbw.com/53) -- July 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/53_surah_an_najam.md)
 * [54. Surah Al-Qamar](https://quran.com/54) -- July 2024
 * [55. Surah Ar-Rahmaan (Aroos-ul-Quran)](https://quranwbw.com/55) -- July 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/55_surah_ar_rahman.md)
