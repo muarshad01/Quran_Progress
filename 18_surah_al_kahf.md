@@ -4,7 +4,7 @@
 
 ***
 
-## Surah Al-Kahf contains four prominent stories, each offering unique lessons and guidance for believers.
+#### Surah Al-Kahf contains four prominent stories, each offering unique lessons and guidance for believers.
 1. These are the story of the `Companions of the Cave`, a tale of faith-and-perseverance in the face of persecution.
 2. The second story is about `the man with two gardens`, highlighting the dangers-of-wealth and the importance-of-gratitude.
 3. The third story revolves around `Moses and Khidr`, emphasizing the pursuit-of-knowledge and divine-wisdom.
@@ -12,7 +12,7 @@
 
 ***
 
-### 4-Trials
+#### 4-Trials
 1. __Trial of Faith__: People of the Cave / Ashab Al-Kahf (Verses 9 – 26) ...
 2. __Trial of Wealth__: The story of the man who owns two gardens (Verses 32 – 44)
 3. __Trial of Knowledge__ – Moses and Al-Khidr (Verses 60–82) ...
