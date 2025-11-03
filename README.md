@@ -282,6 +282,7 @@
 * [093. Surah Ad-Duha (The Early Hours)](https://quranwbw.com/93) -- June 2024 (Amna: Jan 16, 2025)
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/93_surah_ad_duha.md)
 * [094. Su Al-Inshirah (The opening up)](https://quranwbw.com/94) -- June 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/94_ash_sharh.md)
 * [095. Surah At-Tin (The Fig)](https://quranwbw.com/95) -- June 2024
 * [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- June 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/96_surah_al_alaq.md)
