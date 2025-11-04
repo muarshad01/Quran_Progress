@@ -9,5 +9,6 @@
 
 #### [Dushman say bachnay kay liye mufti sahab ne asan or behtreen wazifa bta diya| Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vS_UHoXWTV8)
 * Surha Lahab for Dushman
+* 21-time daily after Maghrib. Don't recite awal/akhir darood sharid. Keep something bitter in mouth.
 
 ***
