@@ -1,6 +1,6 @@
 1. __Ya Syed-ul-Bashar__
-2. __Khuda Ka Raazdan__ (Closeness to prophet PBUH)
-3. Malik ka Mahboob
+2. __Khuda-Ka-Raazdan__ (Closeness to prophet PBUH)
+3. __Malik-ka-Mahboob__
 
 *** 
 ### Mubeen Ayats
