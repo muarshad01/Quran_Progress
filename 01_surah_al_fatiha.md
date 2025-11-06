@@ -2,6 +2,9 @@
 * Joo Ibadat-ko Mohabbat-samajhta-hai, woh bhar-jata-hai.
 * __Ibadat mushkil-ko aanay-nahi-daiti__
 * Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya-usay jhuk-kar salaam-karti-hai
+* Quran-ka-Darwaza (door); Kainat-Ki-Kunji
+* __Yeh Surah, Insaan-ki-Taqdeer badalnay-ki taqat rakhti-hai__ -- Wasif Ali Wasif
+* Surah Fatiha, Rabb-say Mulaqat-ka darwaza-hai.
 
 #### Benefits
 * Al-hamd-u-lillah (ٱلْحَمْدُ لِلَّٰهِ) k- Wazifa - __Mushkil halat-say-nikal-jata-hai__
@@ -65,6 +68,24 @@
 
 ***
 
+### [Surah Fatiha Ki Ahmiyat | SSA Shah](https://www.youtube.com/watch?v=gSA_RKnzf1A)
+* Surah Fatiha - Brain-of-Quran
+* Surah Yaseen - Heart-of-Quran
+* Duaa: "aidhi nasirat mustaqeem"
+* Allah SWT attributes
+1. Rehman & Raheem
+* __Al-Hamad Lillah__: Rabb-Tallah iss Lafaz-kay-sadqay, apni hamad-bayan honay-say khush-hoo-kar, __loogon ko mushkil-halat-say nikal-daita-hai__
+* __Dushman-ki-dushmani say nijat-mil-jaiti-hai__
+
+***
+
+### [Surah Fatiha Main Insaan Ki Takhleeq-Ka Maqsad-Hai? | SSA Shah](https://www.youtube.com/watch?v=hyTSleVTIgg)
+* When a Rooah-is-ordered to depart-from-Heaven, when its corresponding Jism-is-created.
+* Rooah-is-ordered to keep-Rujoo towards-its-Creator
+* Rabb-ki-Tareef, Iqrar uski-buzurgi-ka (Rabb Al-Alameen), Takhleeq-ka-Maqsad, We ask for Taufeeq (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ),
+
+***
+
 ### [Surah Fatiha Se Apni Zindagi Badlien? | Irfan-ul_Haq](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
 * Hazrat Ali Karam-Allah-Wajhu RA tafseer - 200 pages
 * Other many Wali-Ullah tafseer - 10 books
@@ -79,24 +100,6 @@
 
 ***
 
-### [Surah Fatiha Ki Ahmiyat | SSA Shah](https://www.youtube.com/watch?v=gSA_RKnzf1A)
-* Surah Fatiha - Brain-of-Quran
-* Surah Yaseen - Heart-of-Quran
-* Duaa
-* "aidhi nasirat mustaqeem"
-* Allah SWT attributes: Rehman & Raheem
-* __Al-Hamad Lillah__: Rabb Tallah iss Lafaz-kay-sadqay, apni hamad-bayan honay-say khush-hoo-kar, __loogon ko mushkil-halat-say nikal-daita-hai__
-* __Dushman-ki-dushmani say nijat-mil-jaiti-hai__
-
-***
-
-### [Surah Fatiha Main Insaan Ki Takhleeq-Ka Maqsad-Hai? | SSA Shah](https://www.youtube.com/watch?v=hyTSleVTIgg)
-* When a Rooah is ordered to depart-from-heaven, when its corresponding Jism-is-created.
-* Rooah-is-ordered to keep-Rujoo towards-its-creator
-* Rabb-ki-Tareef, Iqrar uski-buzurgi-ka (Rabb Al-Alameen), Takhleeq-ka-Maqsad, We ask for Taufeeq (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ),
-
-***
-
 ### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
 * Quran-ka-Darwaza (door); Kainat-Ki-Kunji
 * __Thankfulness__ - Gham-ki-deewarayn toath-jati-hayn; takabar maar-jata-hai
@@ -104,7 +107,7 @@
 * __Umm-al-Kitab__
   * How to talk? How to ask? How to make duaa?
 * Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya usay Jhuk-kar salaam-karti-hai
-* Ah-Allah, mera-rasta sidha-kay-dah
+* __Ah-Allah, mera-rasta sidha-kay-dah__
 * Iyyaka na'budu wa iyyaka nasta'een" (إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِينُ)
   * Bandagi (Ghulami)
   * Ijazi
@@ -133,6 +136,9 @@
 ***
 
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=r8yy9dspaAk)
+
+***
+
 ### [Tafseer Sura Al-Hamd (سورۃ الفاتحۃ) - Part 2 | Allama Talib Jauhari](https://www.youtube.com/watch?v=s_Mz1ANEuKM)
 
 ***
@@ -141,6 +147,6 @@
 
 ***
 
-#### [Surah Fatiha se sarh satti ka Tor | Ubqari](https://www.youtube.com/watch?v=pKzMalepVu4)
+#### [Surah Fatiha se sarh-satti ka Tor | Ubqari](https://www.youtube.com/watch?v=pKzMalepVu4)
 
 ***
