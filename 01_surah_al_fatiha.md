@@ -17,14 +17,14 @@
 * Words = 29
 * Letters = 139
 * Total = 7 + 29 + 139 = 175 = 17 x 5
-* Recited at-least 17 time times (Faraz Namaz Rakat) during 5 prayers dails
+* Recited at-least 17-time (Faraz Namaz Rakat) during 5 prayers dails
 * Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-`
 * Opens up the secrets (Israr, Rahmat and Barakat)
 
 ***
 
-* Al-sabah Al-masani
-* Al-munajat
+* Al-Sabah Al-Masani
+* Al-Munajat
 * Asas-ul-Quran
 * Umm-al-Kitab
 * Quran-ka-Darwaza
@@ -33,9 +33,11 @@
 
 * Magaz (`Brain`) of Quran
 * Quran starts with `Surah Fatiha` (Quran has been given in the hisaar of `Surah Fatiha`)
-* This Surah Hamad, Sanaa, and Dua 
-* Two Attributes of Allah SWT: Rahman & Raheem & Malik Yum-ud-Deen
-* It has been kept outside 30 chapters, which start with Alf-Laam-Meem 
+* This Surah Hamad ((ٱلْحَمْدُ لِلَّٰهِ), Sanaa ((الرَّحِيم) and (الرَّحْمٰن) ), and Dua (إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِينُ) 
+* Two Attributes of Allah SWT
+1. Rahman & Raheem
+2. Malik Yum-ud-Deen
+* It has been kept outside 30 chapters, which start with Alf-Laam-Meem ((الم))
 * First Surah, which was revealed completely-at-once.
 
 ***
@@ -44,14 +46,6 @@
 * Surah Fatiha is the `Gist-of-Constitution` in the first 2.5 Chapters
 * First 2.5 Chapters: `Constitution-of-Islam`
 * Next 27.5 Chapters: `Interpretation-of-Constituion`
-
-***
-
-#### Benefits
-* __Alhamdulillah" (ٱلْحَمْدُ لِلَّٰهِ) ka Wazifa - Mushkil halat-say-nikal-jata-hai__
-* __Al-Hamad Lillah__: Rabb Tallah iss Lafaz-kay-sadqay, apni hamad-bayan honay-say khush-hoo-kar, __loogon ko mushkil-halat-say nikal-daita-hai__
-* __Dushman-ki-dushmani se nijat mil-jaati-hai__
-* __Duaiyn mangta-rayhn, Tuh baray-say-baray masail hal-hotay-hayn__
 
 ***
 
