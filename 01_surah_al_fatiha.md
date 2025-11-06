@@ -1,5 +1,5 @@
 #### Ibadat Mohabbat, Aijzi
-* __Joo Ibadat-ko Mohabbat-samajhta-hai, Woh bhar-jata-hai.__
+* __Joo Ibadat-ko Mohabbat-samajhta-hai, woh bhar-jata-hai.__
 * __Ibadat mushkil-ko aanay-nahi-daiti__
 * __Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya-usay jhuk-kar salaam-karti-hai__
 
