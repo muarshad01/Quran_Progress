@@ -4,10 +4,10 @@
 * __Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya-usay jhuk-kar salaam-karti-hai__
 
 #### Benefits
-* __Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai__
+* __Al-hamd-u-lillah (ٱلْحَمْدُ لِلَّٰهِ) k- Wazifa - Mushkil halat-say-nikal-jata-hai__
 * __Dushman-say-bachao kay-laye__
 * __Dushman-ki-dushmani se nijat mil-jaati-hai__
-* __Duaiyn mangta-rayhn, Tuh baray-say-baray masail hal-hotay-hayn__
+* __Duaaiyn mangta-rayhn, Tuh baray-say-baray-masail hal-hotay-hayn__
 
 *** 
 
