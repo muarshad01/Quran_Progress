@@ -1,8 +1,9 @@
+#### Ibadat Mohabbat, Aijzi
 * __Joo Ibadat-ko Mohabbat-samajhta-hai, Woh bhar-jata-hai.__
 * __Ibadat mushkil-ko aanay-nahi-daiti__
 * __Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya-usay jhuk-kar salaam-karti-hai__
 
-### Benefits
+#### Benefits
 * __Al-hamd-u-lillah ka Wazifa - Mushkil halat-say-nikal-jata-hai__
 * __Dushman-say-bachao kay-laye__
 * __Dushman-ki-dushmani se nijat mil-jaati-hai__
