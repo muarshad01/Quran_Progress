@@ -76,7 +76,7 @@
 ***
 
 * Ya-Seen is one of the `Haroof-e-Muqataat`, short form of, __Ya Sayyad-ul-Bashar__
-* One of those _72 names (titles)__, which were given to prophet PBUH Pon `Shab-e-Miraj`
+* One of those __72 names (titles)__, which were given to prophet PBUH Pon `Shab-e-Miraj`
 * This Surah is __HEART-of-Quran__ - prophet PUBH
 * Beneficial to read upon people who are about to die
     * Good to read daily for difficulties-in-life
