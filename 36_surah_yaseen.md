@@ -9,10 +9,10 @@
 
 ***
 
-* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai-tu, musaibat taal-jaati-hai...Insaan araam say guzar-jaata-hai__
+* __SHADEED-mushkilat-mayn iss-surat-ki KASRAT-say-tilawat ki-jai-tu, MUSAIBAT taal-jaati-hai...Insaan araam say guzar-jaata-hai__
 * __Improvement__: Mentally, Physically, Socially, Economically
-* __Surah Dafia - Balaaon ko daafaa-karnay-wali__
-* __Surah Qazia - Hajatayn puri-karna wali__
+* __Surah Dafia - BALAAON ko daafaa-karnay-wali__
+* __Surah Qazia - HAJATAYN puri-karna wali__
 * __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
 * __7-Mubeen Wazifa__
 
@@ -21,7 +21,8 @@
 #### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
 * Heat-of-Quran
 * 5 Rukus; 83 Ayats
-* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai tu, musaibat taal-jaati-hai...Insaan araam say guzar-jaata-hai__
+* Adaad = 83 = 8 + 3 = 11
+* __SHADEED-mushkilat-mayn iss-surat-ki KASRAT-say-tilawat ki-jai-tu, MUSAIBAT taal-jaati-hai...Insaan araam say guzar-jaata-hai__
 
 ***
 
