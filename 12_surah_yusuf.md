@@ -3,3 +3,5 @@
 * Prophet PBUH: Memorise `Surah Yusuf`
 
 ***
+
+https://www.youtube.com/shorts/NVr9XaX-gJQ
