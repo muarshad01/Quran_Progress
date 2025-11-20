@@ -1,3 +1,10 @@
+#### [Bismillah ki Tafseer | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
+1. Aqayd
+2. Akhamat
+3. Qasas
+
+***
+
 #### [Open the Gates-of-Protection with Bismillah | SSA Shah](https://www.youtube.com/watch?v=y4JGa_o9IlU)
 * Dil-kay-aupur zang aur gard-o-ghubar joo-hai woh utar-jaata-hai.
 * Qalab ainay-ki-tarah saaf ho-jaata-hai.
