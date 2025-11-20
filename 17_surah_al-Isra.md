@@ -103,3 +103,10 @@
 * https://quran.com/17/82
 
 ***
+
+## [Allama Talib Johri | Waqya-e-Meraj](https://www.youtube.com/watch?v=kuIXOMbKWN4)
+* __Abad: Rooh + Jism__
+* __Surah Israa 17/1__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
+* __Surah Al-Alaq 96/9-10__: [Have you seen the man who prevents. A servant ˹of Ours˺ from praying?](https://quranwbw.com/96/9-10)
+
+***
