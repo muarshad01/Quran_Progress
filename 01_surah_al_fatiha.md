@@ -12,6 +12,11 @@
 * __Dushman-ki-dushmani se nijat mil-jaati-hai__
 * Duaaiyn mangta-rayhn, __Tuh baray-say-baray-masail hal-hotay-hayn__
 
+***
+
+#### [Surah Fatiha ka Roohani Matlab | Shams Tabrez ki Zubani](https://www.youtube.com/watch?v=EzZ1fHJGCs4)
+* TODO
+
 *** 
 
 ## Umm al-Kitab
