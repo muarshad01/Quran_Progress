@@ -1,5 +1,5 @@
 ## Miricle of Quran
-* Read it again-and-again and you'll start understanding its meaning
+* __Read it again-and-again__ and you'll start understanding its meaning
 * Quran kaa-sehar
     * Wajad tari-hona "You and Allah SWT are alone"!
 * __You associate with Quran. No one will be able to mislead you. Allah SWT tumhari agahi-aur-madad karay-gaa, rahnamai karay goo.__
