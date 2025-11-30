@@ -6,7 +6,7 @@
 
 ***
 
-#### [Kashkol-e-Marifat | Surah Al-Anaam is a virtue and benefit | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=-aFlz6-qNPU)
+#### [Surah Al-Anaam is a virtue and benefit | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=-aFlz6-qNPU)
 * Tauheed - 17 dalayal
 
 ***
