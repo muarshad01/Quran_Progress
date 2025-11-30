@@ -26,8 +26,8 @@
 ***
 
 #### [Bismillah Ke "Baay" Ki Wazahat | SSA Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
-* I recite full-Quran before sitting-on-a-horse from once i put-my-feet-in-rikab.-- Hazrat Ali Karam Allah Wajhu - 
-1. FUll Quaran
+* I recite full-Quran before sitting-on-a-horse from once i put-my-feet-in-Rikab.-- Hazrat Ali KAW 
+1. Full Quaran
 2. Surah Fatiha
 3. Bismillah
 4. Bay ( ب )
@@ -43,7 +43,7 @@
 ***
 
 #### [5 Tips for Powerful Bismillah Wazifa Results | SSA Shah](https://www.youtube.com/watch?v=6eDrhZDGv3A)
-1. Become Self-less
+1. Become self-less
 2. Ful-fill the needs, desires, comfort-of-others over ours
 3. Forgive ALL, who will hurt-us-in-future
 4. Remove-from-heart the wordly desire-of-wealth
