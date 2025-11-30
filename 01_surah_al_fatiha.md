@@ -1,14 +1,14 @@
 #### Ibadat Mohabbat, Aijzi
-* Joo Ibadat-ko Mohabbat-samajhta-hai, woh bhar-jata-hai.
-* __Ibadat mushkil-ko aanay-nahi-daiti__
+* Joo Ibadat-ko __MOHABBAT__-samajhta-hai, woh bhar-jata-hai.
+* __Ibadat MUSHKIL-ko aanay-nahi-daiti__
 * Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya-usay jhuk-kar salaam-karti-hai
-* Quran-ka-Darwaza (door); Kainat-Ki-Kunji
-* __Yeh Surah, Insaan-ki-Taqdeer badalnay-ki taqat rakhti-hai__ -- Wasif Ali Wasif
-* Surah Fatiha, Rabb-say Mulaqat-ka darwaza-hai.
+* Quran-ka-__DARWAZA__ (door); Kainat-Ki-__KUNJI__
+* __Yeh Surah, Insaan-ki-TAQDEER badalnay-ki taqat rakhti-hai__ -- Wasif Ali Wasif
+* Surah Fatiha, Rabb-say __MULAQAAT__-ka darwaza-hai.
 
 #### Benefits
-* Al-hamd-u-lillah (ٱلْحَمْدُ لِلَّٰهِ) k- Wazifa - __Mushkil halat-say-nikal-jata-hai__
-* __Dushman-say-bachao kay-laye__
+* Al-hamd-u-lillah (ٱلْحَمْدُ لِلَّٰهِ) k- Wazifa - __MUSHKIL halat-say-nikal-jata-hai__
+* __DUSHMAN-say-bachao kay-laye__
 * __Dushman-ki-dushmani se nijat mil-jaati-hai__
 * Duaaiyn mangta-rayhn, __Tuh baray-say-baray-masail hal-hotay-hayn__
 
@@ -25,7 +25,7 @@
 * Words = 29
 * Letters = 139
 * Total = 7 + 29 + 139 = 175 = 17 x 5
-* Recited at-least 17-time (Faraz Namaz Rakat) during 5 prayers dails
+* Recited at-least 17-time (Faraz Namaz Rakat: 2+4+4+3+4) during 5 prayers dails
 * Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-`
 * Opens up the secrets (Israr, Rahmat and Barakat)
 
@@ -45,7 +45,7 @@
 * Two Attributes of Allah SWT
 1. Rahman & Raheem
 2. Malik Yum-ud-Deen
-* It has been kept outside 30 chapters, which start with Alf-Laam-Meem ((الم))
+* It has been kept outside 30 chapters, which start with Alf-Laam-Meem (الم)
 * First Surah, which was revealed completely-at-once.
 
 ***
@@ -66,7 +66,7 @@
 
 #### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
 * __Dushman-say-bachao kay-laye__
-* Insaan-ki-Taubah Allah SWT kay-hazoor, jaldi-qabool hoti-hai
+* Insaan-ki-TAUBAH Allah SWT kay-hazoor, jaldi-qabool hoti-hai
 * Insaan dobara-gunah nahi-karta
 * Nasha choot-jata-hai
 * Cure for ALL diseases
