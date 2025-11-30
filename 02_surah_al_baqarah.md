@@ -17,7 +17,7 @@
 ***
 
 #### [Benefits of Seventh Ruku - Ayat: 60-61](https://www.youtube.com/watch?v=HyjyeO02BKk)
-* For __Self-confidence__, recite 7th Ruku, 7-times after Tahajad
+* For __Self-confidence, Inner-fear goes away__,  recite 7th Ruku, 7-times after Tahajad
 * Surah Taha: Jalal
 
 ***
