@@ -3,7 +3,7 @@
 ***
 
 #### SSA Shah
-* Regular recition of Surah Al-Baqarah helps in nafas-par qaboo-pana
+* Regular recition of Surah Al-Baqarah helps in __Nafas-par Qaboo-pana__
 
 ***
 
