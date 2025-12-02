@@ -22,7 +22,10 @@
 
 #### [Spiritual Effects of Bismillah | SSA Shah](https://www.youtube.com/watch?v=f_zl0XXUYPQ)
 * Iss mayn pura-quran samaya-hai aur-mayn iss-quran-ko apnay-dil-mayn samoo-loon.
-
+* Tanhai mayn beth kar wazifa karayn
+* Ibadad tanhai mayn chup kar karayn and don't let people know you're doing Ibadah.
+* Darwaza ander say BOLT kar kay Ibadah karayn
+* Nafal Ibadah, tanhail mayn chup kar karayn tuh behtar hai
 ***
 
 #### [Bismillah Ke "Baay" Ki Wazahat | SSA Shah](https://www.youtube.com/watch?v=gEEL-fo77lg)
