@@ -1,3 +1,7 @@
+#### [Qul | Allama Talib Johri](https://www.youtube.com/shorts/NyBq1UpdqQo)
+
+***
+
 ### [Yearning for God | Prof. ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
 * Uss-Ikhlas-kay mamooli-say-zaray-ko joo ibtada-e-hayat mayn merey-naseeb mayn-tha
 * Mayn-nay-sirf ushi-ko use-kya...usi-ko exploit-karta-raha
