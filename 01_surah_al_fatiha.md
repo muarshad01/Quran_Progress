@@ -105,7 +105,7 @@
 
 ***
 
-### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
+#### [Surah Fatiha Ka Sab Se Bara Raaz | Wasif Ali Wasif](https://www.youtube.com/watch?v=hXCHvBcF3d4)
 * Quran-ka-Darwaza (door); Kainat-Ki-Kunji
 * __Thankfulness__ - Gham-ki-deewarayn toath-jati-hayn; takabar maar-jata-hai
 * 7-ayats, 7-secrets, 7-doors, 7-paths ...
