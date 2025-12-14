@@ -155,3 +155,5 @@
 #### [Surah Fatiha se sarh-satti ka Tor | Ubqari](https://www.youtube.com/watch?v=pKzMalepVu4)
 
 ***
+
+#### [101-tims Surah Fatiha for Hifz Quran | Mufti Muneer Akhoon](https://www.youtube.com/shorts/bpqcRZAejMs)
