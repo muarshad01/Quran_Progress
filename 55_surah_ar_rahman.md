@@ -32,14 +32,14 @@
 
 |   |   |   |   |
 |---|---|---|---|
-|46 |[46](https://quran.com/55/46)|62|[](https://quran.com/55/47)|
-|48 |[](https://quran.com/55/49)|64|[](https://quran.com/55/47)|
-|50 |[](https://quran.com/55/51)|66|[](https://quran.com/55/47)|
-|52 |[](https://quran.com/55/53)|68|[](https://quran.com/55/47)|
-|54 |[](https://quran.com/55/55)|70|[](https://quran.com/55/47)|
-|56 |[](https://quran.com/55/57)|72|[](https://quran.com/55/47)|
-|58 |[](https://quran.com/55/57)|74|[](https://quran.com/55/47)|
-|60 |[](https://quran.com/55/57)|76|[](https://quran.com/55/47)|
+|Jannat          |[46](https://quran.com/55/46)|62|[](https://quran.com/55/47)|
+|Having Branches |[48](https://quran.com/55/49)|64|[](https://quran.com/55/47)|
+|2 Springs       |[50](https://quran.com/55/51)|66|[](https://quran.com/55/47)|
+|ALL Fruits      |[52](https://quran.com/55/53)|68|[](https://quran.com/55/47)|
+|Muttaqi         |[54](https://quran.com/55/55)|70|[](https://quran.com/55/47)|
+|Hoor            |[56](https://quran.com/55/57)|72|[](https://quran.com/55/47)|
+|Ruby and Coral  |[58](https://quran.com/55/57)|74|[](https://quran.com/55/47)|
+|Ihsan and Ihsan |[60](https://quran.com/55/57)|76|[](https://quran.com/55/47)|
 
 ***
 
