@@ -32,14 +32,14 @@
 
 |   |   |   |   |
 |---|---|---|---|
-|Jannat          |[46](https://quran.com/55/46)|62|[](https://quran.com/55/47)|
-|Having Branches |[48](https://quran.com/55/49)|64|[](https://quran.com/55/47)|
-|2 Springs       |[50](https://quran.com/55/51)|66|[](https://quran.com/55/47)|
-|ALL Fruits      |[52](https://quran.com/55/53)|68|[](https://quran.com/55/47)|
-|Muttaqi         |[54](https://quran.com/55/55)|70|[](https://quran.com/55/47)|
-|Hoor            |[56](https://quran.com/55/57)|72|[](https://quran.com/55/47)|
-|Ruby and Coral  |[58](https://quran.com/55/57)|74|[](https://quran.com/55/47)|
-|Ihsan and Ihsan |[60](https://quran.com/55/57)|76|[](https://quran.com/55/47)|
+|Jannat          |[46](https://quran.com/55/46)|[62](https://quran.com/55/62)|Jannat|
+|Having Branches |[48](https://quran.com/55/49)|[64](https://quran.com/55/64)|Dark Green|
+|2 Springs       |[50](https://quran.com/55/51)|[66](https://quran.com/55/66)|2 Springs|
+|ALL Fruits      |[52](https://quran.com/55/53)|[68](https://quran.com/55/68)|Fruits|
+|Muttaqi         |[54](https://quran.com/55/55)|[70](https://quran.com/55/70)|Hoor|
+|Hoor            |[56](https://quran.com/55/57)|[72](https://quran.com/55/72)|Tents|
+|Ruby and Coral  |[58](https://quran.com/55/57)|[74](https://quran.com/55/74)|Not touched|
+|Ihsan and Ihsan |[60](https://quran.com/55/57)|[76](https://quran.com/55/76)|Muttaqi|
 
 ***
 
