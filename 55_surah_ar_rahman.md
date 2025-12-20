@@ -1,7 +1,14 @@
 #### [Surah Ar-Rahman: The Healing Miracle You Need! | SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
 * Daily recite after Fajar
-* __Especially after Tahajjad is recommended__
+* __Especially after TAHAJJAD is recommended__
 * Your sound should spread-in-the-room...listen-to-it-carefully (what are you reciting)...__heran-kun-asrat muratab hoo-jayan-gay...baray-khusgawar__
+
+***
+
+### Benefits of Surah Rahman
+* Lessen the Anger
+* Shower of wordly blessings
+* Izzat
 
 ***
 
@@ -19,13 +26,6 @@
   * 69 ayats end on `Noon`
   * 07 ayats end on `Meem`
   * 02 ayat ends on `Ray`
-
-***
-
-### Benefits of Surah Rahman
-* Lessen the Anger
-* Shower of wordly blessings
-* Izzat
 
 ***
 
