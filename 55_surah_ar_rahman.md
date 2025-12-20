@@ -1,3 +1,8 @@
+#### [World's most beautiful explanation of Surah Ar-Rahman (سورة الرحمن) | Nouman Ali Khan](https://www.youtube.com/watch?v=N0z95WBqwPk)
+
+
+***
+
 1. 13 
 2. 16
 3. 18
@@ -47,11 +52,14 @@
 ***
 
 #### [Meezan Kia hai? (42/17)| Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
-* [Chapter: No One Will Enter Paradise By Virtue Of His Deeds, Rather By The Mercy Of Allah, Exalted Is He](https://sunnah.com/muslim:2818a) -- Sahih Muslim 2818a
 
 ***
 
-#### [Benefits of surah rehman | Dr Israr Ahmed](https://www.youtube.com/watch?v=78mZcNXV4jk)
+#### [Chapter: No One Will Enter Paradise By Virtue Of His Deeds, Rather By The Mercy Of Allah, Exalted Is He](https://sunnah.com/muslim:2818a) -- Sahih Muslim 2818a
+
+***
+
+#### [Benefits of Surah Rehman | Dr Israr Ahmed](https://www.youtube.com/watch?v=78mZcNXV4jk)
 
 ***
 
