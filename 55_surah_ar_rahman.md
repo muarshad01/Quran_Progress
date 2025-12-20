@@ -1,3 +1,6 @@
+[13,16,18,21,23,25,28,30,32,34,36,38,40,42,45,47,49,51,]
+***
+
 #### [Surah Ar-Rahman: The Healing Miracle You Need! | SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
 * Daily recite after Fajar
 * __Especially after TAHAJJAD is recommended__
