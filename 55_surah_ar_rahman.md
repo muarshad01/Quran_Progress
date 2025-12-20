@@ -5,11 +5,12 @@
 
 ***
 
-#### [Meezan Kia hai? (42/17) | Fehm ul Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
-#### [Benefits of surah rehman | Dr Israr Ahmed](https://www.youtube.com/watch?v=78mZcNXV4jk)
-#### [Meezan Kia hai? | Fehm-ul-Quran | Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
-
+#### [Meezan Kia hai? (42/17)| Allama Talib Jauhari](https://www.youtube.com/watch?v=fceG-4k_VaQ)
 * [Chapter: No One Will Enter Paradise By Virtue Of His Deeds, Rather By The Mercy Of Allah, Exalted Is He](https://sunnah.com/muslim:2818a) -- Sahih Muslim 2818a
+
+***
+
+#### [Benefits of surah rehman | Dr Israr Ahmed](https://www.youtube.com/watch?v=78mZcNXV4jk)
 
 ***
 
@@ -42,15 +43,15 @@
 * __Levels__: These gates correspond to seven distinct levels or layers, each more severe, with varying punishments. 
 * __Three Doors__: Chapter 16 describes lust (kama), anger (krodh), and greed (lobh) as the three destructive doors leading to hell.
 
-* The Eight Gates (Based on Hadith):
-1. Ar-Rayyan (The Gate of the Fasting): Specifically for those who observed fasting.
-2. Al-Salah (The Gate of Prayer): For those who were diligent in their prayers.
-3. Al-Jihad (The Gate of Striving): For those who fought in the cause of God.
-4. Al-Sadaqah (The Gate of Charity): For those who gave alms.
-5. Al-Ayman (The Right Gate): For those who will enter without reckoning.
-6. Al-Kaathimeen Al-Ghayth (Those Who Repress Anger): For those who controlled their anger.
-7. Al-Ilm (The Gate of Knowledge): For scholars and seekers of knowledge (mentioned by some scholars).
-8. Al-Radheen (The Gate of the Contented): For those content with God's decree (mentioned by some scholars). 
+* __Gates of Jannah__:
+1. __Baab As-Salaat__: For Muslims who are punctual and focused on prayer.
+2. __Baab Al-Jihad__: For those who participated in Jihad (died in the cause of Islam).
+3. __Baab As-Sadaqah__: Jannah Doors opened to those who frequently gave to charity.
+4. __Baab Ar-Rayyaan__: For those who fasting (siyam).
+5. __Baab Al-Hajj__: For Muslims who participated in the Hajj (annual pilgrimage to Mecca)
+6. __Baab Al-Kaazimeen Al-Ghaiz Wal Aafina Anin Naas__: For those who controlled or withheld anger and practiced forgiving others.
+7. __Baab Al-Iman__: For those who had sincere faith.
+8. __Baab Al-Dhikr__: For those who showed zeal in remembering Allah.
 
 * __Surah Az-Zumar 39/73__: [وَسِيقَ ٱلَّذِينَ ٱتَّقَوْا۟ رَبَّهُمْ إِلَى ٱلْجَنَّةِ زُمَرًا ۖ حَتَّىٰٓ إِذَا جَآءُوهَا وَفُتِحَتْ أَبْوَٰبُهَا وَقَالَ لَهُمْ خَزَنَتُهَا سَلَـٰمٌ عَلَيْكُمْ طِبْتُمْ فَٱدْخُلُوهَا خَـٰلِدِينَ](https://quran.com/39/73)
 ***
