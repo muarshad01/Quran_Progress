@@ -36,3 +36,5 @@
 * Someone comes to kill you; when he sees you he turns away by saying Salaam
 
 ***
+
+### [Number 31](https://www.youtube.com/shorts/IBDYlJfvNnY)
