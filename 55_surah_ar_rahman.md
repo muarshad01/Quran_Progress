@@ -29,9 +29,10 @@
 |43-44|[](https://quran.com/55/43-44)|
 * Ayats [46-78]
 * [47, 49, 51, 53, 55, 57, 59, 61, 63, 65, 67, 69, 71, 73, 75, 77]
-||||||
-|---|---|---|---|---|
-|46 |[46](https://quran.com/55/46|62)|[](https://quran.com/55/47)|
+
+|   |   |   |   |
+|---|---|---|---|
+|46 |[46](https://quran.com/55/46)|62|[](https://quran.com/55/47)|
 |48 |[](https://quran.com/55/49)|64|[](https://quran.com/55/47)|
 |50 |[](https://quran.com/55/51)|66|[](https://quran.com/55/47)|
 |52 |[](https://quran.com/55/53)|68|[](https://quran.com/55/47)|
