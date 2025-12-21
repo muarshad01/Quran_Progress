@@ -2,6 +2,11 @@
 2. __Khuda-Ka-Raazdan__ (Closeness to prophet PBUH)
 3. __Malik-ka-Mahboob__
 
+***
+
+#### (36,36) pair
+* https://www.youtube.com/shorts/PHTEZnyyZEU
+
 *** 
 
 ### Mubeen Ayats
