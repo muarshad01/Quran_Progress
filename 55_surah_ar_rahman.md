@@ -3,10 +3,17 @@
 * How much more stuff can you ignore?
 * How much mor can Allah do for you and you pretend that its not Allah?
 * How blind can you be?
-* House of Allah SWT build by Ibrahim AS turned into a Temple.
 * __Surah Al-Anbya 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةًۭ لِّلْعَـٰلَمِينَ](https://quran.com/21/107)
 * __Surah Al-Hajj 22/47 (وَيَسْتَعْجِلُونَكَ بِٱلْعَذَابِ)__: [وَيَسْتَعْجِلُونَكَ بِٱلْعَذَابِ وَلَن يُخْلِفَ ٱللَّهُ وَعْدَهُۥ ۚ وَإِنَّ يَوْمًا عِندَ رَبِّكَ كَأَلْفِ سَنَةٍۢ مِّمَّا تَعُدُّونَ](https://quran.com/22/47)
 * __Surah Al-Jumuah 62/2-3 (هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا)__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/62/2-3)
+* House of Allah SWT build by Ibrahim AS turned into a Temple.
+* Made fun of prophet, tortured and beat him, ignored the quran...
+* Noah's nation was flooded
+* Lut's nation was rained on with fire from the sky.
+* This nation had wind come and hit them.
+* This nation had earth quake.
+* Just bring it...why didn't you punish us...
+* __Surah Al-Hajj 22/47 (وَيَسْتَعْجِلُونَكَ بِٱلْعَذَابِ)__: [وَيَسْتَعْجِلُونَكَ بِٱلْعَذَابِ وَلَن يُخْلِفَ ٱللَّهُ وَعْدَهُۥ ۚ وَإِنَّ يَوْمًا عِندَ رَبِّكَ كَأَلْفِ سَنَةٍۢ مِّمَّا تَعُدُّونَ](https://quran.com/22/47)
 
 ***
 
