@@ -1,5 +1,8 @@
 #### [World's most beautiful explanation of Surah Ar-Rahman (سورة الرحمن) | Nouman Ali Khan](https://www.youtube.com/watch?v=N0z95WBqwPk)
 
+***
+
+#### [The Beauty of Surah Rahman – Recitation and Deep Urdu Explanation part 1 | Nouman Ali Khan](https://www.youtube.com/watch?v=xmJHj1VgBLA)
 
 ***
 
