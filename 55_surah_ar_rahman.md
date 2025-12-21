@@ -1,6 +1,7 @@
 #### [World's most beautiful explanation of Surah Ar-Rahman (سورة الرحمن) | Nouman Ali Khan](https://www.youtube.com/watch?v=N0z95WBqwPk)
 * House of Allah SWT build by Allah SWT turned into a Temple.
-  
+* __Surah Al-Hajj 22/47__: [وَيَسْتَعْجِلُونَكَ بِٱلْعَذَابِ وَلَن يُخْلِفَ ٱللَّهُ وَعْدَهُۥ ۚ وَإِنَّ يَوْمًا عِندَ رَبِّكَ كَأَلْفِ سَنَةٍۢ مِّمَّا تَعُدُّونَ](https://quran.com/22/47)
+
 ***
 
 #### [The Beauty of Surah Rahman – Recitation and Deep Urdu Explanation part 1 | Nouman Ali Khan](https://www.youtube.com/watch?v=xmJHj1VgBLA)
