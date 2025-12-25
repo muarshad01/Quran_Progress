@@ -125,6 +125,7 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 ## Bani Isra'il (The Children of Israel Jacob (Yaqub AS))
 * https://www.youtube.com/shorts/ajS9t4Ch2HI
 * __2/40__: [O children of Israel!...](https://quran.com/2/40)
+   * https://www.youtube.com/shorts/owb8J1FZr8k
 * __2/41__: [Believe in My revelations which confirm your Scriptures...](https://quran.com/2/41)
 * __2/42__: [Do not mix truth with falsehood or hide the truth knowingly.](https://quran.com/2/42)
 * __2/43__: [Establish prayer...](https://quran.com/2/43)
