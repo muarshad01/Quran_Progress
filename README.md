@@ -152,7 +152,8 @@
 * [30. Surah Ar-Room](https://quranwbw.com/30)
 * [31. Surah Luqman](https://quranwbw.com/31)
 * [32. Surah Aif-Lam-Meem Sajdah](https://quranwbw.com/32)
-  
+* https://www.youtube.com/shorts/pSSmwUgwdO4
+
 ***
 
 ### Chapter 22 [33 - 35] -- October 27, 2024
