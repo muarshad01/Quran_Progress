@@ -130,3 +130,10 @@ Present your hajjat in bargah-e-ilahi
 ***
 
 #### [Surah Yaseen ka 7-Mubeen wala wazifa | Peer Zulfiqar Ahmed Naqshbandi](https://www.youtube.com/watch?v=-RKERQkHyK0)
+
+***
+
+#### Surah Yaseen Heart
+* __Surah Yaseen 36/58__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)
+
+*** 
