@@ -1,3 +1,8 @@
+* https://www.youtube.com/shorts/FHeS_WNKO40
+* https://quran.com/20/114
+
+***
+
 * 1-3 The Quran an admonition from God to the faithful
 * 4-7 God one, a Sovereign King, omniscient, and possessed of most excellent names
 
