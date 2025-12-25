@@ -6,6 +6,8 @@
 
 #### (36,36) pair
 * https://www.youtube.com/shorts/PHTEZnyyZEU
+#### (36,83) - (83,36)
+https://www.youtube.com/shorts/aAwYBk_14AM
 
 *** 
 
