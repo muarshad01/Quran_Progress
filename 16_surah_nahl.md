@@ -11,5 +11,10 @@
 
 #### Honeybee 16 Chromosomes
 * https://www.youtube.com/shorts/bmx4YG8Sr9I
+* https://www.perfectbee.com/beekeeping-articles/honey-bee-genetics
+
+#### Chromosome Counts
+* 16 chromosomes from the queen + 16 from the sperm of the drone = __female (worker or queen)__.
+* 16 chromosomes from the queen +  0 from the sperm of the drone = __male (drone)__.
 
 *** 
