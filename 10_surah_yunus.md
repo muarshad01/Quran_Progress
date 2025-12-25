@@ -1,3 +1,9 @@
+* https://www.youtube.com/shorts/pH9SujOVe2E
+* https://quran.com/37/139-144
+* 37:139 - 148 = 10 vereses
+
+***
+
 * 1-2 The Makkans charge their Prophet with sorcery because he is a man from among them
 * 3 The Creator and Ruler of the universe the only true God
 * 4 Believers rewarded at death for good deeds
