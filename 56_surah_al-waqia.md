@@ -5,7 +5,8 @@
 * __Surah Al-Baqarah 2/55__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نُّؤْمِنَ لَكَ حَتَّىٰ نَرَى ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْكُمُ ٱلصَّـٰعِقَةُ وَأَنتُمْ تَنظُرُونَ](https://quran.com/al-baqarah/55)
 * __Surah Al-Baqarah 2/56__: [ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/al-baqarah/56)
 * Mayn nay zindigi kis-yaqeen-par / kis-aitbaar-par guzarni-hai
-* My Thesis: Quran is Allah SWT Kalam then every single word is in-falliable.
+* __My Thesis__: Quran is Allah SWT Kalam then __every single word of God is in-falliable.__
+* __Surah Al-Baqarah 2/1-2__: [الٓمٓ...ذَٰلِكَ ٱلْكِتَـٰبُ لَا رَيْبَ ۛ فِيهِ ۛ هُدًۭى لِّلْمُتَّقِينَ](https://quran.com/2/1-2)
 * Priori / Apriori
 * Deductive/Inductive
 ***
