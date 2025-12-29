@@ -2,6 +2,8 @@
 
 ***
 
+***
+
 ## For Epilepsy Treatment
 * Read two rakat nafal namaaz
 * Recite 21 times - durood-sharif before-and-after
@@ -18,3 +20,7 @@
 * 16 chromosomes from the queen +  0 from the sperm of the drone = __male (drone)__.
 
 *** 
+
+* 128 Ayats = 16 x 8 = 32 x 4 = 128
+* The __Honeycomb Conjecture__, proven by Thomas Hales in 1999, states that a regular hexagonal tiling is the most efficient way to divide a plane into equal areas, minimizing the total perimeter, just as bees naturally build their combs. This means hexagons use the least amount of "wax" (material) to enclose the most space, a principle observed in nature and applied in engineering for optimal packing and material efficiency, though some debate exists on whether bees consciously use math or if physics dictates the shape. 
+
