@@ -1,3 +1,7 @@
+* https://www.facebook.com/qurantehreek/videos/quran-urdu-with-dr-ali-imran/2115395035395379/
+
+***
+
 #### Ibadat Mohabbat, Aijzi
 * Joo Ibadat-ko __MOHABBAT__-samajhta-hai, woh bhar-jata-hai.
 * __Ibadat MUSHKIL-ko aanay-nahi-daiti__
