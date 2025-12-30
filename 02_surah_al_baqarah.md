@@ -2,6 +2,10 @@
 
 ***
 
+#### [Learn Quran in Urdu](https://www.youtube.com/@LEARNQURANINURDU-LearnQuran/videos)
+
+***
+
 #### SSA Shah
 * Regular recition of Surah Al-Baqarah helps in __Nafas-par Qaboo-pana__
 
