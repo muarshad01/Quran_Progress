@@ -9,3 +9,5 @@
 ### [Allama Talib Johri | Shoq Ya Khauf | Allama Talib Joha](https://www.youtube.com/watch?v=APozB8jL2jo)
 
 ***
+
+#### [Allama Talib Johri | Surah shams Tafseer](https://www.youtube.com/watch?v=dtBz1u38WQQ)
