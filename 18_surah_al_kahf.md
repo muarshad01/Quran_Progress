@@ -6,15 +6,21 @@
 
 ***
 
-#### 4-Trials
-1. __Trial of Faith__: People of the Cave / Ashab Al-Kahf (Verses 9 – 26 = 18 verses (https://www.youtube.com/shorts/fFowZ4b55Xk)) ...
-2. __Trial of Wealth__: The story of the man who owns two gardens (Verses 32 – 44)
-3. __Trial of Knowledge__ – Moses and Al-Khidr (Verses 60–82) ...
-4. __Trial of Power__: Dhul-Qar-nayn with Yajuj Majuj (Verses 83–98)
+#### [Quran and Mathematics | Surah Kahf](https://www.youtube.com/shorts/fFowZ4b55Xk)
+* Surah Al-Kahf = 18th Surah
+* Sotry of People of Cave = 9 - 26 = 18 Verses
 
 ***
 
-# Surah Kahf
+#### 4-Trials
+1. __Trial of Faith__: People of the Cave / Ashab Al-Kahf (Verses 9 – 26 = 18 verses)
+2. __Trial of Wealth__: The story of the man who owns two gardens (Verses 32 – 44)
+3. __Trial of Knowledge__ – Moses and Al-Khidr (Verses 60 – 82) ...
+4. __Trial of Power__: Dhul-Qar-nayn with Yajuj Majuj (Verses 83 – 98)
+
+***
+
+## Surah Kahf
 
 #### Surah kahf doesn't mention
 * Dajjal (Isfahani Jew) is not mentioned in Quran
@@ -22,12 +28,12 @@
 * End-of-time(s)
 
 #### Tawhid of Allah SWT
-  * First-Ayah starts with ("Alhamdulillah" (الحمد لله)) and Last-Ayah ends at ("ahada" (أَحَدَ))
-  * Many Ayats regarding `associate none in the worship of their Lord`
-  * 26, 38, 42, ..., 110 
+* First-Ayah starts with ("Al-hamd-u-lillah" (الحمد لله)) and Last-Ayah ends at ("ahada" (أَحَدَ))
+* Many Ayats regarding `associate none in the worship of their Lord`
+* 26, 38, 42, ..., 110 
 
 #### Jews had asked Three questions from Prophet PBUH
-* Q1: What is `Rooh`?
+* Q1: What is `Rooh`? (https://quran.com/17/85)
 * Q2: Tell us details about `People of Kahf (Cave)`
 * Q3: Tell us details about `Dhu al-Qarnayn`?
 
@@ -35,59 +41,59 @@
 
 ## 4 Stories: [3 related to Time & Space] + [1 related to Economics]
 
-#### 1 Trial-of-Faith: Companions of Kahf (Cave) [Verses 9 – 26]
+#### 1 - Trial-of-Faith: Companions of Kahf (Cave) [Verses 9 – 26]
 * Portal: Time & Space
 * Time-dimensions have changed (Time has been REVERSED on people in cave)
 
-* __Surah Kahf 18/11__: [So We caused them to fall into a dead sleep1 in the cave for many years,](https://quranwbw.com/18/11)
-   * I hit their ears with a `SOUND` waves
-   * Simultaneously happened to them ALL
-   * Some Portel opened because of that OR they went to another Time-Space.
+* __Surah Al-Kahf 18/11__: [فَضَرَبْنَا عَلَىٰٓ ءَاذَانِهِمْ فِى ٱلْكَهْفِ سِنِينَ عَدَدًۭا](https://quranwbw.com/18/11)
+* I hit their ears with a `SOUND` waves
+* Simultaneously happened to them ALL
+* Some Portel opened because of that OR they went to another Time-Space.
 
-* __Surah Kahf 18/17__: [And you would have seen the sun, as it rose, inclining away from their cave to the right, and as it set, declining away from them to the left, while they lay in its open space. That is one of the signs of Allah. Whoever Allah guides is truly guided. But whoever He leaves to stray, you will never find for them a guiding mentor.](https://quranwbw.com/18/17)
-   * `Place (Cave)` where when the (1) Sun rises then it turns-right and when the Sun sets then it turns-left.
-   * In this space, `it is NOT possible by Mathematics and Geometry.`
+* __Surah Kahf 18/17__: [۞ وَتَرَى ٱلشَّمْسَ إِذَا طَلَعَت تَّزَٰوَرُ عَن كَهْفِهِمْ ذَاتَ ٱلْيَمِينِ وَإِذَا غَرَبَت تَّقْرِضُهُمْ ذَاتَ ٱلشِّمَالِ وَهُمْ فِى فَجْوَةٍۢ مِّنْهُ ۚ ذَٰلِكَ مِنْ ءَايَـٰتِ ٱللَّهِ ۗ مَن يَهْدِ ٱللَّهُ فَهُوَ ٱلْمُهْتَدِ ۖ وَمَن يُضْلِلْ فَلَن تَجِدَ لَهُۥ وَلِيًّۭا مُّرْشِدًۭا](https://quran.com/18/17)
+* `Place (Cave)` where when the (1) Sun rises then it turns-right and when the Sun sets then it turns-left.
+* In this space, `it is NOT possible by Mathematics and Geometry.`
             
-* __Surah Kahf 18/18__: [And you would have thought they were awake, though they were asleep. We turned them over, to the right and left, while their dog stretched his forelegs at the entrance. Had you looked at them, you would have certainly fled away from them, filled with horror.](https://quranwbw.com/18/18)
-   * And you (would) think them that they were awake, though they were asleep.
-   * We turned them over, to the right-and-left, while their dog ...
-   * Had you looked at them, you would have certainly fled-away from them (filled-with-horror)
+* __Surah Al-Kahf 18/18__: [وَتَحْسَبُهُمْ أَيْقَاظًۭا وَهُمْ رُقُودٌۭ ۚ وَنُقَلِّبُهُمْ ذَاتَ ٱلْيَمِينِ وَذَاتَ ٱلشِّمَالِ ۖ وَكَلْبُهُم بَـٰسِطٌۭ ذِرَاعَيْهِ بِٱلْوَصِيدِ ۚ لَوِ ٱطَّلَعْتَ عَلَيْهِمْ لَوَلَّيْتَ مِنْهُمْ فِرَارًۭا وَلَمُلِئْتَ مِنْهُمْ رُعْبًۭا](https://quran.com/18/18)
+* And you (would) think them that they were awake, though they were asleep.
+* We turned them over, to the right-and-left, while their dog ...
+* Had you looked at them, you would have certainly fled-away from them (filled-with-horror)
    
-* __Surah Kahf 18/25__: [They had remained in their cave for three hundred years, adding nine.](https://quranwbw.com/18/25)
-   * Inside cave (a short-span-of-time) and outside cave 309 years
+* __Surah Kahf 18/25__: [وَلَبِثُوا۟ فِى كَهْفِهِمْ ثَلَـٰثَ مِا۟ئَةٍۢ سِنِينَ وَٱزْدَادُوا۟ تِسْعًۭا](https://quran.com/18/25)
+* Inside cave (a short-span-of-time) and outside cave 309 years
 
 ***
 
-#### 2 Trial-of-Wealth : The story of the Two men One of whom owns two gardens [Verses 32 – 44]
+#### 2 - Trial-of-Wealth: The story of the Two men One of whom owns two gardens [Verses 32 – 44]
 
 ***
 
-#### 3 Trial-of-Knowledge : Moses AS and Al-Khidr AS [Verses 60–82]
+#### 3 - Trial-of-Knowledge: Moses AS and Al-Khidr AS [Verses 60–82]
 * Portal: Time & Space
+* __Surah Al-Kahf 18/61__: [فَلَمَّا بَلَغَا مَجْمَعَ بَيْنِهِمَا نَسِيَا حُوتَهُمَا فَٱتَّخَذَ سَبِيلَهُۥ فِى ٱلْبَحْرِ سَرَبًۭا](https://quran.com/18/61)
 * While being in Present-time predict about the Future-time
-1. [Made a hole in boat - 79](https://quranwbw.com/18/79)
-2. [Killed a boy - 80](https://quranwbw.com/18/80)
-3. [Build a wall for two orphans childs](https://quranwbw.com/18/82)
-* [But when they ˹finally˺ reached the point where the seas met, they forgot their ˹salted˺ fish, and it made its way into the sea, slipping away ˹wondrously˺.](https://quranwbw.com/18/61)
-* Place where `died Fish becomes alive`, jumps out, digs-a-hole, and joins two rivers
-* Different laws are applied at that place: [Aajaba - 63](https://quranwbw.com/18/63)
+1. [Made a hole in boat - 79](https://quran.com/18/79)
+2. [Killed a boy - 80](https://quran.com/18/80)
+3. [Build a wall for two orphans childs](https://quran.com/18/82)
+* Place where `died Fish becomes alive`, jumps out, digs-a-hole, and joins two rivers.
+* Different laws are applied at that place: [Aajaba - 63](https://quran.com/18/63)
 
 ***
 
-#### 4 Trial-of-Power : Dhul-Qarnayn with Yajuj Majuj [Verses 83–98]
+#### 4 - Trial-of-Power: Dhul-Qarnayn with Yajuj Majuj [Verses 83–98]
 * Portal: Time & Space
 * Access to Heavenly Paths (`Inter galatic travel`)
 
-* __Surah Kahf 18/86 (1st Sababa)__:[until he reached the setting ˹point˺ of the sun, which appeared to him to be setting in a spring of murky water, where he found some people. We said, “O Ⱬul-Qarnain! Either punish them or treat them kindly.”](https://quranwbw.com/18/86)
+* __Surah Kahf 18/86 (1st Sababa)__:[until he reached the setting ˹point˺ of the sun, which appeared to him to be setting in a spring of murky water, where he found some people. We said, “O Ⱬul-Qarnain! Either punish them or treat them kindly.”](https://quran.com/18/86)
    * Reached where the Sun was setting in muddy black-structure __aynin hamia (Black Hole)__
 
-* __Surah Kahf 18/90 (2nd Sababa)__: [until he reached the rising ˹point˺ of the sun. He found it rising on a people for whom We had provided no shelter from it.](https://quranwbw.com/18/90)
+* __Surah Kahf 18/90 (2nd Sababa)__: [until he reached the rising ˹point˺ of the sun. He found it rising on a people for whom We had provided no shelter from it.](https://quran.com/18/90)
     * Where the sun rises __(Nebula - Stars are generated)__
     * We had NOT made any medium between Sun and them, i.e. there was no Ozone-layer.
     * They hide in water during the day and comes out during the night to avoid radiation.
 
 * __Surah Kahf 18/93 (3rd Sababa)__: [until he reached ˹a pass˺ between two mountains. He found in front of them a people who could hardly understand ˹his˺ language.](https://quranwbw.com/18/93)
-   * saddan: https://quranwbw.com/36/9
+   * saddan: https://quran.com/36/9
 
 ***
 
@@ -122,11 +128,15 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 * [Dajal K Pass Mazi Dikhanay Ki Taqat Kaisay Hogi | Suno Pakistan | EP 306](https://www.youtube.com/watch?v=c2KpDqjrG40) -- Jun 06, 2024
 * [What Technology Did Allah Used on Ashab-e-Kahf & Hazrat Uzair (A.S)](https://www.youtube.com/watch?v=xn2mIb5DQxw) -- Jun 06, 2024
 
+***
+
 #### Gog & Mogog
 * [Allah Talah Ne Hazrat Zulqarnain Ko Konsay Raastay Ataa Kiyay | Suno Pakistan | EP 306 |Suno News HD](https://www.youtube.com/watch?v=iHOVLgGu7xk) -- June 06, 2024
 * [Technology Zulqarnain Used To Imprison Yajooj Majooj | Quran Reveals Shocking Truth | Dr Abdus Salam](https://www.youtube.com/watch?v=uEv94jBSXvc) -- June 04, 2024
 * [Yajooj Majooj Kon Hain Aur Kahan Qaid Hain ? | Suno Pakistan | EP 311 | Suno News HD](https://www.youtube.com/watch?v=h2FgItmA_Sg) -- June 04, 2024
 * [Yajooj Majooj & Zulqarnain | Gog Magog living in Different Planet?](https://www.youtube.com/watch?v=krUrD_ZGa4g) -- June 04, 2024
+
+***
 
 #### Hazrat Musa AS & Khizar AS
 * [Hazrat Musa A.S Ki Hazrat Khizar A.S Sa Mulaqat Mein Machli Ka Eham Kirdar ! | Suno Pakistan |EP 316](https://www.youtube.com/watch?v=btcp7NrEib0) -- Jun 04, 2024
@@ -135,6 +145,8 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 ***
 
 #### [Story of Zulqarnain (Cyrus) in English by Dr. Israr Ahmed](https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s)
+
+***
 
 #### [Surah Kahaf Kay Khazanay | Irfan-ul-Haq](https://www.youtube.com/watch?v=IIMp9eyv4vQ)
 
