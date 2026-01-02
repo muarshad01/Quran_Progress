@@ -1,9 +1,3 @@
-#### [Story of Zulqarnain (Cyrus) in English by Dr. Israr Ahmed](https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s)
-
-#### [Surah Kahaf Kay Khazanay | Irfan-ul-Haq](https://www.youtube.com/watch?v=IIMp9eyv4vQ)
-
-***
-
 #### Surah Al-Kahf contains four prominent stories, each offering unique lessons and guidance for believers.
 1. These are the story of the `Companions of the Cave`, a tale of faith-and-perseverance in the face of persecution.
 2. The second story is about `the man with two gardens`, highlighting the dangers-of-wealth and the importance-of-gratitude.
@@ -137,5 +131,11 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 #### Hazrat Musa AS & Khizar AS
 * [Hazrat Musa A.S Ki Hazrat Khizar A.S Sa Mulaqat Mein Machli Ka Eham Kirdar ! | Suno Pakistan |EP 316](https://www.youtube.com/watch?v=btcp7NrEib0) -- Jun 04, 2024
 * [Surah Al-Kahf Mein Chupi Hui 4 Khufiya Chabiyaan !! | Abdus Salam Arif | Suno Pakistan | EP 324](https://www.youtube.com/watch?v=iEgJLYyWLpw) -- Jun 04, 2024
+
+***
+
+#### [Story of Zulqarnain (Cyrus) in English by Dr. Israr Ahmed](https://www.youtube.com/watch?v=HS1SozRtjGw&t=394s)
+
+#### [Surah Kahaf Kay Khazanay | Irfan-ul-Haq](https://www.youtube.com/watch?v=IIMp9eyv4vQ)
 
 ***
