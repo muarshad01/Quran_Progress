@@ -13,6 +13,10 @@
 
 ***
 
+### [TAWHEED - E - KHALIS / HOW TO UNDERSTAND IT / IRFAN UL HAQ](https://www.youtube.com/watch?v=JXtFhA74PO0)
+
+***
+
 ### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
 
 ***
