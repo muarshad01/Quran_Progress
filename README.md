@@ -263,7 +263,8 @@
 
 ***
 
-### Chapter 30 [78 - 114]
+#### Chapter 30 [78 - 114]
+* [Para 30 - Playlist](https://www.youtube.com/playlist?list=PLltWGYg21tg88UVDMIns5WpvcthgmI_1q)
 * [078. Surah An-Naba (The News)](https://quranwbw.com/78) -- June 2024
 * [079. Surah Al-Inshiqaq (Those who pull out)](https://quranwbw.com/79) -- -- June 2024
 * [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- -- June 2024
