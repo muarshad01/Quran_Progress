@@ -4,6 +4,8 @@
 
 #### [Learn Quran in Urdu](https://www.youtube.com/@LEARNQURANINURDU-LearnQuran/videos)
 
+#### [Baitul Quran Lahore Pakistan](https://www.youtube.com/@baitulquranlahorepakistan3648/videos)
+
 ***
 
 #### SSA Shah
