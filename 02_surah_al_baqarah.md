@@ -8,6 +8,10 @@
 
 ***
 
+#### [Para 1st (Alif Laam Meem)](https://www.youtube.com/playlist?list=PLTEgVp6nUOWZSTYBovCBDIir3PsoBcxAT)
+
+***
+
 #### SSA Shah
 * Regular recition of Surah Al-Baqarah helps in __Nafas-par Qaboo-pana__
 
