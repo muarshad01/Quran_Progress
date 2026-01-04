@@ -9,6 +9,8 @@
 ***
 
 #### [Para 1st (Alif Laam Meem)](https://www.youtube.com/playlist?list=PLTEgVp6nUOWZSTYBovCBDIir3PsoBcxAT)
+* Dr Ali Imran (PhD)
+* 1 - 93 Ayats
 
 ***
 
