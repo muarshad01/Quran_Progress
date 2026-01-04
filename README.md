@@ -265,60 +265,60 @@
 
 #### Chapter 30 [78 - 114]
 * [Para 30 - Playlist](https://www.youtube.com/playlist?list=PLltWGYg21tg88UVDMIns5WpvcthgmI_1q)
-* [078. Surah An-Naba (The News)](https://quranwbw.com/78) -- June 2024
-* [079. Surah Al-Inshiqaq (Those who pull out)](https://quranwbw.com/79) -- -- June 2024
-* [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- -- June 2024
-* [081. Surah At-Takwir (The OverThrowing)](https://quranwbw.com/81) -- -- June 2024
-* [082. Surah Al-Infitaar (The Splitting Asunder)](https://quranwbw.com/82) -- -- June 2024
-* [083. Surah Al-Mutaffifin (Defrauding)](https://quranwbw.com/83) -- June 2024
-* [084. Surah Al-Inshiqaq (The Splitting Asunder)](https://quranwbw.com/84) -- June 2024
-* [085. Surah Al-Burooj (The Constellations)](https://quranwbw.com/85) -- June 2024
-* [086. Surah At-Tariq (The Night Comer)](https://quranwbw.com/86) -- June 2024
-* [087. Surah Al-Ala (The Most High)](https://quranwbw.com/87) -- June 2024
-* [088. Surah Al-Ghaashiyah (The Overwhelming)](https://quranwbw.com/88) -- June 2024
-* [089. Surah Al-Fajr (The Dawn)](https://quranwbw.com/89) -- June 2024
+* [078. Surah An-Naba (The News)](https://quranwbw.com/78) -- 2026
+* [079. Surah Al-Inshiqaq (Those who pull out)](https://quranwbw.com/79) -- 2026
+* [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- 2026
+* [081. Surah At-Takwir (The OverThrowing)](https://quranwbw.com/81) -- 2026
+* [082. Surah Al-Infitaar (The Splitting Asunder)](https://quranwbw.com/82) -- 2026
+* [083. Surah Al-Mutaffifin (Defrauding)](https://quranwbw.com/83) -- 2026
+* [084. Surah Al-Inshiqaq (The Splitting Asunder)](https://quranwbw.com/84) -- 2026
+* [085. Surah Al-Burooj (The Constellations)](https://quranwbw.com/85) -- 2026
+* [086. Surah At-Tariq (The Night Comer)](https://quranwbw.com/86) -- 2026
+* [087. Surah Al-Ala (The Most High)](https://quranwbw.com/87) -- 2026
+* [088. Surah Al-Ghaashiyah (The Overwhelming)](https://quranwbw.com/88) -- 2026
+* [089. Surah Al-Fajr (The Dawn)](https://quranwbw.com/89) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/89_surah_al_fajr.md)
-* [090. Surah Al-Balad](https://quranwbw.com/90) -- June 2024
-* [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91)-- June 2024
+* [090. Surah Al-Balad](https://quranwbw.com/90) -- 2026
+* [091. Surah Ash-Shams (The Sun)](https://quranwbw.com/91) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/91_surah_ash_shams.md)
-* [092. Surah Al Lail ()](https://quranwbw.com/92) -- June 2024
-* [093. Surah Ad-Duha (The Early Hours)](https://quranwbw.com/93) -- June 2024 (Amna: Jan 16, 2025)
+* [092. Surah Al Lail ()](https://quranwbw.com/92) -- 2026
+* [093. Surah Ad-Duha (The Early Hours)](https://quranwbw.com/93) -- 2026 (Amna: Jan 16, 2025)
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/93_surah_ad_duha.md)
-* [094. Su Al-Inshirah (The opening up)](https://quranwbw.com/94) -- June 2024
+* [094. Su Al-Inshirah (The opening up)](https://quranwbw.com/94) -- 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/94_ash_sharh.md)
-* [095. Surah At-Tin (The Fig)](https://quranwbw.com/95) -- June 2024
-* [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- June 2024
+* [095. Surah At-Tin (The Fig)](https://quranwbw.com/95) -- 2026
+* [096. Surah Al-Alaq (The Clot)](https://quranwbw.com/96) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/96_surah_al_alaq.md)
-* [097. Surah Al-Qadr (The Majesty)](https://quranwbw.com/97) -- June 2024
+* [097. Surah Al-Qadr (The Majesty)](https://quranwbw.com/97) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/97_surah_al-qadar.md)
-* [098. Surah Al-Bayyina ()](https://quranwbw.com/98) -- June 2024
-* [099. Surah Al-Zilzal (The Shaking)]() -- June 2024
+* [098. Surah Al-Bayyina ()](https://quranwbw.com/98) -- 2026
+* [099. Surah Al-Zilzal (The Shaking)]() -- 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/99_surah_az_zalzalah.md)
-* [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- June 2024
-* [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- October 24, 2024
-* [102. Surah At-Takathur (The rivalry in world increase)]() -- June 2024
+* [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- 2026
+* [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- 2026
+* [102. Surah At-Takathur (The rivalry in world increase)]() -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/102_surah%20_at_takathur.md) 
-* [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- June 2024
+* [103. Surah Al-Asr (The Time)](https://quranwbw.com/103) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/103_surah_asr.md)
-* [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- June 2024
-* [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- June 2024
+* [104. Surah Al-Humaza ()](https://quranwbw.com/104) -- 2026
+* [105. Surah Al-Fil (The Elephant)](https://quran.com/105) -- 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/105_surah_al_fil.md) 
-* [106. Surah Quresh (Quraish)](https://quran.com/106) -- June 2024
+* [106. Surah Quresh (Quraish)](https://quran.com/106) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/106_surah_quresh.md) 
-* [107. Surah Al-Maun (The Act of Kindness)]() -- June 2024
-* [108. Surah Al-Kawthar ()](https://quran.com/108) -- June 2024
+* [107. Surah Al-Maun (The Act of Kindness)]() -- 2026
+* [108. Surah Al-Kawthar ()](https://quran.com/108) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/108_surah_al_kawthar.md)
-* [109. Surah Al-Kafirun (The Disbelievers)]() -- June 2024
+* [109. Surah Al-Kafirun (The Disbelievers)]() -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/109_surah_kafiroon.md)
-* [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- June 2024
+* [110. Surah Al-Nasar (The Help)](https://quran.com/110) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/110_an_nasr.md)
-* [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- June 2024
+* [111. Surah Al-Masad (The Flame)](https://quran.com/111) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/111_al_masad.md)
-* [112. Surah Al-Ikhlas (The Unity)](https://quran.com/112) -- June 2024
+* [112. Surah Al-Ikhlas (The Unity)](https://quran.com/112) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/112_surah_ikhlas.md) 
-* [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- June 2024
+* [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/113_surah_al_falaq.md)
-* [114. Surah An-Nas (The Men)](https://quran.com/114) -- June 2024
+* [114. Surah An-Nas (The Men)](https://quran.com/114) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/114_surah_an_naas.md)
 
 ***
