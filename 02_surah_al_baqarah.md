@@ -8,9 +8,14 @@
 
 ***
 
-#### [Para 1st (Alif Laam Meem)](https://www.youtube.com/playlist?list=PLTEgVp6nUOWZSTYBovCBDIir3PsoBcxAT)
+#### [Para 1st (Alif Laam Meem) - Playlist](https://www.youtube.com/playlist?list=PLTEgVp6nUOWZSTYBovCBDIir3PsoBcxAT)
 * Dr Ali Imran (PhD)
 * 1 - 93 Ayats
+
+***
+
+#### [Misbahul Quran - Playlist](https://www.youtube.com/playlist?list=PLltWGYg21tg-q2VjgAbzjVF1gCV1PT2ws)
+* 1 - 97 Ayats
 
 ***
 
