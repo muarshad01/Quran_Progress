@@ -19,6 +19,11 @@
 
 ***
 
+#### [Misbah-ul-Quran مصباح القرآن](https://www.youtube.com/playlist?list=PL7SfDhfuAp87NiH0oLtnaX-pfUG_5ATYR)
+* 1 - 144 Ayats
+
+***
+
 #### SSA Shah
 * Regular recition of Surah Al-Baqarah helps in __Nafas-par Qaboo-pana__
 
