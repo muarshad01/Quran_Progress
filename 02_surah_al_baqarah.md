@@ -62,6 +62,8 @@
 ***
 
 #### [Misbah-ul-Quran مصباح القرآن](https://www.youtube.com/playlist?list=PL7SfDhfuAp87NiH0oLtnaX-pfUG_5ATYR)
+#### [Arabic Grammer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/arabic_grammer.md)
+
 | Surah Al-Baqarah Ayats | Date|
 |---|---|
 | [Lesson-03 Al-Baqarah 1-5](https://www.youtube.com/watch?v=tPHc8dV9_Rk&list=PL7SfDhfuAp87NiH0oLtnaX-pfUG_5ATYR&index=3) ||
