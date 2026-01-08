@@ -64,7 +64,8 @@
 #### [Misbah-ul-Quran مصباح القرآن](https://www.youtube.com/playlist?list=PLF13cAKvQBLCRyjqWxuL5pNox4EvsgVjZ)
 | Surah Al-Baqarah Ayats | Date|
 |---|---|
-| [Lesson-03 Al-Baqara 1-5](https://www.youtube.com/watch?v=tPHc8dV9_Rk&list=PL7SfDhfuAp87NiH0oLtnaX-pfUG_5ATYR&index=3) ||
+| [Lesson-03 Al-Baqarah 1-5](https://www.youtube.com/watch?v=tPHc8dV9_Rk&list=PL7SfDhfuAp87NiH0oLtnaX-pfUG_5ATYR&index=3) ||
+| [Lesson-04 Al-Baqarah 6-7](https://www.youtube.com/watch?v=97WdqK4WX_w&list=PL7SfDhfuAp87NiH0oLtnaX-pfUG_5ATYR&index=4) ||
 
 ***
 
