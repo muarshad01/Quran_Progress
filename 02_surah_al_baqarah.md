@@ -30,7 +30,7 @@
 ***
 
 #### [Benefits of First Three Rukus (Ayats: 1-29)](https://www.youtube.com/shorts/s3_yBHCKipY)
-1. Insaan-ko-apni khatayon-ka-Ihsaas honay-lagta-hai
+1. Insaan-ko-apni __KHATAYON__-ka-Ihsaas honay-lagta-hai
 2. Allah-Tallah kay-saath __MOHABBAT__
 3. Rabb-par-__PYAAR__ anay lagta-hai
 5. __Rabb kay saath ISHQ-kay-safar ki Ibtida-hai__
@@ -51,12 +51,12 @@
 #### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
 * __Jadu ka-Toar, Taweezon ka-Toar, Nazr-e-Baad Ka-Toar (First-three-Rukus of Surah Baqarah)__ 40:40
 * Sadqah Khariat
-    * Help his Makhlooq
+* Help his Makhlooq
 
 #### Pakistan 
 * Future is Pakistan
 * Pakistan will attain hights...
-* 1-to-1.5 years...we'll be proud Pakistanis
+* 1-to-1.5 years...we'll be proud Pakistanis!!!
 * 50 years... 
 
 ***
