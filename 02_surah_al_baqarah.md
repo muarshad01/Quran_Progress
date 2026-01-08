@@ -61,6 +61,13 @@
 
 ***
 
+#### [Misbah-ul-Quran مصباح القرآن](https://www.youtube.com/playlist?list=PLF13cAKvQBLCRyjqWxuL5pNox4EvsgVjZ)
+|||
+|---|---|
+| [Lesson-03 Al-Baqara 1-5 | Misbah-ul-Quran مصباح القرآن | Quran Word to Word Urdu Translation](https://www.youtube.com/watch?v=tPHc8dV9_Rk&list=PL7SfDhfuAp87NiH0oLtnaX-pfUG_5ATYR&index=3) ||
+
+***
+
 #### Alif-Laam-Meem
 * __2/1__: [Alif-Laam-Meem](https://quranwbw.com/2#1) - 1 + 30 + 40 = 71
 * __2/2__: [Dhalika al-kitabu la RAYBA fihi HUDAN lil'Muttaqina](https://quranwbw.com/2#2)
