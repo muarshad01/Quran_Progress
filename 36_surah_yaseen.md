@@ -43,10 +43,10 @@
 #### [BENEFITS and VIRTUES of Surah Yasin | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=nXSNsBq4u_U)
 * Number 36; Makki; Heart-of-Quran
 * Mubaligh-e-Azam (Muhammad PBUH)
-* Nuh Safiullah (نوح صفی اللہ)
-* Ibrahim Khalil Allah
-* Musa Kaleem Allah
-* Issa Rooh Allah
+* Nuh Safiullah (...)
+* Ibrahim Khalil Allah ([وَٱتَّخَذَ ٱللَّهُ إِبْرَٰهِيمَ خَلِيلًۭا](https://quran.com/4/125))
+* Musa Kaleem Allah ([وَكَلَّمَ ٱللَّهُ مُوسَىٰ تَكْلِيمًۭا](https://quran.com/4/164))
+* Issa Rooh Allah ([أَلْقَىٰهَآ إِلَىٰ مَرْيَمَ... وَرُوحٌۭ مِّنْهُ ۖ](https://quran.com/4/171))
 * Yusuf Haseen Allah
 * Yaqoob Nabi Allah
 
