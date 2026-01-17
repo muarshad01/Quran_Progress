@@ -13,8 +13,7 @@
 
 ***
 
-#### (36,83) - (83,36)
-* https://www.youtube.com/shorts/aAwYBk_14AM
+#### [(36,83) - (83,36)](https://www.youtube.com/shorts/aAwYBk_14AM)
 * __Surah Al-Mutaffifin (The Defrauding) 83/36__: [هَلْ ثُوِّبَ ٱلْكُفَّارُ مَا كَانُوا۟ يَفْعَلُونَ](https://quran.com/83/36)
 
 *** 
