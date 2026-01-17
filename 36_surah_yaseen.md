@@ -1,6 +1,7 @@
-1. __Ya Syed-ul-Bashar__
-2. __Khuda-Ka-Raazdan__ (Closeness to prophet PBUH)
-3. __Malik-ka-Mahboob__
+#### Ya Seen
+1. __Ya Syed al-Bashar__
+2. __Khuda Ka-Raazdan__ (Closeness to prophet PBUH)
+3. __Malik ka-Mahboob__
 
 ***
 
