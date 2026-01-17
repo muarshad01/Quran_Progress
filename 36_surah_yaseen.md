@@ -7,8 +7,10 @@
 
 #### (36,36) pair
 * https://www.youtube.com/shorts/PHTEZnyyZEU
+
 #### (36,83) - (83,36)
-https://www.youtube.com/shorts/aAwYBk_14AM
+* https://www.youtube.com/shorts/aAwYBk_14AM
+* __Surah Al-Mutaffifin (The Defrauding) 83/36__: [هَلْ ثُوِّبَ ٱلْكُفَّارُ مَا كَانُوا۟ يَفْعَلُونَ](https://quran.com/83/36)
 
 *** 
 
@@ -18,16 +20,16 @@ https://www.youtube.com/shorts/aAwYBk_14AM
 ***
 
 * __SHADEED-mushkilat-mayn iss-surat-ki KASRAT-say-tilawat ki-jai-tu, MUSAIBAT taal-jaati-hai...Insaan araam say guzar-jaata-hai__
-* __Improvement__: Mentally, Physically, Socially, Economically
-* __Surah Dafia - BALAAON ko daafaa-karnay-wali__
-* __Surah Qazia - HAJATAYN puri-karna wali__
-* __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
+* __IMPROVEMENT__: Mentally, Physically, Socially, Economically
+* __Surah DAFIA - BALAON ko daafaa-karnay-wali__
+* __Surah QAZIA - HAJATAYN puri-karna wali__
+* __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay!
 * __7-Mubeen Wazifa__
 
 ***
 
 #### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
-* Heat-of-Quran
+* Heart-of-Quran
 * 5 Rukus; 83 Ayats
 * Adaad = 83 = 8 + 3 = 11
 * __SHADEED-mushkilat-mayn iss-surat-ki KASRAT-say-tilawat ki-jai-tu, MUSAIBAT taal-jaati-hai...Insaan araam say guzar-jaata-hai__
@@ -44,7 +46,7 @@ https://www.youtube.com/shorts/aAwYBk_14AM
 * Yusuf Haseen Allah
 * Yaqoob Nabi Allah
 
-* 5 aqli-dalayal risalat-par 
+* 5 Aqli-dalayal risalat-par 
 * 5 shiway kufar-say
 
 ***
@@ -52,26 +54,27 @@ https://www.youtube.com/shorts/aAwYBk_14AM
 #### [BENEFITS of Surah Yaseen | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=wWBOPtmYivg)
 * Aulad kay liye - 3-times daily
 * After hamal - 1-time daily (No birth-complication)
-* __Surah Dafia - BALAAON ko daafaa-karnay-wali__
-* __Surah Qazia - HAJATAYN puri-karna wali__
-* __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
+* __Surah DAFIA - BALAON ko daafaa-karnay-wali__
+* __Surah QAZIA - HAJATAYN puri-karna wali__
+* __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay!
 * __7-Mubeen Wazifa__
+
 * 21-times daily: Husband returned back...-:)
 
 ***
 
 #### 7 Mubeens [12,17,24,47,60,69,77]
-* 1 - __Surah 36/12 (Loh-e-Mehfooz)__: [إِنَّا نَحْنُ نُحْىِ ٱلْمَوْتَىٰ وَنَكْتُبُ مَا قَدَّمُوا۟ وَءَاثَـٰرَهُمْ ۚ وَكُلَّ شَىْءٍ أَحْصَيْنَـٰهُ فِىٓ إِمَامٍۢ مُّبِينٍۢ](https://quran.com/36/12)
+* 1 - __Surah 36/12 (Loh-e-Mehfooz)__: [إِنَّا نَحْنُ... نُحْىِ ٱلْمَوْتَىٰ... وَنَكْتُبُ ...مَا قَدَّمُوا۟ وَءَاثَـٰرَهُمْ ۚ... وَكُلَّ شَىْءٍ أَحْصَيْنَـٰهُ ...فِىٓ إِمَامٍۢ مُّبِينٍۢ](https://quran.com/36/12)
 * 2 - __Surah 36/17__: [وَمَا عَلَيْنَآ إِلَّا ٱلْبَلَـٰغُ ٱلْمُبِينُ](https://quran.com/36/17)
-* 3 - __Surah 36/24__: [إِنِّىٓ إِذًۭا لَّفِى ضَلَـٰلٍۢ مُّبِينٍ](https://quran.com/36/24)
-* 4 - __Surah 36/47__: [وَإِذَا قِيلَ لَهُمْ أَنفِقُوا۟ مِمَّا رَزَقَكُمُ ٱللَّهُ قَالَ ٱلَّذِينَ كَفَرُوا۟ لِلَّذِينَ ءَامَنُوٓا۟ أَنُطْعِمُ مَن لَّوْ يَشَآءُ ٱللَّهُ أَطْعَمَهُۥٓ إِنْ أَنتُمْ إِلَّا فِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/36/47)
-* 5 - __Surah 36/60__: [۞ أَلَمْ أَعْهَدْ إِلَيْكُمْ يَـٰبَنِىٓ ءَادَمَ أَن لَّا تَعْبُدُوا۟ ٱلشَّيْطَـٰنَ ۖ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/36/60)
-* 6 - __Surah 36/69__: [وَمَا عَلَّمْنَـٰهُ ٱلشِّعْرَ وَمَا يَنۢبَغِى لَهُۥٓ ۚ إِنْ هُوَ إِلَّا ذِكْرٌۭ وَقُرْءَانٌۭ مُّبِينٌۭ](https://quran.com/36/69)
-* 7 - __Surah 36/77__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quran.com/36/77)
+* 3 - __Surah 36/24__: [إِنِّىٓ ...إِذًۭا لَّفِى ضَلَـٰلٍۢ مُّبِينٍ](https://quran.com/36/24)
+* 4 - __Surah 36/47__: [وَإِذَا قِيلَ لَهُمْ... أَنفِقُوا۟ مِمَّا رَزَقَكُمُ ٱللَّهُ ...قَالَ ٱلَّذِينَ كَفَرُوا۟ لِلَّذِينَ ءَامَنُوٓا۟ ...أَنُطْعِمُ مَن لَّوْ يَشَآءُ ٱللَّهُ أَطْعَمَهُۥٓ إِنْ أَنتُمْ إِلَّا فِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/36/47)
+* 5 - __Surah 36/60__: [۞ أَلَمْ أَعْهَدْ إِلَيْكُمْ يَـٰبَنِىٓ ءَادَمَ... أَن لَّا تَعْبُدُوا۟ ٱلشَّيْطَـٰنَ ۖ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/36/60)
+* 6 - __Surah 36/69__: [وَمَا عَلَّمْنَـٰهُ ٱلشِّعْرَ وَمَا يَنۢبَغِى لَهُۥٓ ۚ... إِنْ هُوَ إِلَّا ذِكْرٌۭ وَقُرْءَانٌۭ مُّبِينٌۭ](https://quran.com/36/69)
+* 7 - __Surah 36/77__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ ...أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ... فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quran.com/36/77)
 
 ***
 
-#### [Tafsee Surah Yassen | Allama Talib Johri](https://www.youtube.com/watch?v=GoB-ZbbhYZY)
+#### [Tafseer Surah Yassen | Allama Talib Johri](https://www.youtube.com/watch?v=GoB-ZbbhYZY)
 
 ***
 
@@ -83,7 +86,7 @@ https://www.youtube.com/shorts/aAwYBk_14AM
 
 ***
 
-* Ya-Seen is one of the `Haroof-e-Muqataat`, short form of, __Ya Sayyad-ul-Bashar__
+* Ya-Seen is one of the `Haroof-e-Muqataat`, short form of, __Ya Sayyad ul-Bashar__
 * One of those __72 names (titles)__, which were given to prophet PBUH Pon `Shab-e-Miraj`
 * This Surah is __HEART-of-Quran__ - prophet PUBH
 * Beneficial to read upon people who are about to die
@@ -110,12 +113,12 @@ https://www.youtube.com/shorts/aAwYBk_14AM
 #### [Surah Yaseen 7-Mubeen ka-wazifa | Ashraf Shakir](https://www.youtube.com/watch?v=g91ghoJriUc)
 * Friday after Jumma Prayers
 * 3-times Surah Yaseen
-1. Surah Ikhlas
-2. Surah Kawthar
-3. Surah Alam Nashrah
+1. Surah Ikhlas (112)
+2. Surah Al-Kawthar (108)
+3. Surah Ash-Sharh (94)
 4. Surah Fatiha
-5. Aytul Kursi
-6. __Surah 42/19__: [ٱللَّهُ لَطِيفٌۢ بِعِبَادِهِۦ يَرْزُقُ مَن يَشَآءُ ۖ وَهُوَ ٱلْقَوِىُّ ٱلْعَزِيزُ](https://quran.com/42/19)
+5. Aytul Kursi (2/255)
+6. __Surah Ash-Shuraa 42/19__: [ٱللَّهُ لَطِيفٌۢ بِعِبَادِهِۦ... يَرْزُقُ مَن يَشَآءُ ۖ... وَهُوَ ٱلْقَوِىُّ ٱلْعَزِيزُ](https://quran.com/42/19)
 7. 3-times darood sharif
 Present your hajjat in bargah-e-ilahi
 
@@ -135,6 +138,6 @@ Present your hajjat in bargah-e-ilahi
 ***
 
 #### Surah Yaseen Heart
-* __Surah Yaseen 36/58__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)
+* __Surah Yaseen 36/58__: [سَلَـٰمٌۭ ...قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)
 
 *** 
