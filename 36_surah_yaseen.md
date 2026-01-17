@@ -1,3 +1,7 @@
+#### [Surah Yaseen - 36](https://www.youtube.com/watch?v=GKcN2XeErD8)
+
+***
+
 #### Ya Seen
 1. __Ya Syed al-Bashar__
 2. __Khuda Ka-Raazdan__ (Closeness to prophet PBUH)
