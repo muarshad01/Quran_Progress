@@ -259,7 +259,8 @@
 * [76. Surah Al-Insaan (Man)](https://quranwbw.com/76) -- July 2024
       * [Human Creation](https://www.youtube.com/shorts/GZT8bV6wnxI)
       * https://quranwbw.com/18/29
-* [77. Surat al Mursalat (The Winds)](https://quran.com/77) -- July 2024
+      * https://www.youtube.com/watch?v=F7w3sJ9PoNA
+* [77. Surat al-Mursalat (The Winds)](https://quran.com/77) -- July 2024
 
 ***
 
