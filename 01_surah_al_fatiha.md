@@ -168,3 +168,7 @@
 #### [[URDU] Surah Al- Faitha, A Conversation Between You and Allah | Nouman Ali Khan](https://www.youtube.com/watch?v=0d5x13TxkKc)
 
 ***
+
+#### [Results of my prayers and good deeds | عرفان الحق بابا | Irfan-ul-Haq](https://www.youtube.com/watch?v=4hxSPOehjDE)
+
+***
