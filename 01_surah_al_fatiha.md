@@ -128,9 +128,9 @@
 
 #### [The Greatest Secret of Surah Al-Fatiha | Wasif Ali Wasif](https://www.youtube.com/watch?v=E0oaPn46pN8)
 * __Recite 7-time after Fajr with awal/akhir darood-e-ibrahimi__
-* Ah-Allah mujhay sedha-rasta dikha; wo-rasta joo teri-Mohabbat, teri-Raza aur teri-Qurbat tak lay-jai.
+* Ah-Allah mujhay sedha-rasta dikha; wo-rasta joo teri-__Mohabbat__, teri-__RAZA__ aur teri-__QURBAT__ tak lay-jai.
 * Dil mayn Allah SWT ki mujoodgi mehsoos-karayn
-* __Yeh Surah, Insaan-ki-Taqdeer badalnay-ki taqat rakhti-hai__
+* __Yeh Surah, Insaan-ki-TAQDEER badalnay-ki taqat rakhti-hai__
 * Surah Fatiha, Rabb-say mulaqat-ka darwaza-hai.
 
 ***
