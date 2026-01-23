@@ -4,24 +4,34 @@
 
 ### [Yearning for God | Prof. ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
 * Uss-Ikhlas-kay mamooli-say-zaray-ko joo ibtada-e-hayat mayn merey-naseeb mayn-tha
-* Mayn-nay-sirf ushi-ko use-kya...usi-ko exploit-karta-raha
-* Allah SWT you know at-least I'm a bit sincere with you-:)
-* Tujhary zaib-nahi-deyta keh mataya-faqeer zayaa-karay
-* Tujhary zaib-nahi-deyta keh mery-iss talab-ki tauheen-ho
-* Mayn-terey-liye, tery-tawajah ka talib-hoon ...aur mayn-tujhay-zaroor tujhay matloob bana-kay chooron-gaa
+* Mayn-nay-sirf ushee-ko use-kya...usi-ko exploit-karta-raha
+* Allah SWT you know at-least I'm a-bit-sincere with you-:)
+* Tujhary zaib-nahi-deyta keh __MATAYAE-FAQEER__ zayaa-karay
+* Tujhary zaib-nahi-deyta keh mery-iss talab-ki-tauheen hoo
+* Mayn-terey-liye, tery-TAWAJAH ka TALIB-hoon ...aur mayn-tujhay-ZAROOR tujhay MATLOOB bana-kay chooron-gaa
 * __Khuda nay khabi kisi-talab ko zaya-nahi-kya__
 
 ***
 
-### [TAWHEED - E - KHALIS / HOW TO UNDERSTAND IT / IRFAN UL HAQ](https://www.youtube.com/watch?v=JXtFhA74PO0)
+#### [Surah Ikhlaas Ki Tilawat Ke Duniyavi Fawaid | SSA Shah](https://www.youtube.com/watch?v=6i6dnyacEQ8)
 
 ***
 
-### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
+### [Secret Power of Surah Ikhlas | SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
 
 ***
 
-### [Surah Ikhlas Ki Mukammal Tafseer | Dr Israr Ahmad](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
+### [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
+
+***
+
+#### [Surah Ar-Rahman: The Healing Miracle You Need! (Surah Ikhlas)| SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
+* Surah Ikhlas: Rabb ka Jalal
+* Baad-Roohayn / Ghayr-maryai-quwateen bhaag-jaati-hayn
+
+***
+
+### [Tawheed-e-Khalis | How to Understand It | Irfan-ul-Haq](https://www.youtube.com/watch?v=JXtFhA74PO0)
 
 ***
 
@@ -37,11 +47,7 @@
 
 ***
 
-### [Secret Power of Surah Ikhlas | SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
-
-***
-
-### [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
+### [Surah Ikhlas Ki Mukammal Tafseer | Dr Israr Ahmad](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
 
 ***
 
@@ -55,10 +61,10 @@
         * Raab-ka-qurab hasil-hota-hai
 ***
 
-#### [Surah Ar-Rahman: The Healing Miracle You Need! (Surah Ikhlas)| SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
-* Surah Ikhlas: Rabb ka Jalal
-* Baad-Roohayn / Ghayr-maryai-quwateen bhaag-jaati-hayn
+#### [Wahid aur Ahad Mein Farq | Allama Talib Jauhari](https://www.youtube.com/)
 
 ***
 
-#### [Wahid aur Ahad Mein Farq | Allama Talib Jauhari](https://www.youtube.com/)
+### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
+
+***
