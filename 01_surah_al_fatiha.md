@@ -13,7 +13,7 @@
 #### Benefits
 * Al-hamd-u-lillah (ٱلْحَمْدُ لِلَّٰهِ) k- Wazifa - __MUSHKIL halat-say-nikal-jata-hai__
 * __DUSHMAN-say-bachao kay-laye__
-* __Dushman-ki-dushmani se nijat mil-jaati-hai__
+* __Dushman-ki-dushmani se NIJAT mil-jaati-hai__
 * Duaaiyn mangta-rayhn, __Tuh baray-say-baray-masail hal-hotay-hayn__
 
 ***
@@ -26,27 +26,27 @@
 ## Umm al-Kitab
 * __Surah Al-Hijr 15/87__: [وَلَقَدْ ءَاتَيْنَـٰكَ سَبْعًۭا مِّنَ ٱلْمَثَانِى وَٱلْقُرْءَانَ ٱلْعَظِيمَ](https://quran.com/15/87)
 * Ayats = 7
-* Words = 29
-* Letters = 139
+* Words = 29 = 11
+* Letters = 139 = 13
 * Total = 7 + 29 + 139 = 175 = 17 x 5
 * Recited at-least 17-time (Faraz Namaz Rakat: 2+4+4+3+4) during 5 prayers dails
-* Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha Al-Kitab-`
+* Opens a book that is Barakah-and-Nijaat for humanity: `Fatiha al-Kitab-`
 * Opens up the secrets (Israr, Rahmat and Barakat)
 
 ***
 
-* Al-Sabah Al-Masani
+* Saba al-Masani
+* Umm al-Kitab
 * Al-Munajat
 * Asas-ul-Quran
-* Umm-al-Kitab
 * Quran-ka-Darwaza
 
 ***
 
-* Magaz (`Brain`) of Quran
+* Magaz (`BRAIN`) of Quran
 * Quran starts with `Surah Fatiha` (Quran has been given in the hisaar of `Surah Fatiha`)
 * This Surah Hamad ((ٱلْحَمْدُ لِلَّٰهِ), Sanaa ((الرَّحِيم) and (الرَّحْمٰن) ), and Dua (إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِينُ) 
-* Two Attributes of Allah SWT
+* Two Attributes of Allah SWT:
 1. Rahman & Raheem
 2. Malik Yum-ud-Deen
 * It has been kept outside 30 chapters, which start with Alf-Laam-Meem (الم)
@@ -69,9 +69,9 @@
 ***
 
 #### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
-* __Dushman-say-bachao kay-laye__
-* Insaan-ki-TAUBAH Allah SWT kay-hazoor, jaldi-qabool hoti-hai
-* Insaan dobara-gunah nahi-karta
+* __Dushman-say-BACHAO kay-laye__
+* Insaan-ki-__TAUBAH__ Allah SWT kay-hazoor, jaldi-qabool hoti-hai
+* __Insaan dobara-gunah nahi-karta__
 * Nasha choot-jata-hai
 * Cure for ALL diseases
 
@@ -103,7 +103,7 @@
 * Your Namza is uncomplete without this Surah
 * Hisar for evil forces:
   * Sad bin Abi Waqas story...
-* __Keep reciting and dumm-on-yourself (at least 40-41 times daily)__
+* __Keep reciting and dumm-on-yourself (at least 40-41 times DAILY)__
    * __Cures ALL Sicknesses__
    * __Duaiyn mangta-rayhn -- tuh baray-say-baray masail hal-hotay-hayn__
 
@@ -113,7 +113,7 @@
 * Quran-ka-Darwaza (door); Kainat-Ki-Kunji
 * __Thankfulness__ - Gham-ki-deewarayn toath-jati-hayn; takabar maar-jata-hai
 * 7-ayats, 7-secrets, 7-doors, 7-paths ...
-* __Umm-al-Kitab__
+* __Umm al-Kitab__
   * How to talk? How to ask? How to make duaa?
 * Jis-nay khud-ko Rabb-kay-samnay jhuka-liya, dunya usay Jhuk-kar salaam-karti-hai
 * __Ah-Allah, mera-rasta sidha-kay-dah__
@@ -121,7 +121,7 @@
   * Bandagi (Ghulami)
   * Ijazi
   * Two powers, which make Insaan ashraf-al-makhlooqat
-* __Joo Ibadat ko mohabbat-samajhta-hai, woh bhar-jata-hai.__
+* __Joo Ibadat ko MOHABBAT-samajhta-hai, woh bhar-jata-hai.__
 * __Ibadat mushkil-ko aanay-nahi-daiti__
 
 ***
