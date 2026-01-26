@@ -2,6 +2,10 @@
 
 ***
 
+* __Surah Al-Hajr 15/87__: [وَلَقَدْ ءَاتَيْنَـٰكَ ...سَبْعًۭا مِّنَ ٱلْمَثَانِى... وَٱلْقُرْءَانَ ٱلْعَظِيمَ](https://quran.com/15/87)
+
+***
+
 #### Ibadat Mohabbat, Aijzi
 * Joo Ibadat-ko __MOHABBAT__-samajhta-hai, woh bhar-jata-hai.
 * __Ibadat MUSHKIL-ko aanay-nahi-daiti__
