@@ -82,3 +82,13 @@
 * __Meem__: Rabb-Tallah kay "Ghafoor ur Raheem"(غَفُورٌ رَّحِيمُ) aur mauf kar deenay ki siffat ko zahir karta hai.
 
 ***
+
+#### [Bismillah Kay Faide Aur Taqatwer Wazifa | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=rsIUcbpnkWM)
+```
+ALL that is in the Quran is in the Fatiha, and
+ALLL that is in Fatiha is in the Bismillah, and
+ALLL that is in Bismillah is in the 'Ba' (ب),
+and I AM THE DOT UNDER THE 'BA'."  -- Hazrat Ali KAW
+```
+
+***
