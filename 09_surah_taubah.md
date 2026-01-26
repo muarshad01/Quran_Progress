@@ -91,4 +91,8 @@
 * 123 True believers to war against neighbouring infidels and hypocrisy
 * 124-127 Reproof of those who doubt the revelations of God and Muhammad
 * 128-129 The `Apostle` trusts in the help of God [7]
+
 *** 
+
+#### [The Hidden Secret of Surah Al-Tawbah Revealed | Sahil Adeem](https://www.youtube.com/watch?v=7UqXIszSo8E)
+
