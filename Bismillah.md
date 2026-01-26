@@ -90,5 +90,12 @@ ALLL that is in Fatiha is in the Bismillah, and
 ALLL that is in Bismillah is in the 'Ba' (ب),
 and I AM THE DOT UNDER THE 'BA'."  -- Hazrat Ali KAW
 ```
+* Zil Hajj 10 days, 19,000 times.
 
 ***
+
+#### 786
+* Three names of Allah SWT:
+1. Allah
+2. Rahman
+3. Raheem
