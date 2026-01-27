@@ -99,6 +99,7 @@
 
 ***
 
+### [21 Bar Fajr Ke Baad Surah Fatiha Parhne Ka Wazifa | Rizq, Barkat Aur Kamyabi Ka Raaz | Baba Irfan](https://www.youtube.com/watch?v=HAWyIL2fFcw)
 ### [Surah Fatiha Se Apni Zindagi Badlien? | Irfan-ul_Haq](https://www.youtube.com/watch?v=PVnOOxDc1Yc)
 * Hazrat Ali Karam-Allah-Wajhu RA tafseer - 200 pages
 * Other many Wali-Ullah tafseer - 10 books
