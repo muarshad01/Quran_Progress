@@ -99,3 +99,9 @@ and I AM THE DOT UNDER THE 'BA'."  -- Hazrat Ali KAW
 1. Allah
 2. Rahman
 3. Raheem
+
+***
+
+#### [Rizq Ki Har Bandish Khatam Karne Wala Amal | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=DePvKbRvBjs)
+
+***
