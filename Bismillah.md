@@ -105,3 +105,7 @@ and I AM THE DOT UNDER THE 'BA'."  -- Hazrat Ali KAW
 #### [Rizq Ki Har Bandish Khatam Karne Wala Amal | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=DePvKbRvBjs)
 
 ***
+
+#### [Allah Mola Ali (RA) Ki Ziyarat Kaise Karwaie Ga | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=LNg307GwKhg)
+
+***
