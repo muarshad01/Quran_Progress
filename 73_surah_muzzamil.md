@@ -5,3 +5,11 @@
 ***
 
 * Intermittent Sleep Science
+
+***
+
+### [Kala Jadoo Karne Wala Surah Al Muzzammil Se Barbaad | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=IYjBaMAryxc)
+* 41 days - 117 times
+* 41 days - 313 times
+
+*** 
