@@ -145,3 +145,7 @@ Present your hajjat in bargah-e-ilahi
 * __Surah Yaseen 36/58__: [سَلَـٰمٌۭ ...قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)
 
 *** 
+
+#### [Surah Yaseen Ky Maujzat | Nabi Pak S.A.W Ki Zayarat Ky Liye Khas Wazaif | Ft. Ch. Rukhsar Latif](https://www.youtube.com/watch?v=gRHLscykHwI)
+
+***
