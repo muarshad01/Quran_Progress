@@ -107,5 +107,11 @@ and I AM THE DOT UNDER THE 'BA'."  -- Hazrat Ali KAW
 ***
 
 #### [Allah Mola Ali (RA) Ki Ziyarat Kaise Karwaie Ga | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=LNg307GwKhg)
+* __Bay-auladi__: 786-times daily awal-akhir 11-time darood sharif. 4 months! 
+* __Hazrat Ali KAW Ziayrat__: 1,900-time daily
+* Mr. Waliat
+* Mr. Rahman
+* Mr. Raheem
+* __White Aura__: 19,000-time... 
 
 ***
