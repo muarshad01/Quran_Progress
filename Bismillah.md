@@ -72,7 +72,7 @@
 ***
 
 #### [Bismillah Shareef k Beshumar-Fawaid | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=w3vqDt3XiDU)
-* 19 Angels-of-Jahanum
+* 19 Angels-of-Jahanum ([عَلَيْهَا تِسْعَةَ عَشَرَ](https://quran.com/74/30))
 * Hazrat Adam AS (بسم الله)
 * Hazrat Muhammad PBUH (بسم الله الرحمن الرحيم)
 * __After Maghrib prayer, 786-times awal/akhir 11-times darood-shareef, for one week for-some-difficult-task__
