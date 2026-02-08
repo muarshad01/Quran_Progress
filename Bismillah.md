@@ -11,6 +11,15 @@
 
 ***
 
+#### [Secrets Hidden in Bismillah | بسم اللہ کے تین حروف میں کیا چھپا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=uzQpzGgJOp4)
+* Very Powerful zikr (Jalali); Some aspects are Jamali as well.
+* Baa - Raab Tallah ki takhleeq ki siffat-aur-qudrat ko zahir karta hai.
+* Seen - Raab Tallah ki sanaa aur hamad ko zahir karta hai.
+* Meem -Raab Tallah kay ghafoor-o-raheem ki siffat-aur-qudrat ko zahir karta hai.
+* `If you want to acquire ilm then first becom ba-adab - hazrat Umer RA`
+
+***
+
 #### [Bismillahir Rahmanir Raheem (بِسْمِ اللهِ الرَّحْمٰنِ الرَّحِيْمِ)](https://qurantalkblog.com/2021/11/14/bismillah-19-letters/)
 * It is the first verse written on Loh-e-Mehfooz situated on Arsh-e-Maulaa
 * __Surah At-Tawbah 9__ doesn't start with this Ayat.
