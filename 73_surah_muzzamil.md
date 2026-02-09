@@ -13,3 +13,8 @@
 * 41 days - 313 times
 
 *** 
+
+### [Makhlooq Khuda Ko Tang Karne Wale Ka Dardnaak Anjaam | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=Rh5l0Th9ML8&t=42s)
+* 9:00
+
+***
