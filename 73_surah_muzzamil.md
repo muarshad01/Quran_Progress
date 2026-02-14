@@ -18,3 +18,7 @@
 * 9:00
 
 ***
+
+#### [Surah Al-Muzzammil’s Hidden Power | Wasif Ali Wasif](https://www.youtube.com/watch?v=Gfaqrt17JNY)
+
+***
