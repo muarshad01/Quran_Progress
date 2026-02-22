@@ -177,3 +177,7 @@
 #### [Results of my prayers and good deeds | عرفان الحق بابا | Irfan-ul-Haq](https://www.youtube.com/watch?v=4hxSPOehjDE)
 
 ***
+
+#### [Surah Fatiha ka Shan-e-Nazool | Surah Fateha ki Fazilat | Zakat | Ameer Hone ka wazifa | Ch Rukhsar](https://www.youtube.com/watch?v=hqxmzbKw6y8)
+
+***
