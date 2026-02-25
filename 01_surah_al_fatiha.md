@@ -183,13 +183,14 @@
 ***
 
 #### [Tafsir of Surah al Fatiha | تفسیر سورہ فاتحہ | Prof ARA](https://www.youtube.com/watch?v=kJUH1-UzJaI)
-* Amal ka taqaza nahi kar rahi
-* Khuda ko mann-nayh ki Arzoo hi
+* Amal-ka-taqaza nahi-kar-rahi
+* Khuda ko mann-nayh-ki Arzoo-hi
 * Arzoo-aur-Maqsad ki Manzil
-* Tuh mujhay amal-ki taufeeq deh: [ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
-* Tawfeeq: [وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
+* Tuh-mujhay amal-ki taufeeq-deh: [ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ... عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
+* Tawfeeq: [وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ... عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
+* Tuh-nayn-unhayn Arzoo-aur-Maqsad ki-Manzil tak-ponchaya
 * Fatiha: Cure for ALL diseases and especially HEART diseases.
-* Amli, Fiqri, Nazri - rastay milayn gay
-* Aaap qurab-o-jawar-e-Khuda-wand mayn jaa-kar rukayn-gay
+* (Amli, Nazri, Fiqri) - rastay milayn-gayn
+* Aaap qurb-o-jawar-e-Khuda-wand mayn-jaa-kar rukayn-gay
 
 ***
