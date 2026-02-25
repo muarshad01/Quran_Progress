@@ -184,9 +184,9 @@
 
 #### [Tafsir of Surah al Fatiha | تفسیر سورہ فاتحہ | Prof ARA](https://www.youtube.com/watch?v=kJUH1-UzJaI)
 * Amal ka taqaza nahi kar rahi
-* Khuda ko mannay ki Arzoo hi
-* Arzoo aur maqasaq ki manzil
-* Tuh mujhay amal ki taufeeq deh: [ٱسْتَطَعْتُ ۚ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
+* Khuda ko mann-nayh ki Arzoo hi
+* Arzoo-aur-Maqsad ki Manzil
+* Tuh mujhay amal-ki taufeeq deh: [ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
 * Tawfeeq: [وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
 * Fatiha: Cure for ALL diseases and especially HEART diseases.
 * Amli, Fiqri, Nazri - rastay milayn gay
