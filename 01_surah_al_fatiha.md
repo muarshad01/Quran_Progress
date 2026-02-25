@@ -181,3 +181,15 @@
 #### [Surah Fatiha ka Shan-e-Nazool | Surah Fateha ki Fazilat | Zakat | Ameer Hone ka wazifa | Ch Rukhsar](https://www.youtube.com/watch?v=hqxmzbKw6y8)
 
 ***
+
+#### [Tafsir of Surah al Fatiha | تفسیر سورہ فاتحہ | Prof ARA](https://www.youtube.com/watch?v=kJUH1-UzJaI)
+* Amal ka taqaza nahi kar rahi
+* Khuda ko mannay ki Arzoo hi
+* Arzoo aur maqasaq ki manzil
+* Tuh mujhay amal ki taufeeq deh: [ٱسْتَطَعْتُ ۚ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
+* Tawfeeq: [وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
+* Fatiha: Cure for ALL diseases and especially HEART diseases.
+* Amli, Fiqri, Nazri - rastay milayn gay
+* Aaap qurab-o-jawar-e-Khuda-wand mayn jaa-kar rukayn-gay
+
+***
