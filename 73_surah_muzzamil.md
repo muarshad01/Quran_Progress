@@ -22,3 +22,7 @@
 #### [Surah Al-Muzzammil’s Hidden Power | Wasif Ali Wasif](https://www.youtube.com/watch?v=Gfaqrt17JNY)
 
 ***
+
+#### [Surah Muzammil Ka Wazifa | FT: Prof Abdullah Bhatti](https://www.youtube.com/shorts/7Ralut0yKZQ)
+
+***
