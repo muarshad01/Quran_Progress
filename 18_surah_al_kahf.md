@@ -151,3 +151,7 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 #### [Surah Kahaf Kay Khazanay | Irfan-ul-Haq](https://www.youtube.com/watch?v=IIMp9eyv4vQ)
 
 ***
+
+#### [Agar Tum Unhein Dekhte To Bhaag Jaate! | Quran ka Hairaan Kar Dene Wala Moajza | Sahil Adeem](https://www.youtube.com/watch?v=tI61EwTeDWw)
+
+***
