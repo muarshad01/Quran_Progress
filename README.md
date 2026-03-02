@@ -19,13 +19,13 @@
 
 *** 
 
-### Chapter [01, 02, 03] -- September 2024
+### Chapter [01, 02, 03] -- February 2026
 * [2. Surah Al-Baqarah](https://quranwbw.com/2)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/02_surah_al_baqarah.md) 
 
 ***
 
-### Chapter [03, 04] -- November, 2024
+### Chapter [03, 04] -- March 2026
 * [3. Surah Al-Imran](https://quranwbw.com/23) 
 
 ***
