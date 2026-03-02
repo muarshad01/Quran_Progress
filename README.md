@@ -323,19 +323,3 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/114_surah_an_naas.md)
 
 ***
-
-### Reading, Understanding, and the Acting upon Quran 
-* Quran ka Rakhna
-   * `Bias-e-Barkat`
-* Quran ka Parhana aur Samajhna
-  * `Bias-e-Swaab`
-* Quran par Amal Karna
-  * `Bias-e-Nijaat`
-
-***
-
-## Useful Link
-
-***
-
-#### [Surah Al-Fatiha The Cure for Division — A Life-Changing Saying of | Wasif Ali Wasif](https://www.youtube.com/watch?v=cYyPiK2248s)
