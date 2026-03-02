@@ -3,6 +3,16 @@
 
 ***
 
+### Reading, Understanding, and the Acting upon Quran 
+* Quran ka Rakhna
+   * `Bias-e-Barkat`
+* Quran ka Parhana aur Samajhna
+  * `Bias-e-Swaab`
+* Quran par Amal Karna
+  * `Bias-e-Nijaat`
+
+***
+
 ## Quran Fazilat
 * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/quran_fazilat.md)
 
