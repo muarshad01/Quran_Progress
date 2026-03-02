@@ -194,3 +194,5 @@
 * Aaap qurb-o-jawar-e-Khuda-wand mayn-jaa-kar rukayn-gay
 
 ***
+
+#### [Surah Al-Fatiha The Cure for Division — A Life-Changing Saying of | Wasif Ali Wasif](https://www.youtube.com/watch?v=cYyPiK2248s)
