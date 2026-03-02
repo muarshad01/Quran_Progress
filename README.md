@@ -31,40 +31,40 @@
 ***
 
 ### Chapter [04, 05, 06]
-* __ Surah An-Nisa__: [4. ](https://quranwbw.com/4/110)
+* [4. Surah An-Nisa](https://quranwbw.com/4)
 
 ***
 
 ### Chapter [06, 07]
-* __ Surah Al-Mai'dah__: [...](https://quran.com/5)
+* [5. Surah Al-Mai'dah](https://quran.com/5)
    * [Habeel & Kabeel](https://www.youtube.com/shorts/tCn3Lh3LRgk)
 
 ***
 
 ### Chapter [07, 08] -- June 2025
-* __Surah Al-An'am__: [6. ](https://quran.com/6)
+* [6. Surah Al-An'am](https://quran.com/6)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/06_surah_al-anam.md)
 
 ***
 
 ### Chapter [08, 09] -- June 205
-* __Surah Al-Ar'af__: [7. ](https://quran.com/7)
+* [7. Surah Al-Ar'af](https://quran.com/7)
 
 ***
 
 ### Chapter [09, 10]
-* __Surah Al-Anfal__: [8. ](https://quran.com/8)
+* [8. Surah Al-Anfal](https://quran.com/8)
 
 ***
 
 ### Chapter [10, 11] -- September, 2024
-* [09: Surah At-Tawbah](https://github.com/muarshad01/Quran_Progress/blob/main/09_surah_taubah.md) 
+[09. Surah At-Tawbah](https://quran.com/9)
+* [09. Surah At-Tawbah](https://github.com/muarshad01/Quran_Progress/blob/main/09_surah_taubah.md) 
 
-***
 ***
 
 ### Chapter 11
-* [10: Surah Yunus (Jonas)](https://quranwbw.com/10) July 2025
+* [10: Surah Yunus (Jonas)](https://quranwbw.com/10) -- July 2025
    * [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
 
 ***
