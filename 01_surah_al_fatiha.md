@@ -196,3 +196,7 @@
 ***
 
 #### [Surah Al-Fatiha The Cure for Division — A Life-Changing Saying of | Wasif Ali Wasif](https://www.youtube.com/watch?v=cYyPiK2248s)
+
+***
+
+#### [Mathematics Of Surah Fatiha Sahil Adeem | Youth Vibe](https://www.youtube.com/watch?v=guAkiHk5Tkg)
