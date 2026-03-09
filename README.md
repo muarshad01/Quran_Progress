@@ -1,5 +1,6 @@
-### [ParsQuran](http://www.parsquran.com/eng/)
-### [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
+####[ParsQuran](http://www.parsquran.com/eng/)
+#### [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
+#### [The Quran. A new translation by. M. A. S. Abdel Haleem](https://ia600501.us.archive.org/16/items/OxfordQuranTranslation/Oxford-Quran-Translation.pdf)
 
 ***
 
