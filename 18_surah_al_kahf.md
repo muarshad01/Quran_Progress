@@ -155,3 +155,5 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 #### [Agar Tum Unhein Dekhte To Bhaag Jaate! | Quran ka Hairaan Kar Dene Wala Moajza | Sahil Adeem](https://www.youtube.com/watch?v=tI61EwTeDWw)
 
 ***
+
+#### [Abdul Salam Arif revealed a surprising secret | GNN Entertainment](https://www.youtube.com/watch?v=-0fsfFgfm9I)
