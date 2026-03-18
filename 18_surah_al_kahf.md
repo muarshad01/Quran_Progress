@@ -4,6 +4,13 @@
 
 *** 
 
+#### Jews had asked Three questions from Prophet PBUH
+* __Q1__: What is `Rooh`? ([وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85))
+* __Q2__: Tell us details about `People of Kahf (Cave)`
+* __Q3__: Tell us details about `Dhu al-Qarnayn`?
+
+***
+
 #### Surah Al-Kahf contains four prominent stories, each offering unique lessons and guidance for believers.
 1. __Trial of Faith__: These are the story of the `Companions of the Cave`, a tale of faith-and-perseverance in the face of persecution (Verses 9 – 26 = 18 verses)
 2. __Trial of Wealth__: The second story is about `the man with two Gardens`, highlighting the dangers-of-wealth and the importance-of-gratitude. (Verses 32 – 44)
@@ -12,17 +19,13 @@
 
 ***
 
-#### Jews had asked Three questions from Prophet PBUH
-* __Q1__: What is `Rooh`? ([وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85))
-* __Q2__: Tell us details about `People of Kahf (Cave)`
-* __Q3__: Tell us details about `Dhu al-Qarnayn`?
-
-***
-
 #### Tawhid of Allah SWT
 * First-Ayah starts with ("Al-hamd-u-lillah" (الحمد لله)) and Last-Ayah ends at ("ahada" (أَحَدَ))
-* Many Ayats regarding `associate none in the worship of their Lord`
-* 26, 38, 42, ..., 110
+* Many Ayats regarding `associate none in the worship of their Lord`: 26, 38, 42, ..., 110
+* __Surah Al-Kahf 18/26 (وَلَا يُشْرِكُ فِى حُكْمِهِۦٓ أَحَدًۭا)__: [قُلِ ٱللَّهُ أَعْلَمُ بِمَا لَبِثُوا۟ ۖ لَهُۥ غَيْبُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ أَبْصِرْ بِهِۦ وَأَسْمِعْ ۚ مَا لَهُم مِّن دُونِهِۦ مِن وَلِىٍّۢ ...وَلَا يُشْرِكُ فِى حُكْمِهِۦٓ أَحَدًۭا](https://quranwbw.com/18/26)
+* __Surah Al-Kahf 18/38 (وَلَآ أُشْرِكُ بِرَبِّىٓ أَحَدًۭا)__: [لَّـٰكِنَّا۠ هُوَ ٱللَّهُ رَبِّى... وَلَآ أُشْرِكُ بِرَبِّىٓ أَحَدًۭا](https://quranwbw.com/18/38)
+* __Surah Al-Kahf 18/42 ( لَمْ أُشْرِكْ بِرَبِّىٓ أَحَدًۭا)__: [وَأُحِيطَ بِثَمَرِهِۦ فَأَصْبَحَ يُقَلِّبُ كَفَّيْهِ عَلَىٰ مَآ أَنفَقَ فِيهَا وَهِىَ خَاوِيَةٌ عَلَىٰ عُرُوشِهَا وَيَقُولُ يَـٰلَيْتَنِى... لَمْ أُشْرِكْ بِرَبِّىٓ أَحَدًۭا](https://quranwbw.com/18/42)
+* __Surah Al-Kahf 18/110 (وَلَا يُشْرِكْ بِعِبَادَةِ رَبِّهِۦٓ أَحَدًۢا)__: [قُلْ إِنَّمَآ أَنَا۠ بَشَرٌۭ مِّثْلُكُمْ يُوحَىٰٓ إِلَىَّ أَنَّمَآ إِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ فَلْيَعْمَلْ عَمَلًۭا صَـٰلِحًۭا ...وَلَا يُشْرِكْ بِعِبَادَةِ رَبِّهِۦٓ أَحَدًۢا](https://quranwbw.com/18/110)
 
 *** 
 
@@ -31,6 +34,7 @@
 * Hazrat Isa ibn Maryam
 * End-of-time(s)
 
+***
 
 ## 4 Stories
 * 3 related to Time & Space
