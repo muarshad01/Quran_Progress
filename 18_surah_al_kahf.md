@@ -12,24 +12,25 @@
 
 ***
 
-## Surah Kahf
-
-#### Surah kahf doesn't mention
-* Dajjal (Isfahani Jew) is not mentioned in Quran
-* Hazrat Isa ibn Maryam
-* End-of-time(s)
-
-#### Tawhid of Allah SWT
-* First-Ayah starts with ("Al-hamd-u-lillah" (الحمد لله)) and Last-Ayah ends at ("ahada" (أَحَدَ))
-* Many Ayats regarding `associate none in the worship of their Lord`
-* 26, 38, 42, ..., 110 
-
 #### Jews had asked Three questions from Prophet PBUH
 * __Q1__: What is `Rooh`? ([وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85))
 * __Q2__: Tell us details about `People of Kahf (Cave)`
 * __Q3__: Tell us details about `Dhu al-Qarnayn`?
 
 ***
+
+#### Tawhid of Allah SWT
+* First-Ayah starts with ("Al-hamd-u-lillah" (الحمد لله)) and Last-Ayah ends at ("ahada" (أَحَدَ))
+* Many Ayats regarding `associate none in the worship of their Lord`
+* 26, 38, 42, ..., 110
+
+*** 
+
+#### Surah kahf doesn't mention
+* Dajjal (Isfahani Jew) is not mentioned in Quran
+* Hazrat Isa ibn Maryam
+* End-of-time(s)
+
 
 ## 4 Stories: [3 related to Time & Space] + [1 related to Economics]
 
