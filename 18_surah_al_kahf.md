@@ -32,8 +32,6 @@
 
 #### Surah kahf doesn't mention
 * Dajjal (Isfahani Jew) is not mentioned in Quran
-* Hazrat Isa ibn Maryam
-* End-of-time(s)
 
 ***
 
