@@ -1,8 +1,8 @@
 #### Surah Al-Kahf contains four prominent stories, each offering unique lessons and guidance for believers.
-1. These are the story of the `Companions of the Cave`, a tale of faith-and-perseverance in the face of persecution (Verses 9 – 26 = 18 verses)
-2. The second story is about `the man with two Gardens`, highlighting the dangers-of-wealth and the importance-of-gratitude. (Verses 32 – 44)
-3. The third story revolves around `Moses and Khidr`, emphasizing the pursuit-of-knowledge and divine-wisdom. (Verses 60 – 82)
-4. Finally, the story of `Dhul-Qarnayn` focuses on power, justice, and the pursuit-of-goodness. (Verses 83 – 98)
+1. __Trial of Faith__: These are the story of the `Companions of the Cave`, a tale of faith-and-perseverance in the face of persecution (Verses 9 – 26 = 18 verses)
+2. __Trial of Wealth__: The second story is about `the man with two Gardens`, highlighting the dangers-of-wealth and the importance-of-gratitude. (Verses 32 – 44)
+3. __Trial of Knowledge__: The third story revolves around `Moses and Khidr`, emphasizing the pursuit-of-knowledge and divine-wisdom. (Verses 60 – 82)
+4. __Trial of Power__: Finally, the story of `Dhul-Qarnayn` focuses on power, justice, and the pursuit-of-goodness. (Verses 83 – 98)
 
 ***
 
