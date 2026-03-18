@@ -8,7 +8,7 @@
 * __Q1__: What is `Rooh`?
   * __Surah Al-Isra17/85__: [وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85)
 * __Q2__: Tell us details about `People of Kahf (Cave)`
-* __Q3__: Tell us details about `Dhu al-Qarnayn`?
+* __Q3__: Tell us details about `Dhul Qarnayn`?
 
 ***
 
