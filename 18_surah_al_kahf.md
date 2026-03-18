@@ -13,7 +13,7 @@
 ***
 
 #### Jews had asked Three questions from Prophet PBUH
-* __Q1__: What is `Rooh`? ([وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85))
+* __Q1__: What is `Rooh`? ([وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85))
 * __Q2__: Tell us details about `People of Kahf (Cave)`
 * __Q3__: Tell us details about `Dhu al-Qarnayn`?
 
