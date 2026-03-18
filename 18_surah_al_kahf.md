@@ -32,18 +32,20 @@
 * End-of-time(s)
 
 
-## 4 Stories: [3 related to Time & Space] + [1 related to Economics]
+## 4 Stories
+* 3 related to Time & Space
+* 1 related to Economics
 
-#### 1 - Trial-of-Faith: Companions of Kahf (Cave) [Verses 9 – 26]
+#### Story-1: Trial-of-Faith
 * Portal: Time & Space
-* Time-dimensions have changed (Time has been REVERSED on people in cave)
+* Time-dimensions have changed (Time has been REVERSED on people in the Cave)
 
 * __Surah Al-Kahf 18/11__: [فَضَرَبْنَا عَلَىٰٓ ءَاذَانِهِمْ فِى ٱلْكَهْفِ سِنِينَ عَدَدًۭا](https://quranwbw.com/18/11)
 * I hit their ears with a `SOUND` waves
 * Simultaneously happened to them ALL
 * Some Portel opened because of that OR they went to another Time-Space.
 
-* __Surah Kahf 18/17__: [۞ وَتَرَى ٱلشَّمْسَ إِذَا طَلَعَت تَّزَٰوَرُ عَن كَهْفِهِمْ ذَاتَ ٱلْيَمِينِ وَإِذَا غَرَبَت تَّقْرِضُهُمْ ذَاتَ ٱلشِّمَالِ وَهُمْ فِى فَجْوَةٍۢ مِّنْهُ ۚ ذَٰلِكَ مِنْ ءَايَـٰتِ ٱللَّهِ ۗ مَن يَهْدِ ٱللَّهُ فَهُوَ ٱلْمُهْتَدِ ۖ وَمَن يُضْلِلْ فَلَن تَجِدَ لَهُۥ وَلِيًّۭا مُّرْشِدًۭا](https://quran.com/18/17)
+* __Surah Al-Kahf 18/17__: [۞ وَتَرَى ٱلشَّمْسَ إِذَا طَلَعَت تَّزَٰوَرُ عَن كَهْفِهِمْ ذَاتَ ٱلْيَمِينِ وَإِذَا غَرَبَت تَّقْرِضُهُمْ ذَاتَ ٱلشِّمَالِ وَهُمْ فِى فَجْوَةٍۢ مِّنْهُ ۚ ذَٰلِكَ مِنْ ءَايَـٰتِ ٱللَّهِ ۗ مَن يَهْدِ ٱللَّهُ فَهُوَ ٱلْمُهْتَدِ ۖ وَمَن يُضْلِلْ فَلَن تَجِدَ لَهُۥ وَلِيًّۭا مُّرْشِدًۭا](https://quran.com/18/17)
 * `Place (Cave)` where when the (1) Sun rises then it turns-right and when the Sun sets then it turns-left.
 * In this space, `it is NOT possible by Mathematics and Geometry.`
             
@@ -52,16 +54,16 @@
 * We turned them over, to the right-and-left, while their dog ...
 * Had you looked at them, you would have certainly fled-away from them (filled-with-horror)
    
-* __Surah Kahf 18/25__: [وَلَبِثُوا۟ فِى كَهْفِهِمْ ثَلَـٰثَ مِا۟ئَةٍۢ سِنِينَ وَٱزْدَادُوا۟ تِسْعًۭا](https://quran.com/18/25)
+* __Surah Al-Kahf 18/25__: [وَلَبِثُوا۟ فِى كَهْفِهِمْ ثَلَـٰثَ مِا۟ئَةٍۢ سِنِينَ وَٱزْدَادُوا۟ تِسْعًۭا](https://quran.com/18/25)
 * Inside cave (a short-span-of-time) and outside cave 309 years
 
 ***
 
-#### 2 - Trial-of-Wealth: The story of the Two men One of whom owns two gardens [Verses 32 – 44]
+#### Story-2: Trial-of-Wealth
 
 ***
 
-#### 3 - Trial-of-Knowledge: Moses AS and Al-Khidr AS [Verses 60–82]
+#### Story-3: Trial-of-Knowledge
 * Portal: Time & Space
 * __Surah Al-Kahf 18/61__: [فَلَمَّا بَلَغَا مَجْمَعَ بَيْنِهِمَا نَسِيَا حُوتَهُمَا فَٱتَّخَذَ سَبِيلَهُۥ فِى ٱلْبَحْرِ سَرَبًۭا](https://quran.com/18/61)
 * While being in Present-time predict about the Future-time
@@ -73,19 +75,19 @@
 
 ***
 
-#### 4 - Trial-of-Power: Dhul-Qarnayn with Yajuj Majuj [Verses 83–98]
+#### Story-4: Trial-of-Power
 * Portal: Time & Space
 * Access to Heavenly Paths (`Inter galatic travel`)
 
-* __Surah Kahf 18/86 (1st Sababa)__:[until he reached the setting ˹point˺ of the sun, which appeared to him to be setting in a spring of murky water, where he found some people. We said, “O Ⱬul-Qarnain! Either punish them or treat them kindly.”](https://quran.com/18/86)
+* __Surah Al-Kahf 18/86 (1st Sababa)__:[until he reached the setting ˹point˺ of the sun, which appeared to him to be setting in a spring of murky water, where he found some people. We said, “O Ⱬul-Qarnain! Either punish them or treat them kindly.”](https://quran.com/18/86)
    * Reached where the Sun was setting in muddy black-structure __aynin hamia (Black Hole)__
 
-* __Surah Kahf 18/90 (2nd Sababa)__: [until he reached the rising ˹point˺ of the sun. He found it rising on a people for whom We had provided no shelter from it.](https://quran.com/18/90)
+* __Surah Al-Kahf 18/90 (2nd Sababa)__: [until he reached the rising ˹point˺ of the sun. He found it rising on a people for whom We had provided no shelter from it.](https://quran.com/18/90)
     * Where the sun rises __(Nebula - Stars are generated)__
     * We had NOT made any medium between Sun and them, i.e. there was no Ozone-layer.
     * They hide in water during the day and comes out during the night to avoid radiation.
 
-* __Surah Kahf 18/93 (3rd Sababa)__: [until he reached ˹a pass˺ between two mountains. He found in front of them a people who could hardly understand ˹his˺ language.](https://quranwbw.com/18/93)
+* __Surah Al-Kahf 18/93 (3rd Sababa)__: [until he reached ˹a pass˺ between two mountains. He found in front of them a people who could hardly understand ˹his˺ language.](https://quranwbw.com/18/93)
    * saddan: https://quran.com/36/9
 
 ***
