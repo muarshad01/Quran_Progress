@@ -117,7 +117,8 @@
 | [Ibtada e Intehaa Beginning of the End - EP 16 - Alief TV](https://www.youtube.com/watch?v=HmQVteQUoz0) || June 03, 2024 |
 | [Ibtada e Intehaa Beginning of the End - EP 16 - Alief TV](https://www.youtube.com/watch?v=HmQVteQUoz0) || June 03, 2024 |
 | [Ibtada e Intehaa Beginning of the End - EP 17 - Alief TV](https://www.youtube.com/watch?v=Fi1hTNDFrY4)
-| [NABI PAK (SAW) kay Tarekay sa Surah Khaf Prhay I Dajal Ky Fitnay Sa Bachny Ka Amal I Sahil Adeem](https://www.youtube.com/watch?v=MjAOhpyTlxI)
+
+* [NABI PAK (SAW) kay Tarekay sa Surah Khaf Prhay I Dajal Ky Fitnay Sa Bachny Ka Amal I Sahil Adeem](https://www.youtube.com/watch?v=MjAOhpyTlxI)
 
 ***
 
