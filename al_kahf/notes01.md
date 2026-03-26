@@ -1,5 +1,5 @@
 * All stories fo prophet Nuh AS, which Christian tell us, are from Torah!
-* Adam AS -- Idris(AS) -- Nuh AS -> Ibrahm AS ->
+* Adam AS -- Nuh AS --Ibrahm AS -- Musa AS -- Issa AS -- Prophet Muhammad PBUH
 
 ***
 
@@ -12,9 +12,9 @@
 *** 
 
 * The three main branches (or "sects") of Christianity are: 
-1. Catholic
-2. Protestant, and 
-3. Eastern Orthodox.
+1. Roman Catholic
+2. Protestant
+3. Eastern Orthodox
 
 ***
 
