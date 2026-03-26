@@ -4,6 +4,14 @@
 
 *** 
 
+#### One Dollar 
+1. One Eye (Dajjal Eye)
+  * __Hadith__: [You should know that he is one-eyed, and Allah is not one-eyed.(https://sunnah.com/bukhari:3337))
+2. Pyramid
+3. Novus Ordo Seclorum (New order of the ages)
+
+***
+
 #### Jews had asked Three questions from Prophet PBUH
 * __Q1__: What is Rooh?
   * __Surah Al-Isra 17/85 (قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85)
