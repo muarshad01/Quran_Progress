@@ -101,23 +101,23 @@
 | Lecture | Notes | Date |
 |---|---|---|
 | [Ibtada-e-Intehaa Beginning of the End - EP 01 - Alief TV](https://www.youtube.com/watch?v=NcS6gECLdBo) | [Notes01](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes01.md) | June 02, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 02 - Alief TV](https://www.youtube.com/watch?v=lhbsVPeld10) |[Notes02](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md) | June 02, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 03 - Alief TV](https://www.youtube.com/watch?v=qdFdxY39S7s) | [Notes03](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 04 - Alief TV](https://www.youtube.com/watch?v=iX6dvekkmgo) | [Notes04](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 05 - Alief TV](https://www.youtube.com/watch?v=Acr4IiIJ7nI) | [Notes05](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 06 - Alief TV](https://www.youtube.com/watch?v=2J3UXhu_8cI) | [Notes06](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 07 - Alief TV](https://www.youtube.com/watch?v=j2xrUx-NFgg) | [Notes07](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 08 - Alief TV](https://www.youtube.com/watch?v=SYS6VXyiwaU) | [Notes08](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 09 - Alief TV](https://www.youtube.com/watch?v=87QsHJd81KY) | [Notes09](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 10 - Alief TV](https://www.youtube.com/watch?v=eexobZep_9s) | [Notes10](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 11 - Alief TV](https://www.youtube.com/watch?v=vPcwsi9tRzI) | [Notes11](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 12 - Alief TV](https://www.youtube.com/watch?v=EtGjRuuoO80) | [Notes02](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 13 - Alief TV](https://www.youtube.com/watch?v=DpztbN1X9hQ) | [Notes12](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 14 - Alief TV](https://www.youtube.com/watch?v=KOh1ygcPTbo) | [Notes13](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 15 - Alief TV](https://www.youtube.com/watch?v=MO9mDOviKNU) | [Notes14](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 16 - Alief TV](https://www.youtube.com/watch?v=HmQVteQUoz0) | [Notes15](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 16 - Alief TV](https://www.youtube.com/watch?v=HmQVteQUoz0) | [Notes16](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 17 - Alief TV](https://www.youtube.com/watch?v=Fi1hTNDFrY4) | [Notes17](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)||
+| [Ibtada-e-Intehaa Beginning of the End - EP 02 - Alief TV](https://www.youtube.com/watch?v=lhbsVPeld10) |[Notes02](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md) | June 02, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 03 - Alief TV](https://www.youtube.com/watch?v=qdFdxY39S7s) | [Notes03](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes03.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 04 - Alief TV](https://www.youtube.com/watch?v=iX6dvekkmgo) | [Notes04](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes04.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 05 - Alief TV](https://www.youtube.com/watch?v=Acr4IiIJ7nI) | [Notes05](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes05.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 06 - Alief TV](https://www.youtube.com/watch?v=2J3UXhu_8cI) | [Notes06](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes06.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 07 - Alief TV](https://www.youtube.com/watch?v=j2xrUx-NFgg) | [Notes07](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 08 - Alief TV](https://www.youtube.com/watch?v=SYS6VXyiwaU) | [Notes08](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes07.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 09 - Alief TV](https://www.youtube.com/watch?v=87QsHJd81KY) | [Notes09](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes08.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 10 - Alief TV](https://www.youtube.com/watch?v=eexobZep_9s) | [Notes10](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes09.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 11 - Alief TV](https://www.youtube.com/watch?v=vPcwsi9tRzI) | [Notes11](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes10.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 12 - Alief TV](https://www.youtube.com/watch?v=EtGjRuuoO80) | [Notes02](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes11.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 13 - Alief TV](https://www.youtube.com/watch?v=DpztbN1X9hQ) | [Notes12](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes12.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 14 - Alief TV](https://www.youtube.com/watch?v=KOh1ygcPTbo) | [Notes13](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes13.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 15 - Alief TV](https://www.youtube.com/watch?v=MO9mDOviKNU) | [Notes14](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes14.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 16 - Alief TV](https://www.youtube.com/watch?v=HmQVteQUoz0) | [Notes15](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes15.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 16 - Alief TV](https://www.youtube.com/watch?v=HmQVteQUoz0) | [Notes16](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes16.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 17 - Alief TV](https://www.youtube.com/watch?v=Fi1hTNDFrY4) | [Notes17](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes17.md)|June 03, 2024|
 
 * [NABI PAK (SAW) kay Tarekay sa Surah Khaf Prhay I Dajal Ky Fitnay Sa Bachny Ka Amal I Sahil Adeem](https://www.youtube.com/watch?v=MjAOhpyTlxI)
 
