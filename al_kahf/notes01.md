@@ -1,3 +1,4 @@
+* All stories fo prophet Nuh AS, which Christian tell us, are from Torah!
 
 ***
 
