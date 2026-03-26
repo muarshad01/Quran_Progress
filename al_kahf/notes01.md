@@ -50,7 +50,7 @@
 ***
 
 * __REALM__
-* 1st day: 1 Year (e.g., Mercuy one day is equal to our one day!)
+* 1st day: 1 Year (e.g., Mercuy one day is equal to our one day.  Closest planet to the Sun; half frozen??)
 * 2nd day: 40 Year
 * 3rd day: 1 weeek
 
