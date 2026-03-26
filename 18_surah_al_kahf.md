@@ -6,7 +6,7 @@
 
 #### One Dollar 
 1. One Eye (Dajjal Eye)
-* __Hadith__: [You should know that he is one-eyed, and Allah is not one-eyed](https://sunnah.com/bukhari:3337)
+* __Hadith__: [You should know that he is one-eyed, and Allah is not one-eyed](https://sunnah.com/bukhari:3337) -- Sahih al-Bukhari 3337
 2. Pyramid
 3. Novus Ordo Seclorum (New order of the ages)
 
