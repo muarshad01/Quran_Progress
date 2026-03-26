@@ -5,7 +5,7 @@
 * __Q1__: What is Rooh?
   * __Surah Al-Isra 17/85 (قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا)
 * __Q2__: Tell us details about People of the Cave (Ashab al-Kahf) 
-* __Q3__: Tell us details about Dhul Qarnayn ([Surah al-Kahf 18/83-](https://quran.com/18/83-101))?
+* __Q3__: Tell us details about Dhul Qarnayn ([Surah al-Kahf 18/83-98](https://quran.com/18/83-101))?
 
 ***
 
