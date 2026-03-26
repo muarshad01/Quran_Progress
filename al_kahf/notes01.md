@@ -68,3 +68,8 @@ What is the matter with you? We said: Allah's Messenger, you made a mention of t
 * Dajjal will slow down the speed of planet!
 
 ***
+
+* Jews settlements in Madinah ...almost 100 years before Prophet PBUH...a Nabi is coming!!
+* Salman Farsi story...
+
+***
