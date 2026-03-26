@@ -1,5 +1,5 @@
 * All stories fo prophet Nuh AS, which Christian tell us, are from Torah!
-* Adam AS -> Nuh AS -> Ibrahm AS ->
+* Adam AS -- Idris(AS) -- Nuh AS -> Ibrahm AS ->
 
 ***
 
