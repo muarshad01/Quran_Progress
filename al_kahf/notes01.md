@@ -40,17 +40,13 @@
 
 ***
 
-#### REALM
+#### REALM & Time Dimension
 * Dajjal will slow down the speed of planet!
-* Total 40 days
-  * __1st day__: 1 Year (e.g., on planet Mercuy, which is closet to Sun, one day is equal to our one year. Half of the year it remains frozen??)
-  * __2nd day__: 1 month
-  * __3rd day__: 1 weeek
-  * The remaining 37 days of his 40-day stay will be like normal days. 
-
-***
-
-#### Slowdown the Time
+> * Total 40 days
+> * __1st day__: 1 Year (e.g., on planet Mercuy, which is closet to Sun, one day is equal to our one year. Half of the year it remains frozen??)
+> * __2nd day__: 1 month
+> * __3rd day__: 1 weeek
+> * The remaining 37 days of his 40-day stay will be like normal days. 
 
 ***
 
