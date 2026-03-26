@@ -14,7 +14,9 @@ Key details regarding the Dajjal from authentic Hadith (principally Sahih Muslim
 
 ***
 
-* __Hadith aboout Frist 10 Versus__: [Abu Darda' reported Allah's Apostle (ﷺ) as saying: If anyone learns by heart the first ten verses of the Surah al-Kahf, he will be protected from the Dajjal.](https://sunnah.com/muslim:809a) -- Sahih Muslim 809a
+## Hadith
+
+* __Protection from Dajjal (First 10 versus)__: [Abu Darda' reported Allah's Apostle (ﷺ) as saying: If anyone learns-by-heart the first-10 verses of the Surah al-Kahf, he will be protected from the Dajjal.](https://sunnah.com/muslim:809a) -- Sahih Muslim 809a
 
 * __Hadith Every Propht after Nuh AS has warned about Dajjal__: [Narrated Ibn `Umar: Once Allah's Messenger (ﷺ) stood amongst the people, glorified and praised Allah as He deserved and then mentioned the Dajjal saying, "l warn you against him (i.e. the Dajjal) and there was no prophet but warned his nation against him. No doubt, Noah warned his nation against him but I tell you about him something of which no prophet told his nation before me. You should know that he is one-eyed, and Allah is not one-eyed."](https://sunnah.com/bukhari:3337) -- Sahih al-Bukhari 3337
 
