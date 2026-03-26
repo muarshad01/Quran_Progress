@@ -1,4 +1,4 @@
-* All stories fo prophet Nuh AS, which Christian tell us, are from Torah!
+* All stories of prophet Nuh AS, which Christian tell us, are from Torah!
 * Adam AS -- Nuh AS --Ibrahm AS -- Musa AS -- Issa AS -- Prophet Muhammad PBUH
 
 ***
