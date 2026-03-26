@@ -6,12 +6,13 @@
 
 #### Economics: One Dollar (Only Materialistic World)
 1. One Eye (Dajjal Eye)
-* Only Body matters and NO Spirit (Rooh)!
+* Body versus Spirit!
 * __Hadith__: [You should know that he is one-eyed, and Allah is not one-eyed](https://sunnah.com/bukhari:3337) -- Sahih al-Bukhari 3337
-2. Pyramid
-3. MDCCLXXVI = 1776 (Freemasons)
-4. Novus Ordo Seclorum (New order of the ages)
-5. Annuit Coeptis (Providence has approved of our undertakings)
+2. Pyramid ???
+3. __MDCCLXXVI__ = 1776 (Freemasons)
+4. __Novus Ordo Seclorum (New order of the ages)__
+5. __Annuit Coeptis (Providence has approved of our undertakings)__
+6. __E Pluribus Unum (out of many, one)__
 * __Providence__: The protective care of God or of nature as a spiritual power.
 
 ***
