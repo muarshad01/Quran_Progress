@@ -117,7 +117,7 @@
 | [Ibtada e Intehaa Beginning of the End - EP 15 - Alief TV](https://www.youtube.com/watch?v=MO9mDOviKNU) | [Notes14](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
 | [Ibtada e Intehaa Beginning of the End - EP 16 - Alief TV](https://www.youtube.com/watch?v=HmQVteQUoz0) | [Notes15](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
 | [Ibtada e Intehaa Beginning of the End - EP 16 - Alief TV](https://www.youtube.com/watch?v=HmQVteQUoz0) | [Notes16](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)| June 03, 2024 |
-| [Ibtada e Intehaa Beginning of the End - EP 17 - Alief TV](https://www.youtube.com/watch?v=Fi1hTNDFrY4) | Notes17](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)||
+| [Ibtada e Intehaa Beginning of the End - EP 17 - Alief TV](https://www.youtube.com/watch?v=Fi1hTNDFrY4) | [Notes17](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md)||
 
 * [NABI PAK (SAW) kay Tarekay sa Surah Khaf Prhay I Dajal Ky Fitnay Sa Bachny Ka Amal I Sahil Adeem](https://www.youtube.com/watch?v=MjAOhpyTlxI)
 
