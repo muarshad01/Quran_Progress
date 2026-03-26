@@ -63,4 +63,8 @@ What is the matter with you? We said: Allah's Messenger, you made a mention of t
   * Third Day: As long as a week.
   * Remaining 37 Days: Similar to normal days
 
-*** 
+***
+
+* Dajjal will slow down the speed of planet!
+
+***
