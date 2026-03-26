@@ -50,9 +50,9 @@
 
 ***
 
-* Jews settlements in Madinah ...almost 100 years before Prophet PBUH...a Nabi is coming!!
+* Jews settlements in Madinah ...almost 100 years before Prophet PBUH...they knew a Nabi is coming!!
 * Salman Farsi story...
-* Prophet PBUH didn't eat Food
-* Salman Farsi Checking Mohr-e-Nuwabat
+  * Prophet PBUH didn't eat his Food
+  * Salman Farsi Checking Mohr-e-Nuwabat
 
 ***
