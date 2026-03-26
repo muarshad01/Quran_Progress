@@ -71,5 +71,7 @@ What is the matter with you? We said: Allah's Messenger, you made a mention of t
 
 * Jews settlements in Madinah ...almost 100 years before Prophet PBUH...a Nabi is coming!!
 * Salman Farsi story...
+* Prophet PBUH didn't eat Food
+* Salman Farsi Checking Mohr-e-Nuwabat
 
 ***
