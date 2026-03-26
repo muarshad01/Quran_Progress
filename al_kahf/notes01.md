@@ -1,7 +1,7 @@
 
 ***
 
-### Jews had asked Three questions from Prophet PBUH
+#### Jews had asked Three questions from Prophet PBUH
 * __Q1__: What is Rooh?
   * __Surah Al-Isra 17/85 (قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85)
 * __Q2__: Tell us details about People of the Cave (Ashab al-Kahf) 
