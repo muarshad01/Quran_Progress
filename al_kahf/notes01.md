@@ -29,10 +29,14 @@
 
 #### Nuh AS Age
 * He did Tableegh for 950 years. Actual age is more!
-* Three sons
-* In Islamic tradition, Noah (Nuh) is believed to have had four sons:
-  * Shem (Sam), Ham, Japheth (Yafith), and a fourth, disbelieving son named Yam or Canaan, who drowned in the flood.
-* At Nuh AS time dimesnion was different...
+  * __Surah Al-Ankabut 29/14 (فَلَبِثَ فِيهِمْ أَلْفَ سَنَةٍ إِلَّا خَمْسِينَ عَامًۭا)__: [وَلَقَدْ أَرْسَلْنَا نُوحًا إِلَىٰ قَوْمِهِۦ... فَلَبِثَ فِيهِمْ أَلْفَ سَنَةٍ إِلَّا خَمْسِينَ عَامًۭا... فَأَخَذَهُمُ ٱلطُّوفَانُ ...وَهُمْ ظَـٰلِمُونَ](https://quran.com/29/14)
+> * In Islamic tradition, Noah (Nuh) is believed to have had four sons: Shem (Sam), Ham, Japheth (Yafith), and a fourth, disbelieving son named Yam or Canaan, who drowned in the flood.
+> * __Surah Hud 11/42__: [وَهِىَ تَجْرِى بِهِمْ فِى مَوْجٍۢ كَٱلْجِبَالِ وَنَادَىٰ نُوحٌ ٱبْنَهُۥ وَكَانَ فِى مَعْزِلٍۢ يَـٰبُنَىَّ ٱرْكَب مَّعَنَا وَلَا تَكُن مَّعَ ٱلْكَـٰفِرِينَ](https://quran.com/11/42)
+> * __Surah Hud 11/43__: [قَالَ سَـَٔاوِىٓ إِلَىٰ جَبَلٍۢ يَعْصِمُنِى مِنَ ٱلْمَآءِ ۚ قَالَ لَا عَاصِمَ ٱلْيَوْمَ مِنْ أَمْرِ ٱللَّهِ إِلَّا مَن رَّحِمَ ۚ وَحَالَ بَيْنَهُمَا ٱلْمَوْجُ فَكَانَ مِنَ ٱلْمُغْرَقِينَ](https://quran.com/11/43)
+> * __Surah Hud 11/44__: [وَقِيلَ يَـٰٓأَرْضُ ٱبْلَعِى مَآءَكِ وَيَـٰسَمَآءُ أَقْلِعِى وَغِيضَ ٱلْمَآءُ وَقُضِىَ ٱلْأَمْرُ وَٱسْتَوَتْ عَلَى ٱلْجُودِىِّ ۖ وَقِيلَ بُعْدًۭا لِّلْقَوْمِ ٱلظَّـٰلِمِينَ](https://quran.com/11/44)
+> * __Surah Hud 11/45__: [وَنَادَىٰ نُوحٌۭ رَّبَّهُۥ فَقَالَ رَبِّ إِنَّ ٱبْنِى مِنْ أَهْلِى وَإِنَّ وَعْدَكَ ٱلْحَقُّ وَأَنتَ أَحْكَمُ ٱلْحَـٰكِمِينَ](https://quran.com/11/45)
+> * __Surah Hud 11/46__: [قَالَ يَـٰنُوحُ إِنَّهُۥ لَيْسَ مِنْ أَهْلِكَ ۖ إِنَّهُۥ عَمَلٌ غَيْرُ صَـٰلِحٍۢ ۖ فَلَا تَسْـَٔلْنِ مَا لَيْسَ لَكَ بِهِۦ عِلْمٌ ۖ إِنِّىٓ أَعِظُكَ أَن تَكُونَ مِنَ ٱلْجَـٰهِلِينَ](https://quran.com/11/46)
+* At Nuh AS time dimesnion was different...!!!
 
 ***
 
