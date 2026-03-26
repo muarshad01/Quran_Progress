@@ -14,34 +14,39 @@
 * The three main branches (or "sects") of Christianity are: 
 1. Roman Catholic
 2. Protestant
-3. Eastern Orthodox
+3. Eastern Orthodox (Ethopian?)
 
 ***
 
+#### Major Events
 * Flood in the World
-* Nuh AS collected all Animals
-* Bible: Dajjal time is Nuh As time replay!
+* Nuh AS collected ALL animals
+* __Bible__: Dajjal time is Nuh As time replay!
 
 *** 
 
 13:00 
 
 #### Nuh AS Age
-* He did Tableegh for 950 years
+* He did Tableegh for 950 years. Actual age is more!
 * Three sons
-* One son was drowned in the sea
-* At Nuh AS time dimesnion is different...
+* In Islamic tradition, Noah (Nuh) is believed to have had four sons:
+  * Shem (Sam), Ham, Japheth (Yafith), and a fourth, disbelieving son named Yam or Canaan, who drowned in the flood.
+* At Nuh AS time dimesnion was different...
 
 ***
 
-* __REALM__
-* 1st day: 1 Year (e.g., Mercuy one day is equal to our one day.  Closest planet to the Sun; half frozen??)
-* 2nd day: 40 Year
-* 3rd day: 1 weeek
-
-***
-
+#### REALM
 * Dajjal will slow down the speed of planet!
+* Total 40 days
+  * __1st day__: 1 Year (e.g., on planet Mercuy, which is closet to Sun, one day is equal to our one year. Half of the year it remains frozen??)
+  * __2nd day__: 1 month
+  * __3rd day__: 1 weeek
+  * The remaining 37 days of his 40-day stay will be like normal days. 
+
+***
+
+#### Slowdown the Time
 
 ***
 
