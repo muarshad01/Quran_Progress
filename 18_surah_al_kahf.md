@@ -4,6 +4,14 @@
 
 *** 
 
+#### Jews had asked Three questions from Prophet PBUH
+* __Q1__: What is Rooh?
+  * __Surah Al-Isra 17/85 (قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85)
+* __Q2__: Tell us details about People of the Cave (Ashab al-Kahf) 
+* __Q3__: Tell us details about Dhul Qarnayn ([Surah al-Kahf 18/83-98](https://quran.com/18/83-101))?
+
+***
+
 #### Economics: One Dollar (Only Materialistic World)
 1. One Eye (Dajjal Eye)
 * Body versus Spirit!
@@ -14,14 +22,6 @@
 5. __Annuit Coeptis (Providence has approved of our undertakings)__
 6. __E Pluribus Unum (out of many, one)__
 * __Providence__: The protective care of God or of nature as a spiritual power.
-
-***
-
-#### Jews had asked Three questions from Prophet PBUH
-* __Q1__: What is Rooh?
-  * __Surah Al-Isra 17/85 (قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ... ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى... وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85)
-* __Q2__: Tell us details about People of the Cave (Ashab al-Kahf) 
-* __Q3__: Tell us details about Dhul Qarnayn ([Surah al-Kahf 18/83-98](https://quran.com/18/83-101))?
 
 ***
 
