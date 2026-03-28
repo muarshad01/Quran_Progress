@@ -167,14 +167,6 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 
 ***
 
-#### Gog & Mogog
-* [Allah Talah Ne Hazrat Zulqarnain Ko Konsay Raastay Ataa Kiyay | Suno Pakistan | EP 306 |Suno News HD](https://www.youtube.com/watch?v=iHOVLgGu7xk) -- June 06, 2024
-* [Technology Zulqarnain Used To Imprison Yajooj Majooj | Quran Reveals Shocking Truth | Dr Abdus Salam](https://www.youtube.com/watch?v=uEv94jBSXvc) -- June 04, 2024
-* [Yajooj Majooj Kon Hain Aur Kahan Qaid Hain ? | Suno Pakistan | EP 311 | Suno News HD](https://www.youtube.com/watch?v=h2FgItmA_Sg) -- June 04, 2024
-* [Yajooj Majooj & Zulqarnain | Gog Magog living in Different Planet?](https://www.youtube.com/watch?v=krUrD_ZGa4g) -- June 04, 2024
-
-***
-
 #### Hazrat Musa AS & Khizar AS
 * [Hazrat Musa A.S Ki Hazrat Khizar A.S Sa Mulaqat Mein Machli Ka Eham Kirdar ! | Suno Pakistan |EP 316](https://www.youtube.com/watch?v=btcp7NrEib0) -- Jun 04, 2024
 * [Surah Al-Kahf Mein Chupi Hui 4 Khufiya Chabiyaan !! | Abdus Salam Arif | Suno Pakistan | EP 324](https://www.youtube.com/watch?v=iEgJLYyWLpw) -- Jun 04, 2024
