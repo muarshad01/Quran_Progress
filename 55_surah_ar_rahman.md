@@ -150,3 +150,8 @@
 * (7 + 8) x 2 = 30
 
 ***
+
+#### [[URDU] Must Understand Surah Ar-Rahman This Ramadan: The Secret You Need to Know | Nouman Ali Khan
+](https://www.youtube.com/watch?v=8vcEJM8l6Ak)
+
+***
