@@ -9,8 +9,8 @@
 *** 
 
 ### Group of Three Surah
-* Surah Al-Isra (17)
-* Surah Al-Kahf (18)
-* Surah Maryam (19)
+* Surah Al-Isra (17) - Yahood ki Surah
+* Surah Al-Kahf (18) - In the center, first Ruku is for Christians. The rest is answers to Yahuds questions.
+* Surah Maryam (19) - Christians ki Surah
 
 ***
