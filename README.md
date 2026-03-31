@@ -6,6 +6,7 @@
 ***
 
 ### Reading, Understanding, and the Acting upon Quran 
+* __Surah Fussilat 41/33__: [وَمَنْ أَحْسَنُ قَوْلًۭا مِّمَّن دَعَآ إِلَى ٱللَّهِ وَعَمِلَ صَـٰلِحًۭا وَقَالَ إِنَّنِى مِنَ ٱلْمُسْلِمِينَ](https://quran.com/41/33)
 * Quran ka Rakhna
    * `Bias-e-Barkat`
 * Quran ka Parhana aur Samajhna
