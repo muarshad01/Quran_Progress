@@ -29,3 +29,7 @@ And it was said: That would be the lowest rank among the inhabitants of Paradise
 Hadith:  One level people see other level people like starts. --Hadith
 
 ***
+
+* __Surah AN-Naba 78/19__: [وَفُتِحَتِ ٱلسَّمَآءُ فَكَانَتْ أَبْوَٰبًۭا](https://quran.com/78/19)
+
+***
