@@ -61,3 +61,7 @@ And it was said: That would be the lowest rank among the inhabitants of Paradise
 * __Surah Al-Kahf 18/86 (عَيْنٍ حَمِئَةٍۢ)__: [حَتَّىٰٓ إِذَا بَلَغَ مَغْرِبَ ٱلشَّمْسِ وَجَدَهَا تَغْرُبُ فِى... عَيْنٍ حَمِئَةٍۢ... وَوَجَدَ عِندَهَا قَوْمًۭا ۗ قُلْنَا يَـٰذَا ٱلْقَرْنَيْنِ إِمَّآ أَن تُعَذِّبَ وَإِمَّآ أَن تَتَّخِذَ فِيهِمْ حُسْنًۭا](https://quran.com/18/86)
 
 ***
+
+* [Acoustic levitation](https://www.youtube.com/watch?v=669AcEBpdsY)
+
+***
