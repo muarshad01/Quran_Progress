@@ -1,0 +1,8 @@
+* Yahuds are wiating for their Al-Masih ad-Dajjal
+#### Dajjal Signs
+* Will convey the message of Allah, in every home, throughout the world
+* Will stop/finish the Wars in the world (Will make peopel brothers to each other)
+* Will not do any Miricles
+* Will melt all weapons and make agriculture equipment
+
+*** 
