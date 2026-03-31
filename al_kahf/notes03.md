@@ -9,7 +9,6 @@
 
 ***
 
-
 #### [Abdullah b. Mas'ud reported that the Messenger of Allah (ﷺ) said: I know the last of the inhabitants of Fire 
 to be taken out therefrom, and the last of the inhabitants of Paradise to enter it. 
 A man will come out of the Fire crawling. Then Allah, the Blessed and Exalted will say to him: 
@@ -26,7 +25,7 @@ And it was said: That would be the lowest rank among the inhabitants of Paradise
 
 ***
 
-Hadith:  One level people see other level people like starts. --Hadith
+* One level people see other level people like starts. -- Hadith
 
 ***
 
@@ -37,7 +36,7 @@ Hadith:  One level people see other level people like starts. --Hadith
 * __Surah Al-ANbya 21/104 (يَوْمَ نَطْوِى ٱلسَّمَآءَ كَطَىِّ ٱلسِّجِلِّ لِلْكُتُبِ ۚ)__: [يَوْمَ نَطْوِى ٱلسَّمَآءَ كَطَىِّ ٱلسِّجِلِّ لِلْكُتُبِ ۚ كَمَا بَدَأْنَآ أَوَّلَ خَلْقٍۢ نُّعِيدُهُۥ ۚ وَعْدًا عَلَيْنَآ ۚ إِنَّا كُنَّا فَـٰعِلِينَ](https://quran.com/21/104)
 
 * __Surah Ibrahim 14/48 (يَوْمَ تُبَدَّلُ ٱلْأَرْضُ غَيْرَ ٱلْأَرْضِ وَٱلسَّمَـٰوَٰتُ ۖ)__: [يَوْمَ تُبَدَّلُ ٱلْأَرْضُ غَيْرَ ٱلْأَرْضِ وَٱلسَّمَـٰوَٰتُ ۖ وَبَرَزُوا۟ لِلَّهِ ٱلْوَٰحِدِ ٱلْقَهَّارِ](https://quran.com/14/48)
-  * From Grave dimension!
+  * From Grave dimension to madian-e-hashar!
  
 *** 
 
@@ -50,5 +49,15 @@ Hadith:  One level people see other level people like starts. --Hadith
 * __Surah Al-Araf 7/48__: [وَنَادَىٰٓ أَصْحَـٰبُ ٱلْأَعْرَافِ رِجَالًۭا يَعْرِفُونَهُم بِسِيمَىٰهُمْ ...قَالُوا۟ مَآ أَغْنَىٰ عَنكُمْ جَمْعُكُمْ وَمَا كُنتُمْ تَسْتَكْبِرُونَ](https://quran.com/7/48)
 * __Surah Al-Araf 7/49__: [أَهَـٰٓؤُلَآءِ ٱلَّذِينَ أَقْسَمْتُمْ لَا يَنَالُهُمُ ٱللَّهُ بِرَحْمَةٍ ۚ ٱدْخُلُوا۟ ٱلْجَنَّةَ... لَا خَوْفٌ عَلَيْكُمْ وَلَآ أَنتُمْ تَحْزَنُونَ](https://quran.com/7/49)
   * (will) grant them (يَنَالُهُمُ)
+
+***
+
+
+#### Salsalin (Clay)
+* __Surah Al-Hijr 15/26 (Clay from Black Mud: صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ)__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ مِن ...صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ](https://quran.com/15/26)
+* __Surah Al-Hijr 15/28 (Clay from Black Mud: صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ)__: [وَإِذْ قَالَ رَبُّكَ لِلْمَلَـٰٓئِكَةِ إِنِّى خَـٰلِقٌۢ بَشَرًۭا... مِّن صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ](https://quran.com/15/28)
+* __Surah Al-Hijr 15/33 (Clay from Black Mud: صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ)__: [قَالَ لَمْ أَكُن لِّأَسْجُدَ لِبَشَرٍ خَلَقْتَهُۥ... مِن صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ](https://quran.com/15/33)
+
+* __Surah Al-Kahf 18/86 (عَيْنٍ حَمِئَةٍۢ)__: [حَتَّىٰٓ إِذَا بَلَغَ مَغْرِبَ ٱلشَّمْسِ وَجَدَهَا تَغْرُبُ فِى... عَيْنٍ حَمِئَةٍۢ... وَوَجَدَ عِندَهَا قَوْمًۭا ۗ قُلْنَا يَـٰذَا ٱلْقَرْنَيْنِ إِمَّآ أَن تُعَذِّبَ وَإِمَّآ أَن تَتَّخِذَ فِيهِمْ حُسْنًۭا](https://quran.com/18/86)
 
 ***
