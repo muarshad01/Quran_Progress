@@ -72,3 +72,11 @@ And it was said: That would be the lowest rank among the inhabitants of Paradise
 *** 
 
 * 15:00:00
+
+* Dajjal is for sure an Insaan but with extra ordinary technology.
+
+* Will ramin in the world for 2.5 years???
+
+* __Surah Al-Kahf 18/61 (فَٱتَّخَذَ سَبِيلَهُۥ فِى ٱلْبَحْرِ سَرَبًۭا)__: [فَلَمَّا بَلَغَا مَجْمَعَ بَيْنِهِمَا نَسِيَا حُوتَهُمَا... فَٱتَّخَذَ سَبِيلَهُۥ فِى ٱلْبَحْرِ سَرَبًۭا](https://quran.com/18/61)
+
+*** 
