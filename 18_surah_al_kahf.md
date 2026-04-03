@@ -136,7 +136,7 @@
 | Al-Masih ad-Dajjal ("The Deceitful Messiah") | [Collection of Hadith](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/hadith_about_dajjah.md)| |
 | [Ibtada-e-Intehaa Beginning of the End - EP 01 - Alief TV](https://www.youtube.com/watch?v=NcS6gECLdBo) | [Notes01](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes01.md) | Mar 26, 2026 |
 | [Ibtada-e-Intehaa Beginning of the End - EP 02 - Alief TV](https://www.youtube.com/watch?v=lhbsVPeld10) |[Notes02](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes02.md) | June 31, 2024 |
-| [Ibtada-e-Intehaa Beginning of the End - EP 03 - Alief TV](https://www.youtube.com/watch?v=qdFdxY39S7s) | [Notes03](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes03.md)| June 03, 2024 |
+| [Ibtada-e-Intehaa Beginning of the End - EP 03 - Alief TV](https://www.youtube.com/watch?v=qdFdxY39S7s) | [Notes03](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes03.md)| Apr 02, 2026 |
 | [Ibtada-e-Intehaa Beginning of the End - EP 04 - Alief TV](https://www.youtube.com/watch?v=iX6dvekkmgo) | [Notes04](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes04.md)| June 03, 2024 |
 | [Ibtada-e-Intehaa Beginning of the End - EP 05 - Alief TV](https://www.youtube.com/watch?v=Acr4IiIJ7nI) | [Notes05](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes05.md)| June 03, 2024 |
 | [Ibtada-e-Intehaa Beginning of the End - EP 06 - Alief TV](https://www.youtube.com/watch?v=2J3UXhu_8cI) | [Notes06](https://github.com/muarshad01/Quran_Progress/blob/main/al_kahf/notes06.md)| June 03, 2024 |
