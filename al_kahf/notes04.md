@@ -4,3 +4,11 @@
 * Will come in the last time.
 
 ***
+
+* Dajjal is Insaan. Prophet PBUH has told us.
+* Tamim dari hadith 
+* Ibn-e-Sayyad hadith
+
+***
+
+* 10:00
