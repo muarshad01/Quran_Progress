@@ -25,7 +25,7 @@
 
 * [Prophet Idris (Enoch) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Idris_As_Enoch.md)
 * Ilyas
-* Issa AS
+* [Issa (Jesus) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md)
 * Azuair AS
 
 ***
