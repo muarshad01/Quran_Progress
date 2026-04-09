@@ -22,3 +22,10 @@
 * __The Septuagint (LXX) is the ancient Greek translation of the Hebrew Old Testament__, produced in Alexandria between the 3rd and 1st centuries BCE.
 
 ***
+
+* Idress
+* Ilyas
+* Issa AS
+* Azuair AS
+
+***
