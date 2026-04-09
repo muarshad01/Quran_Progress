@@ -26,7 +26,7 @@
 * [Idris (Enoch) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Idris_As_Enoch.md) - ~4 generation of Adam AS; ~Nuh as 11 generation of Adam AS
 * [Ilyas (Elijah) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Ilyas_AS_Elijah.md)
 * [Issa (Jesus) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md)
-* Azuair AS
+* [Azuair (Ezra )AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/uzair_as.md)
 
 ***
 
