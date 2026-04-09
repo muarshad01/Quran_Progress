@@ -29,3 +29,7 @@
 * Azuair AS
 
 ***
+
+Prophet PBUH saw peole in Hell and Paradise...time travel
+
+***
