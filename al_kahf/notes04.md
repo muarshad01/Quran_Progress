@@ -30,7 +30,7 @@
 
 ***
 
-Prophet PBUH saw peole in Hell and Paradise...time travel
+* __Shab-e-Miraj__: Prophet PBUH saw peole in Hell and Paradise...__Future time travel__. Rember 3 stories of hazrat Khizir AS...__future time predictions__.
 
 ***
 
