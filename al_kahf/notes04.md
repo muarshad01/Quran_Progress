@@ -19,3 +19,8 @@
 * __Surah Ale-Imran /52__: [۞ فَلَمَّآ أَحَسَّ عِيسَىٰ مِنْهُمُ ٱلْكُفْرَ قَالَ مَنْ أَنصَارِىٓ إِلَى ٱللَّهِ ۖ قَالَ ٱلْحَوَارِيُّونَ نَحْنُ أَنصَارُ ٱللَّهِ ءَامَنَّا بِٱللَّهِ وَٱشْهَدْ بِأَنَّا مُسْلِمُونَ](https://quran.com/3/52)
 * __Surah Al-Maidah 5/111__: [وَإِذْ أَوْحَيْتُ إِلَى ٱلْحَوَارِيِّـۧنَ أَنْ ءَامِنُوا۟ بِى وَبِرَسُولِى قَالُوٓا۟ ءَامَنَّا وَٱشْهَدْ بِأَنَّنَا مُسْلِمُونَ](https://quran.com/5/111)
   * "I (God) put it in the hearts of Al-Hawariyoon to believe in Me and My Messenger, they said: ‘We believe. And bear witness that we are submitted to God.’" (Quran 5:111)
+
+
+* __The Septuagint (LXX) is the ancient Greek translation of the Hebrew Old Testament__, produced in Alexandria between the 3rd and 1st centuries BCE.
+
+* 
