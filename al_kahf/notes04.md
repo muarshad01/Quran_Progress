@@ -23,7 +23,7 @@
 
 ***
 
-* Idress
+* [Prophet Idris (Enoch) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Idris_As_Enoch.md)
 * Ilyas
 * Issa AS
 * Azuair AS
