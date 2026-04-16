@@ -186,3 +186,7 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 ***
 
 #### [Abdul Salam Arif revealed a surprising secret | GNN Entertainment](https://www.youtube.com/watch?v=-0fsfFgfm9I)
+
+***
+
+* [Kahf Likho Jo Chaho Hoga | Qurani Amal Se Taqdeer Badal Jaeye Gi | Irfan-ul-Haq](https://www.youtube.com/watch?v=TUaNLkBXoww)
