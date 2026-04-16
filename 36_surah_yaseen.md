@@ -20,6 +20,7 @@
 
 ### Mubeen Ayats
 * [12, 17, 24, 47, 60, 69, 77]
+* [Every Mubeen recite 11-time | Abdullah Bhatti](https://www.youtube.com/shorts/0BXDvlB3AeE)
 
 ***
 
