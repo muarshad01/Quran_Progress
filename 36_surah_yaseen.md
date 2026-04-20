@@ -1,5 +1,6 @@
 #### [Surah Yaseen - 36](https://www.youtube.com/watch?v=GKcN2XeErD8)
-
+***
+#### [11-time Mubeen - Abdullah Bhatti](https://www.youtube.com/shorts/iFYDUFLoBwE)
 ***
 
 #### Ya Seen
