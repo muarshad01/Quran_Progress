@@ -1,3 +1,7 @@
+#### [ 7-Mubeen | Abdullah Bhatti](https://www.youtube.com/shorts/olwHPT1cgbY)
+* Recite 11-time (or 41-time) Mubeen on ALL 7 Mubeen
+***
+
 #### [Surah Yaseen - 36](https://www.youtube.com/watch?v=GKcN2XeErD8)
 
 ***
