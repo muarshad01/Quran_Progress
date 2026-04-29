@@ -1,3 +1,7 @@
+#### [Surah Rahman | Rukhsar Latif (Number)](https://www.youtube.com/shorts/xiIUK5r2W2Q)
+
+***
+
 #### [World's most beautiful explanation of Surah Ar-Rahman (سورة الرحمن) | Nouman Ali Khan](https://www.youtube.com/watch?v=N0z95WBqwPk)
 * How much more in denial can you be?
 * How much more stuff can you ignore?
