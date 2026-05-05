@@ -22,12 +22,12 @@
 
 #### [The Most Powerful Wazifa of Surah Tagabun | SSA Shah](https://www.youtube.com/watch?v=86m5Nq1Wl4Y)
 * Hamara-Rabb hamaray saath-hai
-* Woh-hamesha zinda-aur-qaim hai
+* Woh-hamesha zinda-aur-qaim (ٱلْحَيُّ ٱلْقَيُّومُ) hai
 * Phir-hamayn kahay-ki-fiqr
 * __Recite Surah Taghuban (EVERY Night) after Isha-Prayers__
 * Tuh-nay-mujhay sari-zindagi achi-halat-mayn rakha-hai
 * Agar yeah-char-din-ki-takleef aa-gayee-hai
-* __Mujhay pura-yaqeen-hai, Tuh isay-bhi apni-REHMAT-say jaldi tall-deyh-gaa__
+* __Mujhay pura-yaqeen-hai, Tuh ishay-bhi apni-REHMAT-say jaldi tall-deyh-gaa__
 * __BAY-SHAK, Rabb aus-takleef-ko khatam kar-dytah-hai__
 
 ***
