@@ -61,8 +61,8 @@
 
 ***
 
-### Chapter [08, 09] -- June 205
-* [7. Surah Al-Ar'af](https://quran.com/7)
+### Chapter [08, 09] -- May 2026
+* [7. Surah Al-Araf](https://quran.com/7)
 
 ***
 
