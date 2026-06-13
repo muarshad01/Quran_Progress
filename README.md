@@ -1,3 +1,7 @@
+** __Surah An-Nahl 16/98__: [فَإِذَا قَرَأْتَ ٱلْقُرْءَانَ ...فَٱسْتَعِذْ بِٱللَّهِ مِنَ ٱلشَّيْطَـٰنِ ٱلرَّجِيمِ](https://quran.com/16/98)
+
+***
+
 #### [corpus.quran.com](https://corpus.quran.com/qurandictionary.jsp)
 #### [ParsQuran](http://www.parsquran.com/eng/)
 #### [Urdu Quran Transation by Surah](https://hamariweb.com/islam/download-urdu-quran-with-translation-pdf)
