@@ -11,7 +11,7 @@
 
 #### Verses 16-44: 
 * Creation and the Fall of Iblis. Describes the perfectly balanced creation of the heavens and the earth. Details the creation of Prophet Adam from altered black mud, followed by Allah breathing life into him. Tells the story of Iblis (Satan), who was cast out of Heaven after refusing to bow to Adam out of arrogance, and his subsequent vow to mislead mankind.
-* **__Surah Al-Hijr 15/32-44**: [Argument between Allah SWT and Satan](https://quran.com/15/32-44)
+* **__Surah Al-Hijr 15/28-44**: [Argument between Allah SWT and Satan](https://quran.com/15/32-44)
 
 #### Verses 45-50: 
 * The Rewards of the RighteousAssures that the righteous will reside in gardens and springs, entering in total peace and security.Promises that Allah will remove any resentment or bitterness from their hearts.
