@@ -1,3 +1,7 @@
+#### [Surah Ikhlas Miracle](https://www.youtube.com/shorts/AkAI5abTmAc)
+
+***
+
 #### [Qul | Allama Talib Johri](https://www.youtube.com/shorts/NyBq1UpdqQo)
 
 ***
