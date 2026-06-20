@@ -102,7 +102,7 @@
 ***
 
 ### Chapter 14
-* [15. Surah Al-Hijr](https://quranwbw.com/15) -- July, 2025
+* [15. Surah Al-Hijr](https://quranwbw.com/15) -- June, 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/15_surah_al-hijr.md)
 * [16. Surah An Nahl](https://quranwbw.com/16) -- Jan 10, 2025
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/16_surah_nahl.md)
