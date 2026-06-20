@@ -20,6 +20,6 @@
 * Lessons from the ProphetsRecounts the visit of the angels to Prophet Ibrahim (Abraham), who brought the good news of a son in his old age.Details the mission of the angels to destroy the wicked people of Prophet Lut (Lot) while rescuing his family.Warns the disbelievers of the fate of past arrogant civilizations, including the People of the Thicket and the Thamud (Al-Hijr).
 
 #### Verses 91-99: 
-* Comfort and Final InstructionsInstructs the Prophet Muhammad to stay steadfast, pay no attention to the mockery of the disbelievers, and to lower his wing (be gentle) to the believers.Concludes by commanding the Prophet to continually praise and prostrate to Allah until death comes.You can read and listen to the full chapter with Arabic text and exact translations on Quran.com.If you are looking for specific verses (e.g., the Arabic text for verse 9 or the Tafseer/commentary for a particular section), let me know which ones you need help finding.
+* **Comfort and Final Instructions**: Instructs the Prophet Muhammad to stay steadfast, pay no attention to the mockery of the disbelievers, and to lower his wing (be gentle) to the believers. Concludes by commanding the Prophet to continually praise and prostrate to Allah until death comes. You can read and listen to the full chapter with Arabic text and exact translations on Quran.com.
 
 *** 
