@@ -1,3 +1,9 @@
+#### [Surah Saad - 38th Surah Of Holy Qur'an - Benefits | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=7eq2Ben46PU)
+
+***
+
+
+
 # Surah Saaf
 * 1 Unbelievers are addicted to pride-and-contention
 * 2 They are unmoved by the fate-of-former-infidels
