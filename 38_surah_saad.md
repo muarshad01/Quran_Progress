@@ -2,9 +2,16 @@
 
 ***
 
+#### [Surah Saad - 38th Surah Of Holy Qur'an - Virtues And Benefits - Raham TV | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=f-D-EoCljks)
+* Surah 38 
+* Ayats 88
+* Sidaqat-e-Quran
+* Sabar-e-Azam
+* 
 
+***
 
-# Surah Saaf
+## Surah Saae
 * 1 Unbelievers are addicted to pride-and-contention
 * 2 They are unmoved by the fate-of-former-infidels
 * 3 They wonder at their warner, and call him a sorcerer-and-a-liar
@@ -15,7 +22,7 @@
 
 ***
 
-### The story of David 
+#### The story of David 
 * [17-20](https://quranwbw.com/38#17-20)
 * 17 Our slave Dawud (David), endued with power. Verily, he was ever oft-returning in all matters and in repentance (toward Allah)
 * 17-18 Mountains-and-birds joined him in praising God 
@@ -41,7 +48,7 @@
 
 ***
 
-### The story of Job (Ayub AS)
+#### The story of Job (Ayub AS)
 * 40 He cries to God in his __calamity against Satan__
 * 41 God discovers fountains-of-water for his comfort 
 * 42 His family and property restored him double 
@@ -50,6 +57,8 @@
 
 ***
 
+#### 
+
 * 45-48 Other prophets commended as examples of __piety (the quality of being religious or reverent)__
 * 49-55 Paradise, its glories described
 * 55-58 Hell, its miseries delineated
@@ -57,7 +66,7 @@
 * 62-64 They shall not find the Muslims there
 * 65-68 Muhammad enjoined to preach against idolatry
 
-### Adam and Iblis
+#### Adam and Iblis
 * 69-74 The story of the creation of Adam and the fall-of-Iblis revealed to Muhammad
 * 75-77 Iblīs refuses to worship Adam through __pride__
 * 78-82 God curses Iblīs, but respites him till the resurrection-day
