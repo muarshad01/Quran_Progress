@@ -1,3 +1,11 @@
+#### [Heavenly Order of Surah Saad - Nouman Ali Khan - Singapore 2015](https://www.youtube.com/watch?v=gVWNjjbsU3M)
+* Surah 38
+* Ayats 88
+* Quran Organization
+* Hamiduddin Farahi (18 November 1863 – 11 November 1930) 
+
+***
+
 #### [Surah Saad - 38th Surah Of Holy Qur'an - Benefits | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=7eq2Ben46PU)
 
 ***
