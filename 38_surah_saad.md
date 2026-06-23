@@ -2,7 +2,10 @@
 * Surah 38
 * Ayats 88
 * Quran Organization
-* Hamiduddin Farahi (18 November 1863 – 11 November 1930) 
+* Hamid-ud-din Farahi (1863 – 1930) 
+* Reminder: Begins / Ends with a reminder (Zikar)
+* Dignity + Authority (عِزَّةٖ)
+* Schism; stuburn; Not going to budge (وَشِقَاقٖ)
 
 ***
 
