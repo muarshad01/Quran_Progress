@@ -8,11 +8,13 @@
 * Schism; stuburn; Not going to budge (وَشِقَاقٖ)
 * Surah is broken down into - 6 parts
 1. Quraysh (How stubborn they area?)
-2. Nations
+2. Nation(s)
 3. Prophets (David (Khalifa); Solomon; Jacob (Sickness))
 4. Heaven (38/49)
 5. Hell (38/55)
-6. Say (38/65)
+6. Say (38/65) to Quraysh
+* (1,6):(2:5):(3:4)
+
 * 10:00
 
 ***
