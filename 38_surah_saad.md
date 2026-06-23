@@ -7,6 +7,8 @@
 * Dignity + Authority (عِزَّةٖ)
 * Schism; stuburn; Not going to budge (وَشِقَاقٖ)
 
+* 10:00
+
 ***
 
 #### [Surah Saad - 38th Surah Of Holy Qur'an - Benefits | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=7eq2Ben46PU)
