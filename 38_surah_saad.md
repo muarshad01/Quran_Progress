@@ -12,7 +12,7 @@
 3. Prophets (David (Khalifa); Solomon; Jacob (Sickness))
 4. Heaven (38/49)
 5. Hell (38/55)
-6. Say
+6. Say (38/65)
 * 10:00
 
 ***
