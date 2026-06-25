@@ -1,3 +1,9 @@
+### [BENEFITS of Surah Saba || Mufti Muneer Ahmed Akhoon || RahamTV Zikr-o-Dua](https://www.youtube.com/watch?v=y6gTXU3s4Zo)
+* Shukkar-e-Azam
+* Dushman: 7-time Khatam
+
+***
+
 ### [Blessing of Surah Sabah | SSA Shah](https://www.youtube.com/shorts/jgwdnUwUkbg)
 * Recite for 1.5 years (18 monts) regularly after Isha prayers
 * Builds the foundations for that person
