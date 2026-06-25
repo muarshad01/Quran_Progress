@@ -179,7 +179,7 @@
 ### Chapter 22 [33 - 35] -- October 27, 2024
 * [33. Surah Al-Ahzaab](https://quranwbw.com/33)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/33_surah_al_ahzab.md)
-* [34. Surah Saba](https://quranwbw.com/34)
+* [34. Surah Saba](https://quranwbw.com/34) -- June 2026
   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/34_surah_sabah.md)
 * [35. Surah Faatir](https://quranwbw.com/35)
   
@@ -189,7 +189,7 @@
 * [36. Surah Yaseen](https://quranwbw.com/)
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/36_surah_yaseen.md)
 * [37. Surah As-Saaffaat (Those drawn up in Ranks)](https://quranwbw.com/37)
-* [38. Surah Saad (The Letter Saad)](https://quranwbw.com/38)
+* [38. Surah Saad (The Letter Saad)](https://quranwbw.com/38) -- June 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/38_surah_saad.md)
 
 ***
