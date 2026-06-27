@@ -264,7 +264,7 @@
 
 ### Chapter 29 [67 - 77]
 * [67. Surah Al-Mulk (The Control)](https://quranwbw.com/67) -- July 2024
-   * [The Easiest Way to Memorize Surah Al-Mulk: Mind Maps & Tafsir](https://www.youtube.com/watch?v=_82aG-hAhVI)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/67_surah_al_mulk.md)
 * [68. Surah Al Qalam (The Pen)](https://quranwbw.com/68) -- July 2024
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/68_surah_al_qalam.md)
 * [69. Surah Al-Haqqah (The Reality)](https://quran.com/69) -- July 2024
