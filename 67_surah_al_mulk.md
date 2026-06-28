@@ -5,6 +5,10 @@
 
 ***
 
+#### [Surah Al-Mulk | Surah Al-Mulk Tafseer | Sahil Adeem](https://www.youtube.com/watch?v=Jrhl9CIuS2k)
+
+***
+
 #### [The Easiest Way to Memorize Surah Al-Mulk: Mind Maps & Tafsir](https://www.youtube.com/watch?v=_82aG-hAhVI)
 
 *** 
