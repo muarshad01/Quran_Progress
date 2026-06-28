@@ -263,7 +263,7 @@
 ***
 
 ### Chapter 29 [67 - 77]
-* [67. Surah Al-Mulk (The Control)](https://quranwbw.com/67) -- July 2024
+* [67. Surah Al-Mulk (The Control)](https://quranwbw.com/67) -- June 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/67_surah_al_mulk.md)
 * [68. Surah Al Qalam (The Pen)](https://quranwbw.com/68) -- July 2024
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/68_surah_al_qalam.md)
