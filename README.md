@@ -276,9 +276,9 @@
 * [74. Surat al-Muddaththir (The Cloaked One)]()
 * [75. Surat al-Qiyamah (The Day of Judgement)]()
 * [76. Surah Al-Insaan (Man)](https://quranwbw.com/76) -- July 2024
-      * [Human Creation](https://www.youtube.com/shorts/GZT8bV6wnxI)
-      * https://quranwbw.com/18/29
-      * https://www.youtube.com/watch?v=F7w3sJ9PoNA
+  * [Human Creation](https://www.youtube.com/shorts/GZT8bV6wnxI)
+  * https://quranwbw.com/18/29
+  * https://www.youtube.com/watch?v=F7w3sJ9PoNA
 * [77. Surat al-Mursalat (The Winds)](https://quran.com/77) -- July 2024
 
 ***
