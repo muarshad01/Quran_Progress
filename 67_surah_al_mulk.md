@@ -1,7 +1,7 @@
 
 
 <p align="center">
- <img src="https://github.com/muarshad01/Quran_Progress/blob/main/images/surah-al-mulk.png" width="300" height="300" />
+ <img src="https://github.com/muarshad01/Quran_Progress/blob/main/images/surah-al-mulk.png" width="500" height="500" />
 </p>
 
 ***
