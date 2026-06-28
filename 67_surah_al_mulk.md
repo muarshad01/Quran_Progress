@@ -6,3 +6,7 @@
 * Azmaish-e-Azam
 
 *** 
+
+#### [Qabar ka Azab | Surah Al-Mulk and Azab-e-Qabar | Sahil Adeem](https://www.youtube.com/watch?v=OhoPqSxKvhk)
+
+**
