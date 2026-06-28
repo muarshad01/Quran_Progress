@@ -1,6 +1,7 @@
 #### [Qabar ka Azab | Surah Al-Mulk and Azab-e-Qabar | Sahil Adeem](https://www.youtube.com/watch?v=OhoPqSxKvhk)
 * Azab-e-Qabar ki Duaa after every Namaz (رَبَّنَا آتِنَا فِي الدُّنْيَا حَسَنَةً وَفِي الْآخِرَةِ حَسَنَةً وَقِنَا عَذَابَ النَّارِ)
 * Grave: Transit (bridge) between two worlds (universes)
+  * Temporary Glimpse of a permanant abode
 
 ***
 
