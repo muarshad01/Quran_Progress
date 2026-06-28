@@ -190,3 +190,9 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 ***
 
 * [Kahf Likho Jo Chaho Hoga | Qurani Amal Se Taqdeer Badal Jaeye Gi | Irfan-ul-Haq](https://www.youtube.com/watch?v=TUaNLkBXoww)
+
+***
+
+#### [Pani aur Portals, Surah Kahf ke Raz: The Quantum Mystery of Majma-ul-Bahrain | Dr Sufiyan](https://www.youtube.com/watch?v=Q8RMc1qApPs)
+
+***
