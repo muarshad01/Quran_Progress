@@ -448,6 +448,9 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 
 ***
 
+## Divorce Ayats 226-237
+
+
 #### Divorced Women
 * __2/228__: [...](https://quran.com/2/228)
 
