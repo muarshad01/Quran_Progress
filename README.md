@@ -253,11 +253,8 @@
 * [63. Al Munaafiqoon (The Hypocrites)](https://quranwbw.com/63) -- July 2024
 * [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- June 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/64_surah_at_taghabun.md)
-* [65. Surah At-Talaq (The Divorce)](https://quran.com/65) -- July 2024
-  * Alif = Allah Talah = 1
-  * Qaaf = Quran Majeed = 100
-  * Raa = Rasool Kareem = 200
-  * Alif = Insaan = 1
+* [65. Surah At-Talaq (The Divorce)](https://quran.com/65) -- July 2026
+  * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/65_surah_at-talaq.md)
 * [66. Surah At-Tahrim (The Prohibition)](https://quran.com/66) -- July 2024
 
 ***
