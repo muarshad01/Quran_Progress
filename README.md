@@ -268,7 +268,7 @@
 * [70. Surah Al Ma'arij (The Stairways to Heavens)](https://quranwbw.com/70) -- July 2024
 * [71. Surah Nuh (Noah)](https://quran.com/71) -- July 2024
 * [72. Surah Jinn (The Jinn)](https://quran.com/72) -- July 2024
-* [73. Surah Al-Muzzammil (The Wrapped Up)](https://quranwbw.com/73) -- July 2024
+* [73. Surah Al-Muzzammil (The Wrapped Up)](https://quranwbw.com/73) -- July 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/73_surah_muzzamil.md)
 * [74. Surat al-Muddaththir (The Cloaked One)]()
 * [75. Surat al-Qiyamah (The Day of Judgement)]()
