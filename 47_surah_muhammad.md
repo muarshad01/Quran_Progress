@@ -22,7 +22,10 @@
   * [Wa rafana la ka zirkif](https://quranwbw.com/94/4). Became part of Kalma!
 
 #### Raaz-e-Muhammadiat
-* 1) Tatum wa 2) qoulum-maroof
+* __Surah Muhammad 47/21__: [طَاعَةٌ وَقَوْلٌ مَّعْرُوفٌ ۚ فَإِذَا عَزَمَ الْأَمْرُ فَلَوْ صَدَقُوا اللَّهَ لَكَانَ خَيْرًا لَّهُمْ](https://quranwbw.com/47/21)
+1. Ta'atun
+2. Waqawlun ma'rufun
+
 #### Tauheed-e-Mutaliq levels
 1. Wajood
 2. Ilm
