@@ -57,5 +57,12 @@
 #### [Tafseer of Surah Muhammad (SAW) | Nouman Ali Khan - Episode 1](https://www.youtube.com/watch?v=sDWS3rgg7qw)
 * Our relationship with Messesnger of Allah SWT
 * 10:00
+* Muhammad - 4 times in Quran (3-times Rasool in mentioned; Here Rasool is not mentioned!)
+* Ahmed - 1 time in Quran
+
+***
+
+#### [Tafseer of Surah Muhammad (SAW) | Nouman Ali Khan - - Episode 2](https://www.youtube.com/watch?v=gttFS-Sg6OY)
+
 
 ***
