@@ -62,7 +62,10 @@
 
 ***
 
-#### [Tafseer of Surah Muhammad (SAW) | Nouman Ali Khan - - Episode 2](https://www.youtube.com/watch?v=gttFS-Sg6OY)
+#### [Tafseer of Surah Muhammad (SAW) | Nouman Ali Khan - Episode 2](https://www.youtube.com/watch?v=gttFS-Sg6OY)
 
+***
+
+#### [Mukamal Tafseer Surah Muhammad | Dr Israr Ahmed](https://www.youtube.com/watch?v=LqEmJVQdLkk)
 
 ***
