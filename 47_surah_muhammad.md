@@ -19,7 +19,8 @@
 * Hamad-e-Azam
 * Ahmed - Who praised Allah SWT the most
 * Reward: Made him Muhammad (The most praised).
-  * [Wa rafana la ka zirkif](https://quranwbw.com/94/4). Became part of Kalma!
+  * __Surah Ash-Sharh 94/4__: [وَرَفَعْنَا لَكَ ذِكْرَكَ ](https://quranwbw.com/94/4).
+  * Became part of Kalma!
 
 #### Raaz-e-Muhammadiat
 * __Surah Muhammad 47/21__: [طَاعَةٌ وَقَوْلٌ مَّعْرُوفٌ ۚ فَإِذَا عَزَمَ الْأَمْرُ فَلَوْ صَدَقُوا اللَّهَ لَكَانَ خَيْرًا لَّهُمْ](https://quranwbw.com/47/21)
