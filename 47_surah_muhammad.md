@@ -3,7 +3,7 @@
 * 4-Rukus
 * 38-Ayats
 * 2nd Ayat mentions Name Muhammad
-* 20th Ayat - Qital ...Surah Qital
+* 20th Ayat - Surah Qital (Another name)
 
 ***
 
@@ -34,7 +34,7 @@
 3. Noor -- Pure Wine (Noor mujasum shakal)
 4. Shahud -- Honey (Shahud (Mushahida-e-Haq) ki mujasum shakal)
 
-* Jihad-aur-Qatel kay adab
+#### Jihad-aur-Qatel kay adab
 * Shaheed is alive
 
 ***
