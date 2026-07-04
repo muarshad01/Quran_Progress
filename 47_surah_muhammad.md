@@ -1,12 +1,9 @@
 ## Surah Muhammad SAW
+* Number - 47 Tadween and 95 Nazool
 * 4-Rukus
 * 38-Ayats
 * 2nd Ayat mentions Name Muhammad
 * 20th Ayat - Qital ...Surah Qital
-
-***
-
-#### [Surah Muhammad MEANING, VIRTUES and BENEFITS | RahamTV](https://www.youtube.com/watch?v=c_8BIIGurzY)
 
 ***
 
@@ -21,7 +18,7 @@
 #### [Surah Muhammad Meaning, Virtues and Benefitsv| Mufti Muneer Akhoon](https://www.youtube.com/watch?v=c_8BIIGurzY)
 * Hamad-e-Azam
 * Ahmed - Who praised Allah SWT the most
-* Reward: Made him Muhammad (The most praised). Wa rafana la ka zirkif. Became part of Kalma!
+* Reward: Made him Muhammad (The most praised). [Wa rafana la ka zirkif](https://quranwbw.com/94/4). Became part of Kalma!
 
 #### Raaz-e-Muhammadiat
 * 1) Tatum wa 2) qoulum-maroof
