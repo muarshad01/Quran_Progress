@@ -37,6 +37,9 @@
 #### Jihad-aur-Qatel kay adab
 * Shaheed is alive
 
+#### Benefits
+* 41x in one-sitting (3 days)
+
 ***
 
 #### [Surah Muhammad Apki Zindagi Badal Degi | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=9rulUVxvuTE)
