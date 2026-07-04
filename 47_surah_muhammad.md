@@ -27,16 +27,12 @@
 1. Ta'atun
 2. Waqawlun ma'rufun
 
-#### Tauheed-e-Mutaliq levels
-1. Wajood
-2. Ilm
-3. Noor
-4. Shahud
-
-1. Water (Mujasam shakal hayat ki)
-2. Milk (Ilm ki mujasum shakal)
-3. Pure Wine (Noor mujasum shakal)
-4. Honey (Shahud (Mushahida-e-Haq) ki mujasum shakal)
+#### Tauheed-e-Mutaliq levels:
+* __Surah Muhammad 47/15__: [مَّثَلُ ٱلْجَنَّةِ ٱلَّتِى وُعِدَ ٱلْمُتَّقُونَ ۖ فِيهَآ أَنْهَـٰرٌۭ مِّن مَّآءٍ غَيْرِ ءَاسِنٍۢ وَأَنْهَـٰرٌۭ مِّن لَّبَنٍۢ لَّمْ يَتَغَيَّرْ طَعْمُهُۥ وَأَنْهَـٰرٌۭ مِّنْ خَمْرٍۢ لَّذَّةٍۢ لِّلشَّـٰرِبِينَ وَأَنْهَـٰرٌۭ مِّنْ عَسَلٍۢ مُّصَفًّۭى ۖ وَلَهُمْ فِيهَا مِن كُلِّ ٱلثَّمَرَٰتِ وَمَغْفِرَةٌۭ مِّن رَّبِّهِمْ ۖ كَمَنْ هُوَ خَـٰلِدٌۭ فِى ٱلنَّارِ وَسُقُوا۟ مَآءً حَمِيمًۭا فَقَطَّعَ أَمْعَآءَهُمْ](https://quran.com/47/15)
+1. Wajood -- [Water (Mujasam shakal hayat ki)
+2. Ilm -- Milk (Ilm ki mujasum shakal)
+3. Noor -- Pure Wine (Noor mujasum shakal)
+4. Shahud -- Honey (Shahud (Mushahida-e-Haq) ki mujasum shakal)
 
 * Jihad-aur-Qatel kay adab
 * Shaheed is alive
