@@ -1,7 +1,9 @@
 #### Surah Muhammad SAW
-* Number - 47 Tadween and 95 Nazool
+* Muhammad (11): Muhammad PBUH name (Muhammad) has Meem (40) + Hay (8) + Meem(40) + Daal(4) = 9 + 2 = 11 adads
+* Number - 47 Tadween =  4 + 7 = 11
+* Number - 95 Nazool
 * 4-Rukus
-* 38-Ayats
+* 38-Ayats = 3 + 8 = 11
 * 2nd Ayat mentions Name Muhammad
 * 20th Ayat - Surah Qital (Another name)
 
@@ -45,5 +47,9 @@
 ***
 
 #### [Surah Muhammad Apki Zindagi Badal Degi | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=9rulUVxvuTE)
+
+***
+
+#### [Surah Muhammad Ki Fazilat Or Wazaif In Urdu | Asad Mehmood Inspirational Speaker](https://www.youtube.com/watch?v=NxGR7tGEItY)
 
 ***
