@@ -40,6 +40,7 @@
 #### Benefits
 * 41x in one-sitting (3 days)
 * Sickness: Daily once...
+* Enemy:
 
 ***
 
