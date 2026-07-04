@@ -1,11 +1,11 @@
 #### Surah Muhammad SAW
-* Muhammad (11): Muhammad PBUH name (Muhammad) has Meem (40) + Hay (8) + Meem(40) + Daal(4) = 9 + 2 = 11 adads
+* Muhammad PBUH name (Muhammad) has Meem (40) + Hay (8) + Meem(40) + Daal(4) = 9 + 2 = 11
 * Number - 47 Tadween =  4 + 7 = 11
-* Number - 95 Nazool
-* 4-Rukus
+* ~~Number - 95 Nazool~~
 * 38-Ayats = 3 + 8 = 11
-* 2nd Ayat mentions Name Muhammad
-* 20th Ayat - Surah Qital (Another name)
+* 4-Rukus
+* [2nd Ayat](https://quran.com/47/2) mentions Name Muhammad
+* [20th Ayat](https://quran.com/47/20) - Surah Qital (Another name)
 
 ***
 
