@@ -53,3 +53,8 @@
 #### [Surah Muhammad Ki Fazilat Or Wazaif In Urdu | Asad Mehmood Inspirational Speaker](https://www.youtube.com/watch?v=NxGR7tGEItY)
 
 ***
+
+#### [Tafseer of Surah Muhammad (sallallahu alayhi wa sallama) | Nouman Ali Khan - Episode 1](https://www.youtube.com/watch?v=sDWS3rgg7qw)
+
+
+***
