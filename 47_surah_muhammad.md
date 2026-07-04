@@ -69,3 +69,105 @@
 #### [Mukamal Tafseer Surah Muhammad | Dr Israr Ahmed](https://www.youtube.com/watch?v=LqEmJVQdLkk)
 
 ***
+
+```
+URAH MUHAMMAD (47)
+                 "The Test of True Faith"
+
+                         CENTRAL THEME
+     Faith is proven through obedience, sacrifice,
+      striving (jihad), and sincerity—not mere words.
+
+┌─────────────────────────────────────────────────────────────┐
+│ A. Opening Contrast (1–3)                                  │
+│ • Believers vs. Disbelievers                               │
+│ • Allah accepts believers' deeds                           │
+│ • Disbelievers' deeds become worthless                     │
+└─────────────────────────────────────────────────────────────┘
+                          │
+                          ▼
+┌─────────────────────────────────────────────────────────────┐
+│ B. Laws During Conflict (4–6)                              │
+│ • Conduct during battle                                    │
+│ • Prisoners of war                                         │
+│ • Martyrs are honored                                      │
+│ • Allah supports those who support His cause               │
+└─────────────────────────────────────────────────────────────┘
+                          │
+                          ▼
+┌─────────────────────────────────────────────────────────────┐
+│ C. Destiny of Both Groups (7–15)                           │
+│ • Victory for believers                                    │
+│ • Destruction of rejecters                                 │
+│ • Paradise described                                       │
+│ • Comparison with Hell                                     │
+└─────────────────────────────────────────────────────────────┘
+                          │
+                          ▼
+═══════════════════════════════════════════════════════════════
+               CENTER OF THE SURAH (16–21)
+═══════════════════════════════════════════════════════════════
+
+      HYPOCRITES ARE EXPOSED
+
+      • They hear but do not understand
+      • Hearts are sealed
+      • They follow desires
+      • They dislike Allah's commands
+      • True believers say:
+            "We hear and we obey."
+
+This is the turning point of the surah:
+The real battlefield is the HEART before the battlefield
+is the sword.
+
+═══════════════════════════════════════════════════════════════
+                          │
+                          ▼
+┌─────────────────────────────────────────────────────────────┐
+│ D. Exposure of Hypocrites (22–30)                          │
+│ • Corruption on earth                                      │
+│ • Breaking family ties                                     │
+│ • Satan deceives them                                      │
+│ • Allah knows what they hide                               │
+└─────────────────────────────────────────────────────────────┘
+                          │
+                          ▼
+┌─────────────────────────────────────────────────────────────┐
+│ E. Quran and Reflection (31–35)                            │
+│ • Allah tests believers                                    │
+│ • Reflect upon the Qur'an                                  │
+│ • Do not become weak                                       │
+│ • Continue striving                                        │
+└─────────────────────────────────────────────────────────────┘
+                          │
+                          ▼
+┌─────────────────────────────────────────────────────────────┐
+│ F. Closing Call (36–38)                                    │
+│ • Worldly life is temporary                                │
+│ • Spend in Allah's cause                                   │
+│ • Allah is Self-Sufficient                                 │
+│ • If you turn away, Allah replaces you                     │
+└─────────────────────────────────────────────────────────────┘
+Ring (Chiastic) Structure
+
+Many scholars observe a balanced literary design:
+
+A  (1–3)   Believers vs. Disbelievers
+   B (4–6) Fighting in Allah's cause
+      C (7–15) Rewards and punishments
+         D (16–21) HYPOCRITES (CENTER)
+      C' (22–30) Punishment of hypocrites/rejecters
+   B' (31–35) Striving and perseverance
+A' (36–38) Final choice: obedience or rejection
+Key Themes by Section
+Verses	Theme
+1–3	Faith and disbelief
+4–6	Ethics of warfare and martyrdom
+7–15	Victory, Paradise, and Hell
+16–21	Hypocrisy and true obedience (center)
+22–30	Exposure of hypocrites
+31–35	Trials, patience, and reflection on the Qur'an
+36–38	Charity, detachment from worldly life, and Allah's self-sufficiency
+Main Message
+```
