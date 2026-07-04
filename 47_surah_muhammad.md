@@ -18,7 +18,8 @@
 #### [Surah Muhammad Meaning, Virtues and Benefitsv| Mufti Muneer Akhoon](https://www.youtube.com/watch?v=c_8BIIGurzY)
 * Hamad-e-Azam
 * Ahmed - Who praised Allah SWT the most
-* Reward: Made him Muhammad (The most praised). [Wa rafana la ka zirkif](https://quranwbw.com/94/4). Became part of Kalma!
+* Reward: Made him Muhammad (The most praised).
+  * [Wa rafana la ka zirkif](https://quranwbw.com/94/4). Became part of Kalma!
 
 #### Raaz-e-Muhammadiat
 * 1) Tatum wa 2) qoulum-maroof
