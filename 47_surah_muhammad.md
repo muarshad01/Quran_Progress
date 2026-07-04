@@ -1,4 +1,4 @@
-## Surah Muhammad SAW
+#### Surah Muhammad SAW
 * Number - 47 Tadween and 95 Nazool
 * 4-Rukus
 * 38-Ayats
