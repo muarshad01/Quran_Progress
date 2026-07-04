@@ -1,7 +1,7 @@
 #### Surah Muhammad SAW
 * Muhammad PBUH name (Muhammad) has `Meem (40) + Hay (8) + Meem(40) + Daal(4) = 9 + 2 = 11`
-* Number - 47 Tadween =  4 + 7 = 11
-* ~~Number - 95 Nazool~~
+* Tadween Number: 47 =  4 + 7 = 11
+* ~~Nazool Number: 95~~
 * 38-Ayats = 3 + 8 = 11
 * 4-Rukus
 * [2nd Ayat](https://quran.com/47/2) mentions Name Muhammad
