@@ -54,7 +54,7 @@
 
 ***
 
-#### [Tafseer of Surah Muhammad (sallallahu alayhi wa sallama) | Nouman Ali Khan - Episode 1](https://www.youtube.com/watch?v=sDWS3rgg7qw)
+#### [Tafseer of Surah Muhammad (SAW) | Nouman Ali Khan - Episode 1](https://www.youtube.com/watch?v=sDWS3rgg7qw)
 
 
 ***
