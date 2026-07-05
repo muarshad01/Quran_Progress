@@ -6,6 +6,7 @@
 * 4-Rukus
 * [2nd Ayat](https://quran.com/47/2) mentions Name Muhammad
 * [20th Ayat](https://quran.com/47/20) - Surah Qital (Another name)
+* Before battle of Badr
 
 ***
 
@@ -67,6 +68,8 @@
 ***
 
 #### [Mukamal Tafseer Surah Muhammad | Dr Israr Ahmed](https://www.youtube.com/watch?v=LqEmJVQdLkk)
+* Passive resistance
+* __Surah Al-Anfal 8/67__: [مَا كَانَ لِنَبِىٍّ أَن يَكُونَ لَهُۥٓ أَسْرَىٰ حَتَّىٰ يُثْخِنَ فِى ٱلْأَرْضِ ۚ تُرِيدُونَ عَرَضَ ٱلدُّنْيَا وَٱللَّهُ يُرِيدُ ٱلْـَٔاخِرَةَ ۗ وَٱللَّهُ عَزِيزٌ حَكِيمٌۭ](https://quran.com/8/67)
 
 ***
 
