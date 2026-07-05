@@ -70,6 +70,8 @@
 #### [Mukamal Tafseer Surah Muhammad | Dr Israr Ahmed](https://www.youtube.com/watch?v=LqEmJVQdLkk)
 * Passive resistance
 * __Surah Al-Anfal 8/67__: [مَا كَانَ لِنَبِىٍّ أَن يَكُونَ لَهُۥٓ أَسْرَىٰ حَتَّىٰ يُثْخِنَ فِى ٱلْأَرْضِ ۚ تُرِيدُونَ عَرَضَ ٱلدُّنْيَا وَٱللَّهُ يُرِيدُ ٱلْـَٔاخِرَةَ ۗ وَٱللَّهُ عَزِيزٌ حَكِيمٌۭ](https://quran.com/8/67)
+* __Surah Al-Anfal 8/68__: [لَّوْلَا كِتَـٰبٌۭ مِّنَ ٱللَّهِ سَبَقَ لَمَسَّكُمْ فِيمَآ أَخَذْتُمْ عَذَابٌ عَظِيمٌۭ](https://quran.com/8/68)
+
 
 ***
 
