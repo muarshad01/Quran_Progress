@@ -186,7 +186,7 @@
 ***
 
 ### Chapter 23 [36 - 38] -- October 19, 2024
-* [36. Surah Yaseen](https://quranwbw.com/)
+* [36. Surah Yaseen](https://quranwbw.com/) -- July 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/36_surah_yaseen.md)
 * [37. Surah As-Saaffaat (Those drawn up in Ranks)](https://quranwbw.com/37)
 * [38. Surah Saad (The Letter Saad)](https://quranwbw.com/38) -- June 2026
