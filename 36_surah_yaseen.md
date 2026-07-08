@@ -44,8 +44,8 @@
 
 #### [Surah Yaseen Ke Fazail Kya Hain? | SSA Shah](https://www.youtube.com/watch?v=NOzzuayAanM)
 * Heart-of-Quran
-* 5 Rukus; 83 Ayats
-* Adaad = 83 = 8 + 3 = 11
+* Ayats = 83 = 8 + 3 = 11
+* Rukus = 5
 * __SHADEED-mushkilat-mayn iss-surat-ki KASRAT-say-tilawat ki-jai-tu, MUSAIBAT taal-jaati-hai...Insaan araam say guzar-jaata-hai__
 
 ***
