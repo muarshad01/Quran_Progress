@@ -90,3 +90,7 @@
 #### [Divine alignment Surah Al-Jumu'ah (Ayat 1 & 2)](https://www.youtube.com/shorts/HjA28K0Qdho)
 
 ***
+
+#### [Allah Gave Muslims the Code of the Universe | Teen Mentorship Program | @SourceCode-Academia](https://www.youtube.com/watch?v=Ysl3KSPgJLI)
+
+***
