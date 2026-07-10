@@ -1,4 +1,4 @@
-#### [Hifiz of Quran is made easy!](https://www.youtube.com/watch?v=arRe0gLSCdE)
+#### [Hifiz of Quran is made easy! | SSA](https://www.youtube.com/watch?v=arRe0gLSCdE)
 
 ***
 
