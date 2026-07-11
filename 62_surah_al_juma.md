@@ -29,7 +29,7 @@
 | Sabbaha (سَبَّحَ)    ||
 | Yusabbihu (يُسَبِّحُ) | Doing and will keep doing |
 |---|---|
-| Sabbih (سَبِّحْ)     | Surah Al-Alaa|
+| Sabbih (سَبِّحْ); Surah Al-Alaa | Do |
 |---|---|
 | Subhana (سُبْحَانَ)  | Surah Al-Isra|
 |---|---|
