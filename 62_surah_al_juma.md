@@ -29,9 +29,9 @@
 | Sabbaha (سَبَّحَ)    ||
 | Yusabbihu (يُسَبِّحُ) | Doing and will keep doing |
 |---|---|
-| Sabbih (سَبِّحْ); Surah Al-Alaa | Do |
+| Subhana (سُبْحَانَ); 17/1 | |
 |---|---|
-| Subhana (سُبْحَانَ); Surah Al-Isra | |
+| Sabbih (سَبِّحْ); 87/1 | Do - Amar of Tasbeeh |
 |---|---|
 | Tusabbihu (تُسَبِّحُ); 17/44| Past Tense|
 | Fasabih (فَسَبِّحْ); 56/75; 56/96|
