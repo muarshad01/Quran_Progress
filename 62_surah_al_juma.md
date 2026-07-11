@@ -70,14 +70,6 @@
 
 ***
 
-#### [(62) Surah Al Juma Complete | Dr. Israr](https://www.youtube.com/watch?v=zi4F1Z0ISdA)
-
-***
-
-#### [(62) Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
-
-***
-
 #### [Baba Farid-ud-din Ganjshakar](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
 * Memory-and-Retention Power improves
 * Memorize `Surah Jumma`
@@ -94,5 +86,13 @@
 ***
 
 #### [| SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
+
+***
+
+#### [(62) Surah Al Juma Complete | Dr. Israr](https://www.youtube.com/watch?v=zi4F1Z0ISdA)
+
+***
+
+#### [(62) Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
 
 ***
