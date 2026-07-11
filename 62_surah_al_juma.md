@@ -5,14 +5,6 @@
 
 ***
 
-#### [Hifiz of Quran is made easy! | SSA](https://www.youtube.com/watch?v=arRe0gLSCdE)
-
-***
-
-#### [| SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
-
-***
-
 #### [Surah Jumma Verse 1-4 Tafsir | Allama Talib Johri](https://www.youtube.com/watch?v=yWTJn9wZtmA)
 * __Surah Al-Juma 62/2 (See Also: 2/129; 3/164; 62/2)__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quranwbw.com/62/2)
 * __Surah Al-Baqarah 2/129 (See Also: 2/129; 3/164; 62/2)__: [رَبَّنَا وَٱبْعَثْ فِيهِمْ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِكَ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَيُزَكِّيهِمْ ۚ إِنَّكَ أَنتَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quranwbw.com/2/129)
@@ -106,5 +98,14 @@
 ***
 
 #### [Allah Gave Muslims the Code of the Universe | Teen Mentorship Program | @SourceCode-Academia](https://www.youtube.com/watch?v=Ysl3KSPgJLI)
+
+***
+
+
+#### [Hifiz of Quran is made easy! | SSA](https://www.youtube.com/watch?v=arRe0gLSCdE)
+
+***
+
+#### [| SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
 
 ***
