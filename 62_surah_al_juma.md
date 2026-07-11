@@ -33,8 +33,8 @@
 |---|---|
 | Subhana (سُبْحَانَ); Surah Al-Isra | |
 |---|---|
-| Tusabbihu (تُسَبِّحُ) | Past Tense|
-| Fasabbih (فَسَبِّحْ)  ||
+| Tusabbihu (تُسَبِّحُ); 17/44| Past Tense|
+| Fasabih (فَسَبِّحْ); 56/75; 56/96|
 
 #### 7 Surahs that begin with Tasbeeh: (Sabbaha, Subhana, Yusabbihu):
 
