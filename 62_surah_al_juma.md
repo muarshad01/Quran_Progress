@@ -63,9 +63,9 @@
 1. A Prophet can't come outside Bani Israel (Answered in Ayat 4)
 2. A Book-of-complete-law Turah has been given to us (Answered in Ayat 5)
 3. We're the Chosen People (Answered in Ayat 6-7)
-* __Surah Al Baqara 2/2111__: [The Jews and Christians each claim that none will enter Paradise except those of their own faith. These are their desires. Reply, ˹O Prophet,˺ “Show ˹me˺ your proof if what you say is true.”](https://quranwbw.com/2/111)
-* __Surah Al Maaida 5/18__: [The Jews and the Christians each say, “We are the children of Allah and His most beloved!”](https://quranwbw.com/5/18)
-4. Day of Sabaat (Seen, Bay, Tay; Sabata in Tibrani): Ayat 9-11
+* __Surah Al-Baqara 2/211 (وَقَالُوا۟ لَن يَدْخُلَ ٱلْجَنَّةَ إِلَّا مَن كَانَ هُودًا أَوْ نَصَـٰرَىٰ)__: [وَقَالُوا۟ لَن يَدْخُلَ ٱلْجَنَّةَ إِلَّا مَن كَانَ هُودًا أَوْ نَصَـٰرَىٰ ۗ تِلْكَ أَمَانِيُّهُمْ ۗ قُلْ هَاتُوا۟ بُرْهَـٰنَكُمْ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/2/111)
+* __Surah Al-Maaida 5/18 (وَقَالَتِ ٱلْيَهُودُ وَٱلنَّصَـٰرَىٰ نَحْنُ أَبْنَـٰٓؤُا۟ ٱللَّهِ وَأَحِبَّـٰٓؤُهُ)__: [وَقَالَتِ ٱلْيَهُودُ وَٱلنَّصَـٰرَىٰ نَحْنُ أَبْنَـٰٓؤُا۟ ٱللَّهِ وَأَحِبَّـٰٓؤُهُۥ ۚ قُلْ فَلِمَ يُعَذِّبُكُم بِذُنُوبِكُم ۖ بَلْ أَنتُم بَشَرٌۭ مِّمَّنْ خَلَقَ ۚ يَغْفِرُ لِمَن يَشَآءُ وَيُعَذِّبُ مَن يَشَآءُ ۚ وَلِلَّهِ مُلْكُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَمَا بَيْنَهُمَا ۖ وَإِلَيْهِ ٱلْمَصِيرُ](https://quran.com/5/18)
+4. Day of Sabaat (Seen, Bay, Taa; Sabata in Tibrani): Ayats 9-11
 
 ***
 
@@ -77,17 +77,9 @@
 
 ***
 
-#### https://www.youtube.com/shorts/SPQjTLcoKBY
-
-
-
-## Baba Farid-ud-din Ganjshakar
+#### Baba Farid-ud-din Ganjshakar
 * Memory-and-Retention Power
 * Memorize `Surah Jumma`
-
-***
-
-#### [Kasrat Se Quran Pak Ki Tilawat Se Kya Fawaid Hasil Hote Hain? | SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
 
 ***
 
