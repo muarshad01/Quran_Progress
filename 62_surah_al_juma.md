@@ -76,16 +76,17 @@
 
 ***
 
-#### [Allah Gave Muslims the Code of the Universe | Teen Mentorship Program | @SourceCode-Academia](https://www.youtube.com/watch?v=Ysl3KSPgJLI)
-
-***
-
-
-#### [Hifiz of Quran is made easy! | SSA](https://www.youtube.com/watch?v=arRe0gLSCdE)
+#### [Darood Sharif Ki Fazilat | Recite Darood Sharif | درود شریف کی فضیلت | SSA Shah](https://www.youtube.com/watch?v=arRe0gLSCdE)
+* Memory Surah Jummah before Hifz of Quran
+* Recite Darood-Sharif when you forget something and then recall!
 
 ***
 
 #### [| SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
+
+***
+
+#### [Allah Gave Muslims the Code of the Universe | Teen Mentorship Program | @SourceCode-Academia](https://www.youtube.com/watch?v=Ysl3KSPgJLI)
 
 ***
 
