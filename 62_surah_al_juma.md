@@ -83,6 +83,26 @@
 ***
 
 #### [Allah Gave Muslims the Code of the Universe | Teen Mentorship Program | @SourceCode-Academia](https://www.youtube.com/watch?v=Ysl3KSPgJLI)
+Chapters:
+* 00:00 — The Qur’an Contains a Code to Understand the Universe
+* 02:22 — Why Teenagers Need a Serious Qur’an Project
+* 03:19 — What Does Tasbeeh Really Mean?
+* 07:17 — Mountains, Water, Air and the Tasbeeh of Creation
+* 10:07 — The Forgotten Code Given to Muslims
+* 12:06 — Arabic Pronunciation and Why Tajweed Matters
+* 16:41 — The Four Attributes: Al-Malik, Al-Quddus, Al-Aziz, Al-Hakeem
+* 18:08 — Surah Hashr and the Sequence of Allah’s Names
+* 22:41 — SubhanAllah and the Geometry of the Universe
+* 28:53 — Returning to Surah Jum’ah
+* 30:23 — The Prophet ﷺ and the Four-Part Qur’anic Mission
+* 33:29 — The Qur’an Corrects Human Knowledge Systems
+* 38:13 — Why “Reciting Ayat” Is Not Enough
+* 43:03 — The Code: Four Attributes and Four Prophetic Functions
+* 45:01 — The Four Stages of Human Learning
+* 50:50 — The Qur’an Project: Dividing Knowledge into Four Compartments
+* 56:24 — Yatlu Alayhim Ayat: Following the Signs of Allah
+* 57:14 — Science, Biology, Astronomy and the Tasbeeh of Creation
+* 1:02:23 — Assignment: Finding Qur’anic Ayat by Knowledge Categories
 
 ***
 
