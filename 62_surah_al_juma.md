@@ -18,21 +18,6 @@
 * __Surah Al-Baqarah 2/129 (See Also: 2/129; 3/164; 62/2)__: [رَبَّنَا وَٱبْعَثْ فِيهِمْ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِكَ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَيُزَكِّيهِمْ ۚ إِنَّكَ أَنتَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quranwbw.com/2/129)
 * __Surah Ali'Imran 3/164 (See Also: 2/129; 3/164; 62/2 (مَنَّ ٱللَّهُ عَلَى ٱلْمُؤْمِنِينَ)__: [لَقَدْ مَنَّ ٱللَّهُ عَلَى ٱلْمُؤْمِنِينَ إِذْ بَعَثَ فِيهِمْ رَسُولًۭا مِّنْ أَنفُسِهِمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍ](https://quran.com/3/164)
 
-#### [Surah Jumma Verse 5-8 Tafsir | Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
-* Challenge of Quran - 
-
-***
-
-#### [(62) Surah Al Juma Complete | Dr. Israr](https://www.youtube.com/watch?v=zi4F1Z0ISdA)
-
-***
-
-#### [(62) Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
-
-***
-
-#### https://www.youtube.com/shorts/SPQjTLcoKBY
-
 ***
 
 #### Order
@@ -72,8 +57,7 @@
 || __Surah Al-Alaa 87/1 (Sabbih (سَبِّحْ) - Do)__: [سَبِّحِ ٱسْمَ رَبِّكَ ٱلْأَعْلَى](https://quran.com/87/1)|
 
 
-
-* __Surah Al-Baqarah 2/127__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/127)
+* __Surah Al-Baqarah 2/127-129__: [رَبَّنَا وَٱبْعَثْ فِيهِمْ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِكَ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَيُزَكِّيهِمْ ۚ إِنَّكَ أَنتَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/2/127129)
 
 #### Hadith
 * ["They said: 'O Messenger of Allah (ﷺ)! When was the Prophethood established for you?' He said: 'While Adam was between (being) soul and body.'"](https://sunnah.com/tirmidhi:3609)
@@ -89,6 +73,23 @@
 4. Day of Sabaat (Seen, Bay, Tay; Sabata in Tibrani): Ayat 9-11
 
 ***
+
+#### [Surah Jumma Verse 5-8 Tafsir | Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
+* Challenge of Quran - 
+
+***
+
+#### [(62) Surah Al Juma Complete | Dr. Israr](https://www.youtube.com/watch?v=zi4F1Z0ISdA)
+
+***
+
+#### [(62) Surah Jumuah | Dr Israr Ahmed](https://www.youtube.com/watch?v=4IKacXNU6fI)
+
+***
+
+#### https://www.youtube.com/shorts/SPQjTLcoKBY
+
+
 
 ## Baba Farid-ud-din Ganjshakar
 * Memory-and-Retention Power
