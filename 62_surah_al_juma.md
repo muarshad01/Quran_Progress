@@ -6,11 +6,13 @@
 
 ***
 
-#### [Allama Talib Johri - Surah Jumma Verse 1-4 Tafsir - Fehm Al Qur’an](https://www.youtube.com/watch?v=yWTJn9wZtmA)
-* __Surah Al-Juma 62/2 (See Also: 2/129)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
-* __Surah Al-Baqarah 2/129 (See Also: 62/2)__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/129)
+#### [Surah Jumma Verse 1-4 Tafsir | Allama Talib Johri](https://www.youtube.com/watch?v=yWTJn9wZtmA)
+* __Surah Al-Juma 62/2 (See Also: 2/129; 3/164; 62/2)__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quranwbw.com/62/2)
+* __Surah Al-Baqarah 2/129 (See Also: 2/129; 3/164; 62/2)__: [رَبَّنَا وَٱبْعَثْ فِيهِمْ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِكَ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَيُزَكِّيهِمْ ۚ إِنَّكَ أَنتَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quranwbw.com/2/129)
+* __Surah Ali'Imran 3/164 (See Also: 2/129; 3/164; 62/2 (مَنَّ ٱللَّهُ عَلَى ٱلْمُؤْمِنِينَ)__: [لَقَدْ مَنَّ ٱللَّهُ عَلَى ٱلْمُؤْمِنِينَ إِذْ بَعَثَ فِيهِمْ رَسُولًۭا مِّنْ أَنفُسِهِمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍ](https://quran.com/3/164)
 
-#### [Challenge of Quran - Surah Jumma Verse 5-8 Tafsir| Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
+#### [Surah Jumma Verse 5-8 Tafsir | Allama Talib Jauhari](https://www.youtube.com/watch?v=AzT09icJsKw)
+* Challenge of Quran - 
 
 ***
 
@@ -25,6 +27,7 @@
 #### https://www.youtube.com/shorts/SPQjTLcoKBY
 
 ***
+
 #### Order
 
 | Ayat-1 | Ayat-2 |
