@@ -77,8 +77,8 @@
 
 ***
 
-#### Baba Farid-ud-din Ganjshakar
-* Memory-and-Retention Power
+#### [Baba Farid-ud-din Ganjshakar](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
+* Memory-and-Retention Power improves
 * Memorize `Surah Jumma`
 
 ***
