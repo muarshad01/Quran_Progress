@@ -82,10 +82,6 @@
 
 ***
 
-#### [| SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
-
-***
-
 #### [Allah Gave Muslims the Code of the Universe | Teen Mentorship Program | @SourceCode-Academia](https://www.youtube.com/watch?v=Ysl3KSPgJLI)
 
 ***
