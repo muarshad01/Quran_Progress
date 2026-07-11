@@ -31,7 +31,7 @@
 |---|---|
 | Sabbih (سَبِّحْ); Surah Al-Alaa | Do |
 |---|---|
-| Subhana (سُبْحَانَ); Surah Al-Isra 17/1  | Surah Al-Isra|
+| Subhana (سُبْحَانَ); Surah Al-Isra | Surah Al-Isra|
 |---|---|
 | Tusabbihu (تُسَبِّحُ) | Past Tense|
 | Fasabbih (فَسَبِّحْ)  ||
