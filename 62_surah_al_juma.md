@@ -39,11 +39,11 @@
 
 | Ayat-1 | Ayat-2 |
 |---|---|
-|4 Attributes of Allah (SWT)| 4 duties of Allah (SWT) |
-| Al-Malik | Recites Verses |
+| 4-Attributes of Allah (SWT)| 4-Obligations of Prophet (PBUH) |
+| Al-Malik  | Recites Verses |
 | Al-Qaddus | Tazkia (Purify them) | 
-| Al-Azia | Ilm (Teach them) |
-| Al-Hakim | Hikmah (Wisdom)|
+| Al-Azia   | Ilm (Teach them) |
+| Al-Hakim  | Hikmah (Wisdom)|
 
 ***
 
