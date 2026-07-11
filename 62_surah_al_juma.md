@@ -1,3 +1,10 @@
+## Surah Al-Jumuah
+* Tarteeb-e-Nazool - Surah 110??
+* Tarteeb-e-Tilawat - Surah 62
+* Ayats 11
+
+***
+
 #### [Hifiz of Quran is made easy! | SSA](https://www.youtube.com/watch?v=arRe0gLSCdE)
 
 ***
