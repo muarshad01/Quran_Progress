@@ -58,16 +58,19 @@
 
 
 #### 7 Surahs that begin with Tasbeeh: (Sabbaha, Subhana, Yusabbihu):
-* __Al-Isra 17/1 (Subhana (سُبْحَانَ))__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
 
-* __Al-Hadid 57/1 (Sabbaha (سَبَّحَ) - Past tense)__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
-* __Al-Hashr 59/1 (Sabbaha (سَبَّحَ) - Past tense)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
-* __As-Saff 61/1 (Sabbaha (سَبَّحَ) - Past tense)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
+|||
+|---|---|
+||* __Al-Isra 17/1 (Subhana (سُبْحَانَ))__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quranwbw.com/17/1)|
+|---|---|
+||* __Surah Al-Alaa 87/1 (Sabbih (سَبِّحْ) - Do)__: [سَبِّحِ ٱسْمَ رَبِّكَ ٱلْأَعْلَى](https://quran.com/87/1)|
+|---|---|
+|| * __Al-Hadid 57/1 (Sabbaha (سَبَّحَ) - Past tense)__: [سَبَّحَ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ وَهُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/57/1) |
+||* __Al-Hashr 59/1 (Sabbaha (سَبَّحَ) - Past tense)__: [سَبَّحَ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۖ وَهُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quranwbw.com/59/1)|  
+||* __As-Saff 61/1 (Sabbaha (سَبَّحَ) - Past tense)__: [سَبَّحَ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۖ وَهُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/61/1) |
+||* __Al-Jumuah 62/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ٱلْمَلِكِ ٱلْقُدُّوسِ ٱلْعَزِيزِ ٱلْحَكِيمِ](https://quran.com/62/1)|
+||* __At-Taghabun 64/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۖ لَهُ ٱلْمُلْكُ وَلَهُ ٱلْحَمْدُ ۖ وَهُوَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌ](https://quran.com/64/1)|
 
-* __Al-Jumuah 62/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
-* __At-Taghabun 64/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
-
-* __Al-Alaa 87/1 (Sabbih (سَبِّحْ) - Do)__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
 
 
 * __Surah Al-Baqarah 2/127__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/127)
