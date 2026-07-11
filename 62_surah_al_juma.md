@@ -12,8 +12,9 @@
 
 ***
 
-#### Order
+#### [Order of Ayats 1 & 2](https://www.youtube.com/shorts/HjA28K0Qdho)
 
+***
 | Ayat-1 | Ayat-2 |
 |---|---|
 | 4-Attributes of Allah (SWT)| 4-Obligations of Prophet (PBUH) |
@@ -80,10 +81,6 @@
 #### [Baba Farid-ud-din Ganjshakar](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
 * Memory-and-Retention Power improves
 * Memorize `Surah Jumma`
-
-***
-
-#### [Divine alignment Surah Al-Jumu'ah (Ayat 1 & 2)](https://www.youtube.com/shorts/HjA28K0Qdho)
 
 ***
 
