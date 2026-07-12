@@ -39,10 +39,9 @@ Here's a structural overview of Surah Al-Munāfiqūn (Surah 63). This surah has 
       ↓
 ★ CENTER (7–8) They try to starve the believers financially and claim they possess honor and power.
 
-Allah replies:
 
+#### Allah replies:
 "Honor belongs to Allah, His Messenger, and the believers."
-
 This is the theological climax.
       ↑
 D' (8) Their arrogance is exposed.
