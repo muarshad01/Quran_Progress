@@ -82,17 +82,17 @@ Give charity
         ▼
 Prepare before death
 
-Main Themes
-Section	Theme
-1–4	Characteristics of hypocrites
-5–6	Their refusal to repent
-7–8	Their schemes and Allah's declaration that true honor belongs to Him, His Messenger, and the believers
-9	Believers warned not to be distracted by wealth and children
-10–11	Charity, repentance, and preparing before death Literary Design
+#### Main Themes
+* 1–4	Characteristics of hypocrites
+* 5–6	Their refusal to repent
+* 7–8	Their schemes and Allah's declaration that true honor belongs to Him, His Messenger, and the believers
+* 9	Believers warned not to be distracted by wealth and children
+* 10–11	Charity, repentance, and preparing before death Literary Design
 
 Many scholars observe a movement from:
 
-Outward deception (hypocrites pretending to believe), to Inner corruption (sealed hearts), to Social harm (attempting to weaken the believers), and finally to Practical guidance for sincere believers (remember Allah, spend in charity, and prepare for death).
+* Outward deception (hypocrites pretending to believe), to Inner corruption (sealed hearts), to Social harm (attempting to weaken the believers), and finally to Practical guidance for sincere believers (remember Allah, spend in charity, and prepare for death).
 
-The concluding verses (9–11) serve as the antidote to hypocrisy: sincere remembrance of Allah, generosity, and awareness of life's limited duration.
-```
+* The concluding verses (9–11) serve as the antidote to hypocrisy: sincere remembrance of Allah, generosity, and awareness of life's limited duration.
+
+
