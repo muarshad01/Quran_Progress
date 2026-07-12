@@ -27,15 +27,15 @@ Here's a structural overview of Surah Al-Munāfiqūn (Surah 63). This surah has 
 
 
 #### Detailed Ring Structure
-A (1–2): The hypocrites profess faith with their tongues, but Allah testifies that they are liars.
+* A (1–2): The hypocrites profess faith with their tongues, but Allah testifies that they are liars.
       ↓
-B (3) Their hearts have become sealed because they believed then rejected faith.
+* B (3) Their hearts have become sealed because they believed then rejected faith.
       ↓
-C (4) Their impressive appearance deceives people, but inwardly they are like hollow pieces of wood.
+* C (4) Their impressive appearance deceives people, but inwardly they are like hollow pieces of wood.
       ↓
-D (5) They refuse to seek forgiveness through the Prophet out of arrogance.
+* D (5) They refuse to seek forgiveness through the Prophet out of arrogance.
       ↓
-E (6) Their hearts are so hardened that asking forgiveness for them makes no difference.
+* E (6) Their hearts are so hardened that asking forgiveness for them makes no difference.
       ↓
 ★ CENTER (7–8) They try to starve the believers financially and claim they possess honor and power.
 
