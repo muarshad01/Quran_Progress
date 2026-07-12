@@ -44,13 +44,13 @@ Here's a structural overview of Surah Al-Munāfiqūn (Surah 63). This surah has 
 "Honor belongs to Allah, His Messenger, and the believers."
 This is the theological climax.
       ↑
-D' (8) Their arrogance is exposed.
+* D' (8) Their arrogance is exposed.
       ↑
-C' (9) Believers are warned not to become distracted by wealth and children.
+* C' (9) Believers are warned not to become distracted by wealth and children.
       ↑
-B' (10) Spend before death comes.
+* B' (10) Spend before death comes.
       ↑
-A' (11) Death cannot be delayed; Allah is fully aware of all deeds. Flow of the Surah
+* A' (11) Death cannot be delayed; Allah is fully aware of all deeds. Flow of the Surah
 Hypocrites exposed
         │
         ▼
@@ -66,7 +66,8 @@ Their arrogance
 Their conspiracy
         │
         ▼
-CENTER:
+
+#### CENTER:
 Honor belongs only to Allah
         │
         ▼
