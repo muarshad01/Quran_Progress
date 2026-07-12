@@ -23,72 +23,35 @@ Here's a structural overview of Surah Al-Munāfiqūn (Surah 63). This surah has 
      The hypocrites think honor belongs to them,
      but true honor belongs to Allah, His Messenger,
            and the believers (Verse 8).
-Detailed Ring Structure
-A (1–2)
-The hypocrites profess faith with their tongues,
-but Allah testifies that they are liars.
+```
 
+
+#### Detailed Ring Structure
+A (1–2): The hypocrites profess faith with their tongues, but Allah testifies that they are liars.
       ↓
-
-B (3)
-Their hearts have become sealed because
-they believed then rejected faith.
-
+B (3) Their hearts have become sealed because they believed then rejected faith.
       ↓
-
-C (4)
-Their impressive appearance deceives people,
-but inwardly they are like hollow pieces of wood.
-
+C (4) Their impressive appearance deceives people, but inwardly they are like hollow pieces of wood.
       ↓
-
-D (5)
-They refuse to seek forgiveness through the Prophet
-out of arrogance.
-
+D (5) They refuse to seek forgiveness through the Prophet out of arrogance.
       ↓
-
-E (6)
-Their hearts are so hardened that asking forgiveness
-for them makes no difference.
-
+E (6) Their hearts are so hardened that asking forgiveness for them makes no difference.
       ↓
-
-★ CENTER (7–8) ★
-
-They try to starve the believers financially
-and claim they possess honor and power.
+★ CENTER (7–8) They try to starve the believers financially and claim they possess honor and power.
 
 Allah replies:
 
-"Honor belongs to Allah,
-His Messenger,
-and the believers."
+"Honor belongs to Allah, His Messenger, and the believers."
 
 This is the theological climax.
-
       ↑
-
-D' (8)
-Their arrogance is exposed.
-
+D' (8) Their arrogance is exposed.
       ↑
-
-C' (9)
-Believers are warned not to become distracted
-by wealth and children.
-
+C' (9) Believers are warned not to become distracted by wealth and children.
       ↑
-
-B' (10)
-Spend before death comes.
-
+B' (10) Spend before death comes.
       ↑
-
-A' (11)
-Death cannot be delayed;
-Allah is fully aware of all deeds.
-Flow of the Surah
+A' (11) Death cannot be delayed; Allah is fully aware of all deeds. Flow of the Surah
 Hypocrites exposed
         │
         ▼
@@ -118,21 +81,18 @@ Give charity
         │
         ▼
 Prepare before death
+
 Main Themes
 Section	Theme
 1–4	Characteristics of hypocrites
 5–6	Their refusal to repent
 7–8	Their schemes and Allah's declaration that true honor belongs to Him, His Messenger, and the believers
 9	Believers warned not to be distracted by wealth and children
-10–11	Charity, repentance, and preparing before death
-Literary Design
+10–11	Charity, repentance, and preparing before death Literary Design
 
 Many scholars observe a movement from:
 
-Outward deception (hypocrites pretending to believe),
-to Inner corruption (sealed hearts),
-to Social harm (attempting to weaken the believers),
-and finally to Practical guidance for sincere believers (remember Allah, spend in charity, and prepare for death).
+Outward deception (hypocrites pretending to believe), to Inner corruption (sealed hearts), to Social harm (attempting to weaken the believers), and finally to Practical guidance for sincere believers (remember Allah, spend in charity, and prepare for death).
 
 The concluding verses (9–11) serve as the antidote to hypocrisy: sincere remembrance of Allah, generosity, and awareness of life's limited duration.
 ```
