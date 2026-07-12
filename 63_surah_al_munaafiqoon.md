@@ -1,3 +1,15 @@
+## Surah Al-Munafiqun
+* Tawdeen number - 63
+* Nazool number - 104
+* Ayats - 11
+* Zaleel-e-Azam (Abdullah bin Ubayy)
+
+***
+
+#### [Surah Al-Munafiqun | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=XL64hphRAgk)
+
+***
+
 ```
 Here's a structural overview of Surah Al-Munāfiqūn (Surah 63). This surah has 11 verses and is highly symmetrical. Its central theme is the danger of hypocrisy and the contrast between true faith and outward pretense.
 
