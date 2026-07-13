@@ -250,7 +250,7 @@
 * [61. Surah As-Saf (The Rows)](https://quran.com/61) -- July 2024
 * [62. Surah Al Jumu'a (The Day of Congregation)](https://quranwbw.com/62) -- July 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/62_surah_al_juma.md)
-* [63. Al-Munaafiqoon (The Hypocrites)](https://quranwbw.com/63) -- July 2024
+* [63. Al-Munaafiqoon (The Hypocrites)](https://quranwbw.com/63) -- July 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/63_surah_al_munaafiqoon.md)
 * [64. Surah At-Taghaabun (The Mutual loss)](https://quranwbw.com/64)  -- June 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/64_surah_at_taghabun.md)
