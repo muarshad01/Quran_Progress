@@ -2,7 +2,7 @@
 * Tadween - 76
 * Nazool - 98
 * Dahar (Time; Zamana)
-* Sabeel-e-Azam (Path; Rasta)
+* Sabeel-e-Azam (Path; Rasta; Haqq-ka-Rasta)
 
 ***
 
