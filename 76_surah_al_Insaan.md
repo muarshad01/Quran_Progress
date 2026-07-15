@@ -1,3 +1,11 @@
+#### [Introduction of Surah Dahr-RahamTV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=bOvr5hMh2f4)
+* Tadween - 76
+* Nazool - 98
+* Dahar (Time; Zamana)
+* Sabeel-e-Azam (Path; Rasta)
+
+***
+
 ```
 Here's a structural diagram of Surah Al-Insan (Chapter 76). The surah has 31 verses and is often understood as forming a carefully balanced literary composition.
 
