@@ -273,7 +273,7 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/73_surah_muzzamil.md)
 * [74. Surat al-Muddaththir (The Cloaked One)]()
 * [75. Surat al-Qiyamah (The Day of Judgement)]()
-* [76. Surah Al-Insaan (Man)](https://quranwbw.com/76) -- July 2024
+* [76. Surah Al-Insaan (Man)](https://quranwbw.com/76) -- July 2026
   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/76_surah_al_Insaan.md)
 * [77. Surat al-Mursalat (The Winds)](https://quran.com/77) -- July 2024
 
