@@ -22,10 +22,12 @@
 
 ***
 
-#### [The Powerful Blessings of Surah Al-Fatiha | SSA Shah](https://www.youtube.com/watch?v=ltuFnLLSPZs)
-* __DUSHMAN-say-bachao kay-laye__
-* __TAUBAH__ jaldi qabool hoti hai
-* CURES illness
+#### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
+* __Dushman-say-BACHAO kay-laye__
+* Insaan-ki-__TAUBAH__ Allah SWT kay-hazoor, jaldi-qabool hoti-hai
+* __Insaan dobara-gunah nahi-karta__
+* Nasha choot-jata-hai
+* Cure for ALL diseases
 
 ***
 
@@ -82,15 +84,6 @@
 * In Arabic - Paalnay-wala
 * Also, Tarbeeyat denay-wala
   * Capabilities and Capacities are developed
-
-***
-
-#### [One Cure for ALL Pains | SSA Shah](https://www.youtube.com/shorts/HNe12DgxRTY)
-* __Dushman-say-BACHAO kay-laye__
-* Insaan-ki-__TAUBAH__ Allah SWT kay-hazoor, jaldi-qabool hoti-hai
-* __Insaan dobara-gunah nahi-karta__
-* Nasha choot-jata-hai
-* Cure for ALL diseases
 
 ***
 
