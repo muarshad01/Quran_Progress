@@ -22,7 +22,12 @@
 
 ***
 
-#### [The Powerful Blessings of Surah Al-Fatiha | سورۂ فا تحہ کی خاص برکتیں | SSA Shah](https://www.youtube.com/watch?v=ltuFnLLSPZs)
+#### [The Powerful Blessings of Surah Al-Fatiha | SSA Shah](https://www.youtube.com/watch?v=ltuFnLLSPZs)
+* __DUSHMAN-say-bachao kay-laye__
+* __TAUBAH__ jaldi qabool hoti hai
+* CURES illness
+
+***
 
 #### [Surah Fatiha ka Roohani Matlab | Shams Tabrez ki Zubani](https://www.youtube.com/watch?v=EzZ1fHJGCs4)
 * TODO
