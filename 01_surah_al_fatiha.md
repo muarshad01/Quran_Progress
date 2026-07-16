@@ -30,7 +30,13 @@
 ***
 
 #### [Surah Fatiha ka Roohani Matlab | Shams Tabrez ki Zubani](https://www.youtube.com/watch?v=EzZ1fHJGCs4)
-* TODO
+1. Shukkar (Thankfulness)
+2. Tasleem (Submission)
+3. Bandagi (Total surrender and obedience)
+4. Yaqeen (Trust)
+5. Duaa
+6. Rahh-e-Mohabbat
+7. Mulaqat
 
 *** 
 
