@@ -235,7 +235,7 @@
 * [54. Surah Al-Qamar](https://quran.com/54) -- July 2024
 * [55. Surah Ar-Rahmaan (Aroos-ul-Quran)](https://quranwbw.com/55) -- July 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/55_surah_ar_rahman.md)
-* [56. Surah Al-Waaqia](https://quranwbw.com/56) -- July 2024
+* [56. Surah Al-Waqia](https://quranwbw.com/56) -- July 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/56_surah_al-waqia.md)
 * [57. Surah Hadid (The Iron)](https://quranwbw.com/57) -- July 2024
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/57_surah_al_hadid.md)
