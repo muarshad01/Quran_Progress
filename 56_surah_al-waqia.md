@@ -32,8 +32,8 @@
 * __Surah Al-Baqarah 2/258 (فَبُهِتَ ٱلَّذِى كَفَرَ ۗ)__: [أَلَمْ تَرَ إِلَى ٱلَّذِى حَآجَّ إِبْرَٰهِـۧمَ فِى رَبِّهِۦٓ أَنْ ءَاتَىٰهُ ٱللَّهُ ٱلْمُلْكَ إِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّىَ ٱلَّذِى يُحْىِۦ وَيُمِيتُ قَالَ أَنَا۠ أُحْىِۦ وَأُمِيتُ ۖ قَالَ إِبْرَٰهِـۧمُ فَإِنَّ ٱللَّهَ يَأْتِى بِٱلشَّمْسِ مِنَ ٱلْمَشْرِقِ فَأْتِ بِهَا مِنَ ٱلْمَغْرِبِ فَبُهِتَ ٱلَّذِى كَفَرَ ۗ وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلظَّـٰلِمِينَ](https://quran.com/2/258)
 * __Surah Al-Baqarah 2/55__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نُّؤْمِنَ لَكَ حَتَّىٰ نَرَى ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْكُمُ ٱلصَّـٰعِقَةُ وَأَنتُمْ تَنظُرُونَ](https://quran.com/al-baqarah/55)
 * __Surah Al-Baqarah 2/56__: [ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/al-baqarah/56)
-* Mayn nay zindigi kis-yaqeen-par / kis-aitbaar-par guzarni-hai
-* __My Thesis__: Quran is Allah SWT Kalam then __every single word of God is in-falliable.__
+  * Mayn nay zindigi kis-YAQEEN-par / kis-AITBAAR-par guzarni-hai
+* __My Thesis__: Quran is Allah SWT Kalam then __every single word of God is in-FALLIABLE.__
 * __Surah Al-Baqarah 2/1-2__: [الٓمٓ...ذَٰلِكَ ٱلْكِتَـٰبُ لَا رَيْبَ ۛ فِيهِ ۛ هُدًۭى لِّلْمُتَّقِينَ](https://quran.com/2/1-2)
 * Priori / Apriori
 * Deductive/Inductive
