@@ -15,10 +15,6 @@
 
 ***
 
-#### [Surah Waqia | Allama Talib Johari](https://www.youtube.com/watch?v=npnktNggmAU)
-
-***
-
 #### [Surat ul-Waqiya mein Sabqat lay-jany-walay-loag kon hain | Prof ARA](https://www.youtube.com/watch?v=kGEL5Q_leog)
 * Those who know Maqasid-e-Mazhab
 * __Surah Al-Anam 6/75-78 (Abraham AS: قَالَ لَآ أُحِبُّ ٱلْـَٔافِلِينَ)__: [](https://quran.com/6/75-78)
@@ -33,3 +29,8 @@
 * __Surah Al-Baqarah 2/1-2__: [الٓمٓ...ذَٰلِكَ ٱلْكِتَـٰبُ لَا رَيْبَ ۛ فِيهِ ۛ هُدًۭى لِّلْمُتَّقِينَ](https://quran.com/2/1-2)
 
 ***
+
+#### [Surah Waqia | Allama Talib Johari](https://www.youtube.com/watch?v=npnktNggmAU)
+
+***
+
