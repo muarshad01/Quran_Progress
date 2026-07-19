@@ -23,7 +23,7 @@
 
 ***
 
-#### [Surat ul-Waqiya mein Sabqat lay jany walay loag kon hain | Prof ARA](https://www.youtube.com/watch?v=kGEL5Q_leog)
+#### [Surat ul-Waqiya mein Sabqat lay-jany-walay-loag kon hain | Prof ARA](https://www.youtube.com/watch?v=kGEL5Q_leog)
 * Those who know Maqasid-e-Mazhab
 * __Surah Al-Anam 6/75-78 (Abraham AS: قَالَ لَآ أُحِبُّ ٱلْـَٔافِلِينَ)__: [](https://quran.com/6/75-78)
   * “I do not love things that set.”
