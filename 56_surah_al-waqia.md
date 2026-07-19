@@ -1,9 +1,17 @@
 
-#### Muqarrabun (or Muqarrabeen): Ayats 10-26
+#### Muqarrabun (or Muqarrabeen) the Foremost: Ayats 15-26
 
 <p align="center">
   <img src="https://github.com/muarshad01/Quran_Progress/blob/main/images/surah_56_ayats_15_26.png" width="600" height="500" />
 </p>
+
+***
+
+#### The People of the Right: Ayats 27–40 
+
+***
+
+#### The People of the Left: Ayats 41–56 
 
 ***
 
