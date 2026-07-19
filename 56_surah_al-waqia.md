@@ -1,9 +1,9 @@
 
 #### Muqarrabun (or Muqarrabeen): Ayats 10-26
 
-</p align="center">
+<p align="center">
   <img src="https://github.com/muarshad01/Quran_Progress/blob/main/images/surah_56_ayats_15_26.png" width="500" height="400" />
-<p>
+</p>
 
 ***
 
