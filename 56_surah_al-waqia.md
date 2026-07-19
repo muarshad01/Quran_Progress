@@ -1,3 +1,10 @@
+
+#### Muqarrabun (or Muqarrabeen): Ayats 10-26
+
+<img src="https://github.com/muarshad01/Quran_Progress/blob/main/images/surah_56_ayats_15_26.png" width="500" height="400" />
+
+***
+
 #### [Surat ul Waqiya mein Sabqat lay jany walay loag kon hain | Prof ARA](https://www.youtube.com/watch?v=TgiyG3kAjBA)
 * __Surah Al-Anam 6/75-78 (Abraham AS: قَالَ لَآ أُحِبُّ ٱلْـَٔافِلِينَ)__: [](https://quran.com/6/75-78)
   * Mayn zawal-pazeer-ko khuda nahi manta
