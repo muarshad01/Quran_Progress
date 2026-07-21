@@ -31,6 +31,10 @@
 ***
 
 #### [Surah Waqia | Allama Talib Johari](https://www.youtube.com/watch?v=npnktNggmAU)
+* 13/43
+* 27/40
 
 ***
+
+
 
