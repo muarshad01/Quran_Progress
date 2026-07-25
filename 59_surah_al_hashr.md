@@ -1,7 +1,7 @@
 #### [Surah Al-Hashr Virtues And Benefits | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Qy--W9tTYvA)
 * Tadween - 59
 * Ayats - 24
-* [Ayat 2 - Al-Hashar](https://quran.com/59/2)
+* [Ayat 2 - Al-Hashar (لِأَوَّلِ ٱلْحَشْرِ)](https://quran.com/59/2)
 * Also called Surah Bani Nazeer
 * Treaty to protect Madina jointly.
 
