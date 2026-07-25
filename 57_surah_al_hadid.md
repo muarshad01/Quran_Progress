@@ -29,6 +29,9 @@
 ***
 
 #### [Iron Miracle in the Quran | Sahil Adeem‬](https://www.youtube.com/watch?v=u6rZDVdJ-Do&t=166s)
+* Quran-e-Kareem is not a book of history.
+* It's mimickign the live Universe NOW!
+* quran.com/64
 
 ***
 
@@ -48,3 +51,4 @@ B' Spend for the Eternal, not the Temporary World (20–24)
      │
 A' Allah's Mission Through Revelation and Final Mercy (25–29)
 ```
+
