@@ -9,6 +9,14 @@
 
 ***
 
+#### [Benefits of reciting last verses of Surah Al Hashr | ProfARA](https://www.youtube.com/watch?v=fSdwVBlftBs)
+* 21 Asmaa
+* Recite last ayats of surah al-Hashr for qurbat-e-khuda.
+* 70,000 Angels protected that person from morning till evening
+* Insaan has under-estimated the job. He has over-estimated himself.
+
+***
+
 #### [Surah Al-Hashr - Last 3 Ayats | Prof. ARA](https://www.youtube.com/shorts/cR01vsQnARs)
 * 70,000 Angels protected that person from morning till evening
 
