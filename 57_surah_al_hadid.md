@@ -9,7 +9,7 @@
 
 ***
 
-#### [Surah Al-Hadeed Virtues And Benefits | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Hk1JjnTjowQ)
+#### [Surah Al-Hadeed Virtues And Benefits | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Hk1JjnTjowQ) 
 
 ***
 
