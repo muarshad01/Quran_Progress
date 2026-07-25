@@ -1,4 +1,5 @@
-#### [Last 3 Ayats](https://www.youtube.com/shorts/cR01vsQnARs)
-* 70,000 Angels pray for that person
+#### [Surah Al-Hashr - Last 3 Ayats | Prof. ARA](https://www.youtube.com/shorts/cR01vsQnARs)
+* 70,000 Angels protected that person from morning till evening
 
 ***
+
