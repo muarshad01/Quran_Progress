@@ -4,7 +4,7 @@
 * Ayats=29
 * Rukus=4
 * [Hadid (Iron) - Ayat 25](https://quran.com/57/25)
-* Spend for Muslim Cause wholeheartedly - Ayat 10
+* [Spend for Muslim Cause wholeheartedly - Ayat 10](https://quran.com/57/10)
 * Deewar-e-Azam
 
 ***
@@ -32,6 +32,7 @@
 * Quran-e-Kareem is not a book of history.
 * It's mimickign the live Universe NOW!
 * quran.com/64
+* Algebraic Topology - reformation
 
 ***
 
