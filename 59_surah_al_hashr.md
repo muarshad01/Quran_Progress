@@ -5,6 +5,7 @@
 * Also called Surah Bani Nazeer
 * Treaty to protect Madina jointly.
 * Wazan-e-Azam (Quran-e-Kareem)
+* For a difficult task, Recite 41 times and then duaa
 
 ***
 
