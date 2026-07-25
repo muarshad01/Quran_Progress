@@ -246,6 +246,7 @@
 * [58. Surah Al-Mujadila (The Woman at odds)](https://quran.com/58) -- July 2024
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/58_surah_al-mujadila.md)
 * [59. Surah Hashr (The Gathering of the Forces)](https://quranwbw.com/59) -- July 2024
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/59_surah_al_hashr.md)
 * [60. Surah Al-Mumtahanah (The Woman Investigated)](https://quran.com/60) -- July 2024
 * [61. Surah As-Saf (The Rows)](https://quran.com/61) -- July 2024
 * [62. Surah Al Jumu'a (The Day of Congregation)](https://quranwbw.com/62) -- July 2026
