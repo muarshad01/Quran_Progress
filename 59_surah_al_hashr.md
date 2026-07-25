@@ -4,6 +4,7 @@
 * [Ayat 2 - Al-Hashar (لِأَوَّلِ ٱلْحَشْرِ)](https://quran.com/59/2)
 * Also called Surah Bani Nazeer
 * Treaty to protect Madina jointly.
+* Wazan-e-Azam (Quran-e-Kareem)
 
 ***
 
