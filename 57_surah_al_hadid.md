@@ -3,7 +3,6 @@
 * Nazool Number=94
 * Ayats=29
 * Rukus=4
-* ~Words=540~
 * [Hadid (Iron) - Ayat 25](https://quran.com/57/25)
 * Spend for Muslim Cause wholeheartedly - Ayat 10
 * Deewar-e-Azam
