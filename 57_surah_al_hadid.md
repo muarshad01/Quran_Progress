@@ -1,10 +1,16 @@
 ## Surah Al-Hadid
-* Number=55
+* Tadween Number=57
+* Nazool Number=94
 * Ayats=29
 * Rukus=4
 * ~Words=540~
-* Hadid (Iron) - Ayat 25
+* [Hadid (Iron) - Ayat 25](https://quran.com/57/25)
 * Spend for Muslim Cause wholeheartedly - Ayat 10
+* Deewar-e-Azam
+
+***
+
+#### [Surah Al-Hadeed Virtues And Benefits | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Hk1JjnTjowQ)
 
 ***
 
