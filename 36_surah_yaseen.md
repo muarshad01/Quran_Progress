@@ -7,6 +7,11 @@
 * 6 - __Surah 36/69__: [وَمَا عَلَّمْنَـٰهُ ٱلشِّعْرَ وَمَا يَنۢبَغِى لَهُۥٓ ۚ... إِنْ هُوَ إِلَّا ذِكْرٌۭ وَقُرْءَانٌۭ مُّبِينٌۭ](https://quran.com/36/69)
 * 7 - __Surah 36/77__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ ...أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ... فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quran.com/36/77)
 
+
+***
+
+* [41-time mubeen | Prof Abdullah Bhatti](https://www.youtube.com/shorts/OpaURjJcPEQ)
+
 ***
 
 #### [ 7-Mubeen | Abdullah Bhatti](https://www.youtube.com/shorts/olwHPT1cgbY)
