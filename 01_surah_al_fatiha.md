@@ -6,6 +6,10 @@
 
 ***
 
+#### [Surah Fatiha Ka Wazifa | Saray Kaam Bantay Chalay Jayein ✨ | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=kaKX24dMaLY)
+
+***
+
 #### Ibadat Mohabbat, Aijzi
 * Joo Ibadat-ko __MOHABBAT__-samajhta-hai, woh bhar-jata-hai.
 * __Ibadat MUSHKIL-ko aanay-nahi-daiti__
