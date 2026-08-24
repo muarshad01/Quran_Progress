@@ -1,3 +1,9 @@
+#### [How To Safe Yourself From The Evil Eye | نظرِ بد سے آخر کیسے بچیں | Buri Nazar Se Hifazat Ka Wazifa](https://www.youtube.com/watch?v=uYiOkbjtL9E)
+* Nazr-e-Baad
+* Dushman say Nijaat
+
+***
+
 #### [Heavenly Order of Surah Saad - Nouman Ali Khan - Singapore 2015](https://www.youtube.com/watch?v=gVWNjjbsU3M)
 * Surah 38
 * Ayats 88
