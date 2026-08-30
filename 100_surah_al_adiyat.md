@@ -1,3 +1,7 @@
+#### [Allah Ne Ghore Ki Qasam Kyun Khayi? 🐎🤔 |Mufti Muneer ahmed Akhoon](https://www.youtube.com/watch?v=vNinabxBurU)
+
+***
+
 #### [Dushman (Enemy) He Mafi-Mangne Ka Wazifa | Surah Aadiyat | Mufti Muneer ahmed Akhoon](https://www.youtube.com/watch?v=LxCLp_yLJcc)
 * Makki
 * 100 - Number
@@ -5,3 +9,4 @@
 * Recite daily, 7-times, and then blow on that enemy.
 
 ***
+
