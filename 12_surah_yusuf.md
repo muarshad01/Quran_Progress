@@ -8,13 +8,17 @@
 
 ***
 
-* https://www.youtube.com/shorts/WKq90McL9Lo
+#### Benefits
+* Hifaaz Quran Becomes Easy and Quick
+* Prophet PBUH: Memorise `Surah Yusuf`
+* Muqadma/Trial: 13-time Khatam
+* For Son birth, after pregnancy recite for 4-monts
 
 ***
 
-## Benefits
-* Hifaaz Quran Becomes Easy and Quick
-* Prophet PBUH: Memorise `Surah Yusuf`
+***
+
+* https://www.youtube.com/shorts/WKq90McL9Lo
 
 ***
 
