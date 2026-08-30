@@ -313,6 +313,7 @@
 * [099. Surah Al-Zilzal (The Shaking)]() -- 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/99_surah_az_zalzalah.md)
 * [100. Surah Al-Aadiyaat ()](https://quranwbw.com/100) -- 2026
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/100_surah_al_adiyat.md)
 * [101. Surah Al-Qariah (The Calamity)](https://quranwbw.com/101) -- 2026
 * [102. Surah At-Takathur (The rivalry in world increase)]() -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/102_surah%20_at_takathur.md) 
