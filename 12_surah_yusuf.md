@@ -1,6 +1,12 @@
-* https://www.youtube.com/shorts/WKq90McL9Lo
+#### [BENEFITS and VIRTUES of Surah Yusuf | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=OL_erfpNWN4)
 * Surah Yusuf: Chapter 12
-* Story of 12 sons of Yaqboob!
+* Number of Ayats= 111
+* Ahsan al-Qasas
+* Story of 12 sons of Jacob(Yaqboob)
+
+***
+
+* https://www.youtube.com/shorts/WKq90McL9Lo
 
 ***
 
