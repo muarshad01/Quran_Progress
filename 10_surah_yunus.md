@@ -56,3 +56,7 @@
 * 104-107 The people of Makkah exhorted to accept the true orthodox faith
 * 108 Muhammad not responsible for the faith or unbelief of the people
 * 109 The Prophet exhorted to be patient[6]
+
+
+* [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
+   
