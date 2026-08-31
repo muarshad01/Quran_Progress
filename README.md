@@ -76,8 +76,8 @@
 ***
 
 ### Chapter [10, 11] -- September, 2024
-[09. Surah At-Tawbah](https://quran.com/9)
-* [09. Surah At-Tawbah](https://github.com/muarshad01/Quran_Progress/blob/main/09_surah_taubah.md) 
+* [09. Surah At-Tawbah](https://quran.com/9)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/09_surah_taubah.md) 
 
 ***
 
