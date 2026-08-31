@@ -83,7 +83,7 @@
 
 ### Chapter 11
 * [10: Surah Yunus (Jonas)](https://quranwbw.com/10) -- July 2025
-   * [10:107 - Harm and Good is from Allah SWT](https://quranwbw.com/10#107)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/10_surah_yunus.md)
 
 ***
 
