@@ -67,6 +67,7 @@
 
 ### Chapter [08, 09] -- May 2026
 * [7. Surah Al-Araf](https://quran.com/7)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/07_surah_al_araf.md)
 
 ***
 
