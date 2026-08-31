@@ -21,7 +21,3 @@
 
 ***
 
-* [](https://www.youtube.com/shorts/NVr9XaX-gJQ)
-
-***
-
