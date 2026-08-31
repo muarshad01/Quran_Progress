@@ -89,7 +89,7 @@
 
 ### Chapter 12
 * [11. Surah Hud](https://quranwbw.com/11) -- Jun 07, 2025
-* [12. Surah Yusuf](https://quranwbw.com/12) -- July 2025
+* [12. Surah Yusuf](https://quranwbw.com/12) -- August 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/12_surah_yusuf.md)
 
 ***
