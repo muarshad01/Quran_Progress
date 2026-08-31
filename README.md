@@ -60,8 +60,8 @@
 ***
 
 ### Chapter [07, 08] -- June 2025
-* [6. Surah Al-An'am](https://quran.com/6)
-   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/06_surah_al-anam.md)
+* [6. Surah Al-Anam](https://quran.com/6)
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/06_surah_al_anam.md)
 
 ***
 
