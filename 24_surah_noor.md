@@ -1,3 +1,9 @@
+#### [BENEFITS and VIRTUES of Surah An-Noor | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=a3kt3cBRVFM)
+* Noor-e-Azam (35)
+* Afif-e-Azam (Hazrat Ayasha Siddiqa RA Barat; Waqia-e-Ifqa)
+
+***
+
 #### [Lecture 243 - Surah An-Noor; Shaadi - 15-12-2013 - | SSA Shah](https://www.youtube.com/watch?v=Bg5yxybmVbY)
 
 ***
