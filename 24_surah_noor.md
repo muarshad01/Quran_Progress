@@ -9,6 +9,10 @@
 
 ***
 
-#### [Fehm Al-Qur'an: Allama Talib Jauhri - Sura Noor 34](https://www.youtube.com/watch?v=-1cwlX7ScqI)
+#### [Fehm Al-Qur'an: Sura Noor 24 | Allama Talib Jauhri](https://www.youtube.com/watch?v=-1cwlX7ScqI)
+
+***
+
+#### [Allama Talib Johari on topic of Noor | Allama Talib Johri](https://www.youtube.com/watch?v=Qrq-SjuFN8Q)
 
 ***
