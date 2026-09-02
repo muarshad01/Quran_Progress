@@ -2,6 +2,7 @@
 * Tadween Surah Number = 10
 * Ayats = 
 * Sadaqat-e-Quran = 10 Aqli Dalail
+* Yunus - Unus
 
 ***
 
