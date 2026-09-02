@@ -13,7 +13,7 @@
 | Yaa   | Surah Yunus        | 10 |
 | Baa   | Surah Bani Israel  | 17 |
 | Sheen | Surah Ash-Shuaraa  | 26 |
-| Waw   | Surah Wa-Saffat.   | 37 |
+| Waw   | Surah Wa-Saffat    | 37 |
 | Qaaf  | Surah Qaaf         | 50 |
 
 #### Benefit
