@@ -1,18 +1,20 @@
 #### [The virtues and attributes of Sura Younus | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=Jw83CdCS6t0)
 * Tadween Surah Number = 10
 * Ayats = 109
-* 10 Rukuh
-* 3rd Manzil first Surah
+* Rukus = 10
+* First Surah of 3rd manzil
 * Sadaqat-e-Quran = 10 Aqli Dalail
 
 #### 7-Manzil of Quran (فمئ بشوق)
-1. Faa (Fatiha)
-2. Meem (Maida)
-3. Yaa (Yunus)
-4. Baa (Bani Israel)
-5. Sheen (Shuraa)
-6. Waw (Wa-Saffat)
-7. Qaaf (Qaaf)
+| Letter | Surah | Manzil|
+|---|---|---|
+| Faa   | Surah Fatiha       |  1 |
+| Meem  | Surah Maida        |  5 |
+| Yaa   | Surah Yunus        | 10 |
+| Baa   | Surah Bani Israel  | 17 |
+| Sheen | Surah Ash-Shuaraa  | 26 |
+| Waw   | Surah Wa-Saffat.   | 37 |
+| Qaaf  | Surah Qaaf         | 50 |
 
 #### Benefit
 * 13-time recite for a trouble
