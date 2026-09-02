@@ -4,6 +4,10 @@
 * Sadaqat-e-Quran = 10 Aqli Dalail
 * Yunus - Unus
 
+#### Benefit
+* 13-time recite for a trouble
+* Autism treatment (21 days)
+
 ***
 
 * https://www.youtube.com/shorts/pH9SujOVe2E
