@@ -3,7 +3,7 @@
 * Ayats = 109
 * Rukus = 10
 * First Surah of 3rd manzil
-* Sadaqat-e-Quran = 10 Aqli Dalail
+* **Sadaqat-e-Quran** = 10 Aqli Dalail and 1 Naqli Daleel
 
 ***
 
