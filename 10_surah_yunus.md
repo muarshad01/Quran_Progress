@@ -20,9 +20,8 @@
 
 ***
 
-* https://www.youtube.com/shorts/pH9SujOVe2E
-* https://quran.com/37/139-144
-* 37:139 - 148 = 10 vereses
+#### [Mathematical Miricle](https://www.youtube.com/shorts/pH9SujOVe2E)
+* __Surah As-Saffat 37/139-149__: [](https://quran.com/37/139-148)
 
 ***
 
