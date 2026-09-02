@@ -1,4 +1,7 @@
 #### [The virtues and attributes of Sura Younus | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=Jw83CdCS6t0)
+* Tadween Surah Number = 10
+* Ayats = 
+* Sadaqat-e-Quran = 10 Aqli Dalail
 
 ***
 
