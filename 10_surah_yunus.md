@@ -5,6 +5,19 @@
 * First Surah of 3rd manzil
 * Sadaqat-e-Quran = 10 Aqli Dalail
 
+***
+
+* Ale-Imran: Nafsaniat - Maarfat-e-Ilahi
+* Nisa: Family Structure
+* Maida: Food
+* Anaam: Animals, halal and haram
+* Araf: Tableeg
+* Anfal: Adaab-e-Fight
+* Tawba: 
+* Yunus: Is from Unus (Mohabbat)
+
+***
+
 #### 7-Manzil of Quran (فمئ بشوق)
 | Letter | Surah | Manzil|
 |---|---|---|
