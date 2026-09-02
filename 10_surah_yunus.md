@@ -1,3 +1,7 @@
+#### [The virtues and attributes of Sura Younus | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=Jw83CdCS6t0)
+
+***
+
 * https://www.youtube.com/shorts/pH9SujOVe2E
 * https://quran.com/37/139-144
 * 37:139 - 148 = 10 vereses
