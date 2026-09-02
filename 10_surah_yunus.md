@@ -6,13 +6,13 @@
 * Sadaqat-e-Quran = 10 Aqli Dalail
 
 #### 7-Manzil of Quran (فمئ بشوق)
-* 1. Faa (Fatiha)
-* 2. Meem (Maida)
-* 3. Yaa (Yunus)
-* 4. Baa (Bani Israel)
-* 5. Sheen (Shuraa)
-* 6. Waw (Wa-Saffat)
-* 7. Qaaf (Qaaf)
+1. Faa (Fatiha)
+2. Meem (Maida)
+3. Yaa (Yunus)
+4. Baa (Bani Israel)
+5. Sheen (Shuraa)
+6. Waw (Wa-Saffat)
+7. Qaaf (Qaaf)
 
 #### Benefit
 * 13-time recite for a trouble
