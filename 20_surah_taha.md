@@ -1,3 +1,7 @@
+#### [BENEFITS of Surah Ta-Ha | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=1NaqMWLtkgA)
+
+***
+
 * https://www.youtube.com/shorts/FHeS_WNKO40
 * https://quran.com/20/114
 
