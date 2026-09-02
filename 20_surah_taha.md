@@ -2,8 +2,9 @@
 
 ***
 
-* https://www.youtube.com/shorts/FHeS_WNKO40
-* https://quran.com/20/114
+#### Mathematical Miricle
+* [20/114](https://www.youtube.com/shorts/FHeS_WNKO40)
+* __Surah Ta-Ha 20/114__: [فَتَعَـٰلَى ٱللَّهُ ٱلْمَلِكُ ٱلْحَقُّ ۗ وَلَا تَعْجَلْ بِٱلْقُرْءَانِ مِن قَبْلِ أَن يُقْضَىٰٓ إِلَيْكَ وَحْيُهُۥ ۖ وَقُل رَّبِّ زِدْنِى عِلْمًۭا](https://quran.com/20/114)
 
 ***
 
