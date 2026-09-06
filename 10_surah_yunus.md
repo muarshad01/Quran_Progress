@@ -1,6 +1,6 @@
 #### [The virtues and attributes of Sura Younus | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=Jw83CdCS6t0)
-* Tadween Surah Number = 10
-* Ayats = 109
+* Tadween Surah Number = 10 = 1
+* Ayats = 109 = 1 + 0 + 9 = 10 = 1
 * Rukus = 10
 * First Surah of 3rd manzil
 * **Sadaqat-e-Quran** = 10 Aqli Dalail and 1 Naqli Daleel
