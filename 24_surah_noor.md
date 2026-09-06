@@ -1,3 +1,11 @@
+#### [Fehm Al-Qur'an: Sura Noor 24 | Allama Talib Jauhri](https://www.youtube.com/watch?v=-1cwlX7ScqI)
+
+***
+
+#### [Allama Talib Johari on topic of Noor | Allama Talib Johri](https://www.youtube.com/watch?v=Qrq-SjuFN8Q)
+
+***
+
 #### [BENEFITS and VIRTUES of Surah An-Noor | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=a3kt3cBRVFM)
 * Noor-e-Azam (35)
 * Afif-e-Azam (Hazrat Ayasha Siddiqa RA Barat; Waqia-e-Ifqa)
@@ -12,13 +20,5 @@
 * The architecture of whole universe
   * Tensors
   * Higher-order Tensors (The word 'Qandeel')
-
-***
-
-#### [Fehm Al-Qur'an: Sura Noor 24 | Allama Talib Jauhri](https://www.youtube.com/watch?v=-1cwlX7ScqI)
-
-***
-
-#### [Allama Talib Johari on topic of Noor | Allama Talib Johri](https://www.youtube.com/watch?v=Qrq-SjuFN8Q)
 
 ***
