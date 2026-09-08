@@ -4,8 +4,8 @@
 #### The Example (مَثَلُ) versus (مِثّل)
 * Zaat (مِثّل) kay mushabiha hona: __Surah Ash-Shuraa 42/11__: [لَيْسَ كَمِثْلِهِۦ شَىْءٌۭ ۖ](https://quran.com/ash-shuraa/11)
 * Siffat (مَثَلُ) kay mushabiha hona
-***
-* __Surah Az-Zukhruf 43/59 (مَثَلًۭا)__: [إِنْ هُوَ إِلَّا عَبْدٌ أَنْعَمْنَا عَلَيْهِ وَجَعَلْنَـٰهُ مَثَلًۭا لِّبَنِىٓ إِسْرَٰٓءِيلَ](https://quran.com/43/59)
+  * __Surah Az-Zukhruf 43/59 (مَثَلًۭا)__: [إِنْ هُوَ إِلَّا عَبْدٌ أَنْعَمْنَا عَلَيْهِ وَجَعَلْنَـٰهُ مَثَلًۭا لِّبَنِىٓ إِسْرَٰٓءِيلَ](https://quran.com/43/59)
+
 ***
 
 #### [Allama Talib Johari on topic of Noor | Allama Talib Johri](https://www.youtube.com/watch?v=Qrq-SjuFN8Q)
