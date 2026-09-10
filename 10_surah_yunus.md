@@ -1,3 +1,7 @@
+#### [Yunus A.S ka Waqiah Part 1.Dr Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=3Vf7qaVIsN8)
+
+***
+
 #### [The virtues and attributes of Sura Younus | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=Jw83CdCS6t0)
 * Tadween Surah Number = 10 = 1
 * Ayats = 109 = 1 + 0 + 9 = 10 = 1
