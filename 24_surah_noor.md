@@ -1,3 +1,9 @@
+#### [BENEFITS and VIRTUES of Surah An-Noor | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=a3kt3cBRVFM)
+* Noor-e-Azam (35)
+* Afif-e-Azam (Hazrat Ayasha Siddiqa RA Barat; Waqia-e-Ifqa)
+
+***
+
 #### [Sura An-Noor Ayat 24 | Allama Talib Jauhri](https://www.youtube.com/watch?v=-1cwlX7ScqI)
 * __Surah An-Nur 24/35__: [۞ ...ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ... مَثَلُ نُورِهِۦ كَمِشْكَوٰةٍۢ فِيهَا مِصْبَاحٌ ۖ... ٱلْمِصْبَاحُ فِى زُجَاجَةٍ ۖ ...ٱلزُّجَاجَةُ كَأَنَّهَا كَوْكَبٌۭ دُرِّىٌّۭ... يُوقَدُ مِن شَجَرَةٍۢ مُّبَـٰرَكَةٍۢ زَيْتُونَةٍۢ... لَّا شَرْقِيَّةٍۢ وَلَا غَرْبِيَّةٍۢ ...يَكَادُ زَيْتُهَا يُضِىٓءُ ...وَلَوْ لَمْ تَمْسَسْهُ نَارٌۭ ۚ نُّورٌ عَلَىٰ نُورٍۢ ۗ يَهْدِى ٱللَّهُ لِنُورِهِۦ مَن يَشَآءُ ۚ وَيَضْرِبُ ٱللَّهُ ٱلْأَمْثَـٰلَ لِلنَّاسِ ۗ وَٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/24/35)
 
@@ -31,12 +37,6 @@
 ***
 
 #### [Allama Talib Johari on topic of Noor | Allama Talib Johri](https://www.youtube.com/watch?v=Qrq-SjuFN8Q)
-
-***
-
-#### [BENEFITS and VIRTUES of Surah An-Noor | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=a3kt3cBRVFM)
-* Noor-e-Azam (35)
-* Afif-e-Azam (Hazrat Ayasha Siddiqa RA Barat; Waqia-e-Ifqa)
 
 ***
 
