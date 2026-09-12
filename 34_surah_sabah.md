@@ -1,4 +1,4 @@
-### [BENEFITS of Surah Saba || Mufti Muneer Ahmed Akhoon || RahamTV Zikr-o-Dua](https://www.youtube.com/watch?v=y6gTXU3s4Zo)
+### [BENEFITS of Surah Saba |Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=y6gTXU3s4Zo)
 * Shukkar-e-Azam
 * Dushman: 7-time Khatam
 
