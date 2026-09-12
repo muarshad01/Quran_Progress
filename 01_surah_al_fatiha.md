@@ -201,7 +201,7 @@
 * Tuh-nayn-unhayn Arzoo-aur-Maqsad ki-Manzil tak-ponchaya
 * Fatiha: Cure for ALL diseases and especially HEART diseases.
 * (Amli, Nazri, Fiqri) - rastay milayn-gayn
-* Aaap qurb-o-jawar-e-Khuda-wand mayn-jaa-kar rukayn-gay
+* **Aaap qurb-o-jawar-e-Khuda-wand mayn-jaa-kar rukayn-gay**
 
 ***
 
