@@ -27,7 +27,7 @@
 * __Recite Surah Taghuban (EVERY Night) after Isha-Prayers__
 * Tuh-nay-mujhay sari-zindagi achi-halat-mayn rakha-hai
 * Agar yeah-char-din-ki-takleef aa-gayee-hai
-* __Mujhay pura-yaqeen-hai, Tuh ishay-bhi apni-REHMAT-say jaldi tall-deyh-gaa__
+* __Mujhay pura-YAQEEN-hai, Tuh ishay-bhi apni-REHMAT-say jaldi tall-deyh-gaa__
 * __BAY-SHAK, Rabb aus-takleef-ko khatam kar-dytah-hai__
 
 ***
