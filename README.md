@@ -146,7 +146,7 @@
     * [Maqsud Takhliq (Ayat: 23/115) | Allama Talib Jauhri](https://www.youtube.com/watch?v=dUgOyE4Oczc)
 * [24. Surah An-Nur](https://quranwbw.com/24) -- September, 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/24_surah_noor.md)
-* [25. Surah Al-Furqan](https://quranwbw.com/25)
+* [25. Surah Al-Furqan](https://quranwbw.com/25) -- September, 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/25_surah_furqan.md)
 
 ***
