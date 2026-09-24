@@ -153,12 +153,8 @@
 
 ### Chapter 19
 * [26. Surah Ash Shu'araa](https://quranwbw.com/26) --
-   * [26:3 Don't grive yourself to death](https://quranwbw.com/26#3)
-   * [26:4 If We will, We could send down to them from the heaven a sign, to which they would bend their necks in humility](https://quranwbw.com/26#5)
-   * [26:[78-83] Who is Allah SWT](https://quranwbw.com/26#78-83)
-   * [26:85 Jannat Kay Waris](https://quranwbw.com/26#85)
-   * [26:87 Roz-e-mashre azur hai man pazeer](https://quranwbw.com/26#87)
-  
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/26_surah_ash_shuaraa.md)
+
 ***
 
 ### Chapter 20 [27 - 29]
@@ -168,7 +164,6 @@
 * [28. Surah Al-Qasas](https://quranwbw.com/28) --
 * [29. Surah Al Ankaboot](https://quranwbw.com/29)
   
-***
 ***
 
 ### Chapter 21 [30 - 32] -- October 31, 2024
