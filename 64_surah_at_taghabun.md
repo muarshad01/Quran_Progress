@@ -47,7 +47,7 @@
   * __Recite 41-times and blow-on-that-person__
 * __Travel
   * Recite 3-times__
-* __Duaas-are-accepted of that person__
+* __Duaas-are-ACCEPTED of that person__
 
 ***
 
