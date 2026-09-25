@@ -6,7 +6,7 @@
 
 ***
 
-### [Yearning for God | Prof. ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
+#### [Yearning for God | Prof. ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
 * Uss-Ikhlas-kay mamooli-say-zaray-ko joo ibtada-e-hayat mayn merey-naseeb mayn-tha
 * Mayn-nay-sirf ushee-ko use-kya...usi-ko exploit-karta-raha
 * Allah SWT you know at-least I'm a-bit-sincere with you-:)
@@ -21,11 +21,11 @@
 
 ***
 
-### [Secret Power of Surah Ikhlas | SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
+#### [Secret Power of Surah Ikhlas | SSA Shah](https://www.youtube.com/watch?v=XkttxfPa5cI)
 
 ***
 
-### [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
+#### [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
 
 ***
 
@@ -35,23 +35,23 @@
 
 ***
 
-### [Tawheed-e-Khalis | How to Understand It | Irfan-ul-Haq](https://www.youtube.com/watch?v=JXtFhA74PO0)
+#### [Tawheed-e-Khalis | How to Understand It | Irfan-ul-Haq](https://www.youtube.com/watch?v=JXtFhA74PO0)
 
 ***
 
-### [Surah Ikhlas Mein Lafz IKHLAAS Nahi Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=6a0DB8fM2_8)
+#### [Surah Ikhlas Mein Lafz IKHLAAS Nahi Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=6a0DB8fM2_8)
 
 ***
 
-### [Koi Insan Bhi Mukammal BE-NIYAAZ Nahi Hosakta | Irfan-ul-Haq](https://www.youtube.com/watch?v=iVEVxq5vnhY)
+#### [Koi Insan Bhi Mukammal BE-NIYAAZ Nahi Hosakta | Irfan-ul-Haq](https://www.youtube.com/watch?v=iVEVxq5vnhY)
 
 ***
 
-### [Quran Mein Lafz "SAMAD" Sirf aik Baar Aaya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=34b-vbh-EtQ)
+#### [Quran Mein Lafz "SAMAD" Sirf aik Baar Aaya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=34b-vbh-EtQ)
 
 ***
 
-### [Surah Ikhlas Ki Mukammal Tafseer | Dr Israr Ahmad](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
+#### [Surah Ikhlas Ki Mukammal Tafseer | Dr Israr Ahmad](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
 
 ***
 
@@ -69,6 +69,6 @@
 
 ***
 
-### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
+#### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
 
 ***
