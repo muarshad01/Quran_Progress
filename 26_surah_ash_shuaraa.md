@@ -1,4 +1,13 @@
 #### [Surah Al Shura ki Importance Fazilaat o Barkaat | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=TpL6xGxWJ6A)
+* Surah - 25
+* Ayats - 227
+* Surah 25: Noor-e-Azam
+* Surah 26: Light (difference b/w good/bad)
+* Surah 27: Mubaligh-e-Azam
+#### Benefits
+* 
+
+***
 
 * [26:3 Don't grive yourself to death](https://quranwbw.com/26#3)
 * [26:4 If We will, We could send down to them from the heaven a sign, to which they would bend their necks in humility](https://quranwbw.com/26#5)
