@@ -152,8 +152,8 @@
 ***
 
 ### Chapter 19
-* [26. Surah Ash Shu'araa](https://quranwbw.com/26) --
-   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/26_surah_ash_shuaraa.md)
+* [26. Surah Ash-Shuara](https://quranwbw.com/26) -- September 2026
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/26_surah_ash_shuaraa.md)
 
 ***
 
