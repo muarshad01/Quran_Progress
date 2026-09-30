@@ -163,7 +163,7 @@
 * [28. Surah Al-Qasas](https://quranwbw.com/28) --
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/28_surah_al_qasas.md)
 * [29. Surah Al-Ankaboot](https://quranwbw.com/29)
-  * []() 
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/29_surah_al_ankaboot.md) 
   
 ***
 
