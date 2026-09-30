@@ -3,3 +3,8 @@
 * __Surah An-Namal 27/19__: [فَتَبَسَّمَ ضَاحِكًۭا مِّن قَوْلِهَا... وَقَالَ رَبِّ أَوْزِعْنِىٓ ...أَنْ أَشْكُرَ نِعْمَتَكَ ٱلَّتِىٓ أَنْعَمْتَ عَلَىَّ وَعَلَىٰ وَٰلِدَىَّ ...وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ ...وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
 
 ***
+
+* __Surah An-Naml 27/19__: [Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quran.com/27/19)
+* [Mathematical Miricle](https://www.youtube.com/shorts/H-MmpYXQP0U)
+ 
+*** 
