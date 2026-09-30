@@ -159,8 +159,7 @@
 
 ### Chapter 20 [27 - 29]
 * [27. Suran An-Namal](https://quranwbw.com/27)
-   * [Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quran.com/27/19)
-   * https://www.youtube.com/shorts/H-MmpYXQP0U
+   * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/27_surah_an_naml.md)
 * [28. Surah Al-Qasas](https://quranwbw.com/28) --
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/28_surah_al_qasas.md)
 * [29. Surah Al Ankaboot](https://quranwbw.com/29)
