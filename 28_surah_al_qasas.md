@@ -2,8 +2,14 @@
 
 * Mubalaj-e-Azam (Surah Ash-Shura (26))
 * Sultan-e-Azam (Surah An-Namal (27))
-* Ajeer-e-Azam (Surah Surah Al-Qasas (28))
-  * 8-years must, 2-years optional
+* Ajeer-e-Azam (Surah Surah Al-Qasas (28)): Ajeer - Aujrat - Kaam karnay wala!
+  * 10-years: 8-years must, 2-years optional
+  * Prepare the Heart for Nubawat
+  * Married with Shuaib AS daughter
+  * Nubawat was granted at Toor (saw the fire)
+
+***
+
 
 ***
 
