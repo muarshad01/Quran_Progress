@@ -1,17 +1,17 @@
-### [BENEFITS of Surah Saba |Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=y6gTXU3s4Zo)
+#### [BENEFITS of Surah Saba |Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=y6gTXU3s4Zo)
 * Shukkar-e-Azam
 * Dushman: 7-time Khatam
 
 ***
 
-### [Blessing of Surah Sabah | SSA Shah](https://www.youtube.com/shorts/jgwdnUwUkbg)
+#### [Blessing of Surah Sabah | SSA Shah](https://www.youtube.com/shorts/jgwdnUwUkbg)
 * Recite for 1.5 years (18 monts) regularly after Isha prayers
 * Builds the foundations for that person
 * Insaan, starts worshipping Allah SWT ba-khushi (with great happiness)
 
 ***
 
-### [Surah Saba Rohani Taraqqi Main Kya Kirdaar Ada Karti Hai? | SSA Shah](https://www.youtube.com/watch?v=N-ydb9LGo2U)
+#### [Surah Saba Rohani Taraqqi Main Kya Kirdaar Ada Karti Hai? | SSA Shah](https://www.youtube.com/watch?v=N-ydb9LGo2U)
 * For building foundations of Spritualism (Rohani-Ilm & Rohani-Taraqi)
     * Recite after Ishaa regurlarly (~1.5 years)
     * Rooh-ki-Kasafat ko door-kar-deti-hai. 
