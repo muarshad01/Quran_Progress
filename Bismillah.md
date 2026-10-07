@@ -1,3 +1,7 @@
+#### [REEL: What Is the Purpose of Reciting Bismillah? | بسم اللہ کا وظیفہ کس نیت سے کرنا چاہیے؟ | SSA Shah](https://www.youtube.com/shorts/ttE2QzEZ6tA)
+
+***
+
 #### [Bismillah ki Tafseer | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
 1. Aqayd
 2. Akhamat
