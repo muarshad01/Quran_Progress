@@ -39,13 +39,13 @@
 
 #### [Surah Taghabun Ka Wazifa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
 * __3-times daily__
-  * Wealth-and-Khair in that house
+  * Wealth-and-Khair in that house 
 * __Zalim-Jabir-Shaks__
   * __Recite 3-times and then go-meet-that-person__
 * Yum-e-Azam (Yum-e-Taghuban)
 * __Sickness__
   * __Recite 41-times and blow-on-that-person__
-* __Travel
+* __Travel__
   * Recite 3-times__
 * __Duaas-are-ACCEPTED of that person__
 
