@@ -11,3 +11,13 @@
 
 ***
 
+#### [Benefits of Surah Al-Naziat | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=03dlcP1FbSo)
+* Read once before going to court.
+* Make sweet dish...-:)
+
+***
+
+
+
+
+
