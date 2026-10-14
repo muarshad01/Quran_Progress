@@ -160,7 +160,7 @@
 ### Chapter 20 [27 - 29]
 * [27. Suran An-Namal](https://quranwbw.com/27)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/27_surah_an_naml.md)
-* [28. Surah Al-Qasas](https://quranwbw.com/28) --
+* [28. Surah Al-Qasas](https://quranwbw.com/28) -- October 2026
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/28_surah_al_qasas.md)
 * [29. Surah Al-Ankaboot](https://quranwbw.com/29)
    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/29_surah_al_ankaboot.md) 
