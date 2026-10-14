@@ -285,6 +285,7 @@
 * [078. Surah An-Naba (The News)](https://quranwbw.com/78) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/78_surah_an_naba.md)
 * [079. Surah Al-Inshiqaq (Those who pull out)](https://quranwbw.com/79) -- 2026
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/79_surah_al_Inshiqaq.md)
 * [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- 2026
 * [081. Surah At-Takwir (The OverThrowing)](https://quranwbw.com/81) -- 2026
 * [082. Surah Al-Infitaar (The Splitting Asunder)](https://quranwbw.com/82) -- 2026
