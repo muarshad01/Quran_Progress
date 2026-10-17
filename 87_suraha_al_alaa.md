@@ -2,15 +2,19 @@
 * Tadween - 87
 * Nazool - 8
 * Ayats - 19
-* Two lifes - Physical and Spiritual
+* Two lifes - Physical= and Spiritual
 * Khair-e-Azam (Akhirat ki Khari)
 * __Surah Al-Ala 87/17__: [وَٱلْـَٔاخِرَةُ خَيْرٌ وَأَبْقَىٰٓ ](https://quran.com/87/17)
 
 #### Benefits
+* Piles
 * Heals the wounds
+* Sugar
 * Before travel: Recite 3-times
 
 ***
+
+
 
 
 
