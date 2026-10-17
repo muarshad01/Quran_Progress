@@ -7,6 +7,7 @@
 * __Surah Al-Ala 87/17__: [وَٱلْـَٔاخِرَةُ خَيْرٌ وَأَبْقَىٰٓ ](https://quran.com/87/17)
 
 #### Benefits
+* Pains in body
 * Piles
 * Heals the wounds
 * Sugar
