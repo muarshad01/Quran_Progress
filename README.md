@@ -294,6 +294,7 @@
 * [085. Surah Al-Burooj (The Constellations)](https://quranwbw.com/85) -- 2026
 * [086. Surah At-Tariq (The Night Comer)](https://quranwbw.com/86) -- 2026
 * [087. Surah Al-Ala (The Most High)](https://quranwbw.com/87) -- 2026
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/87_suraha_al_alaa.md)
 * [088. Surah Al-Ghaashiyah (The Overwhelming)](https://quranwbw.com/88) -- 2026
 * [089. Surah Al-Fajr (The Dawn)](https://quranwbw.com/89) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/89_surah_al_fajr.md)
