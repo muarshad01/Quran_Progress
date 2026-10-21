@@ -292,6 +292,7 @@
 * [082. Surah Al-Infitaar (The Splitting Asunder)](https://quranwbw.com/82) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/82_surah_al_Infitaar.md)
 * [083. Surah Al-Mutaffifin (Defrauding)](https://quranwbw.com/83) -- 2026
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/83_surah_al_mutaffifin.md)
 * [084. Surah Al-Inshiqaq (The Splitting Asunder)](https://quranwbw.com/84) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/84_surah%20_al_Inshiqaq.md)
 * [085. Surah Al-Burooj (The Constellations)](https://quranwbw.com/85) -- 2026
