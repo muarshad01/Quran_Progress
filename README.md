@@ -288,6 +288,7 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/79_surah_an_naziat.md)
 * [080. Surah Abasa (He Frowned)](https://quranwbw.com/80) -- 2026
 * [081. Surah At-Takwir (The OverThrowing)](https://quranwbw.com/81) -- 2026
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/81_surah_at_takwir.md)
 * [082. Surah Al-Infitaar (The Splitting Asunder)](https://quranwbw.com/82) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/82_surah_al_Infitaar.md)
 * [083. Surah Al-Mutaffifin (Defrauding)](https://quranwbw.com/83) -- 2026
