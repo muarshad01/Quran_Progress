@@ -8,4 +8,9 @@
 
 ***
 
+#### [Benefits of Surah Al-Inshiqaq | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=G7Wjddew0Ek)
+
+
+***
+
 
