@@ -3,6 +3,9 @@
 * Nazool -
 * Tadween - 82
 
+#### Benefits
+* To unearth hidden Jadu
+
 ***
 
 
