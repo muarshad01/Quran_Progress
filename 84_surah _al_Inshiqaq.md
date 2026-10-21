@@ -4,7 +4,7 @@
 * Tadween - 84
 * Laqai-e-Azam
 
-* __Surah Al-Inshiqaq 84/6__: [يَـٰٓأَيُّهَا ٱلْإِنسَـٰنُ إِنَّكَ كَادِحٌ إِلَىٰ رَبِّكَ كَدْحًا فَمُلَـٰقِيهِ](https://quran.com/al-inshiqaq/6)
+* __Surah Al-Inshiqaq 84/6 (Laqai-e-Azam)__: [يَـٰٓأَيُّهَا ٱلْإِنسَـٰنُ إِنَّكَ كَادِحٌ إِلَىٰ رَبِّكَ كَدْحًا فَمُلَـٰقِيهِ](https://quran.com/al-inshiqaq/6)
 
 ***
 
