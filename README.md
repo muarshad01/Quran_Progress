@@ -293,6 +293,7 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/82_surah_al_Infitaar.md)
 * [083. Surah Al-Mutaffifin (Defrauding)](https://quranwbw.com/83) -- 2026
 * [084. Surah Al-Inshiqaq (The Splitting Asunder)](https://quranwbw.com/84) -- 2026
+    * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/84_surah%20_al_Inshiqaq.md)
 * [085. Surah Al-Burooj (The Constellations)](https://quranwbw.com/85) -- 2026
 * [086. Surah At-Tariq (The Night Comer)](https://quranwbw.com/86) -- 2026
 * [087. Surah Al-Ala (The Most High)](https://quranwbw.com/87) -- 2026
