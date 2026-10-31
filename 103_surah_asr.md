@@ -10,3 +10,7 @@
 #### [Tafseer Surah Al-Asr | Allama Talib Jauhari](https://www.youtube.com/watch?v=FMqTQpcwj0o)
 
 ***
+
+#### [Allah Quran Mein Qasam Kiun Khata Hai? | Sura Al-Asr | Allama Talib Jauhari | فھم القران](https://www.youtube.com/watch?v=TJ5MgpcDpMU)
+
+***
