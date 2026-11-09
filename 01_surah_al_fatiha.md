@@ -2,6 +2,11 @@
 
 ***
 
+#### [Dua ka saleeqa | Allama Talib Johri](https://www.youtube.com/shorts/-UmGfdgMq_U)
+* 
+
+***
+
 #### [Tafseer Surah Fatiha | Allama Talib Johri](https://www.youtube.com/shorts/z1nla-XpqME)
 * __Surah Al-Isra 17/23__: [۞ وَقَضَىٰ رَبُّكَ ...أَلَّا تَعْبُدُوٓا۟ إِلَّآ إِيَّاهُ... وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًا ۚ إِمَّا يَبْلُغَنَّ عِندَكَ ٱلْكِبَرَ أَحَدُهُمَآ أَوْ كِلَاهُمَا فَلَا تَقُل لَّهُمَآ أُفٍّ وَلَا تَنْهَرْهُمَا وَقُل لَّهُمَا قَوْلًا كَرِيمًا](https://quran.com/17/23)
 
