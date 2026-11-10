@@ -159,3 +159,5 @@
 ](https://www.youtube.com/watch?v=8vcEJM8l6Ak)
 
 ***
+
+#### [Hurf-e-Faqeer : Session 28 Al- Meezan | SSA Shah](https://www.youtube.com/watch?v=IrL6EG-w3yg)
