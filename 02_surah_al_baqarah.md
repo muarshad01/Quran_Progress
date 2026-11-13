@@ -536,3 +536,13 @@ ulaika alladhina ish'tarawu al-dalalata bil-huda fama Rabihat tijaratuhum wama k
 * __2/283__:[Keep the trust](https://quran.com/2/283)
 
 ***
+
+#### [Bani Israel Ko Gai Ki Talaash Kyun Thi? 😳 | Surah Baqarah Ka Hairatangez Waqia | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Ujf8NSWyf5s)
+
+***
+
+#### [Bani Israel Ke Dil Pathar Kyun Ho Gaye? 😳 | Quran Mein Hairatangez Haqeeqat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=vmaT5dNabYc)
+
+***
+
+
