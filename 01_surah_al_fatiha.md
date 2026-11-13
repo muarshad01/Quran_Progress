@@ -239,7 +239,7 @@
 
 ***
 
-#### [Surah Fatiha se sarh satti ka Tor | ubqari wazaif](https://www.youtube.com/watch?v=pKzMalepVu4)
+#### [Surah Fatiha se sarh-satti ka Tor | ubqari wazaif](https://www.youtube.com/watch?v=pKzMalepVu4)
 
 ***
 
