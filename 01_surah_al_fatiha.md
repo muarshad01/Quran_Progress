@@ -239,11 +239,13 @@
 
 ***
 
-
 #### [Surah Fatiha se sarh satti ka Tor | ubqari wazaif](https://www.youtube.com/watch?v=pKzMalepVu4)
 
 ***
 
+#### [Surah Fatiha Ki Azeem Fazilat 😱| Duniya Ke Har Khazane Ki Kunji Aur Behtareen Wazifa! | Mufti Muneer](https://www.youtube.com/watch?v=Py1AXBmDBw8)
+
+***
 
 
 
