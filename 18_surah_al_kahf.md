@@ -196,3 +196,7 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 #### [Pani aur Portals, Surah Kahf ke Raz: The Quantum Mystery of Majma-ul-Bahrain | Dr Sufiyan](https://www.youtube.com/watch?v=Q8RMc1qApPs)
 
 ***
+
+#### [Jab Kuta Najis Hota Hai Phair Ashab e Kahf Ka Kuta Kiu Nahi | Allama Talib Hussain Johri](https://www.youtube.com/watch?v=pCkRsYlXUj4)
+
+***
