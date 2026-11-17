@@ -1,3 +1,7 @@
+* https://www.youtube.com/shorts/2xTTxiJJiFo
+
+***
+
 #### [The Prophet's Ascent: Understanding Sidratul Muntaha | Nouman Ali Khan](https://www.youtube.com/watch?v=EEAjeI8N598)
 * __Surah An-Najm 53/07__: [وَهُوَ بِٱلْأُفُقِ ٱلْأَعْلَىٰ](https://quran.com/53/7)
 * __Surah An-Najm 53/11__: [مَا كَذَبَ ٱلْفُؤَادُ مَا رَأَىٰٓ](https://quran.com/53/11)
