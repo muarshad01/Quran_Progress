@@ -1,5 +1,6 @@
 * https://www.youtube.com/shorts/2xTTxiJJiFo
 
+* [ | Qasim Ali Shah](https://www.youtube.com/shorts/sUAtOUdQ6A8)
 ***
 
 #### [The Prophet's Ascent: Understanding Sidratul Muntaha | Nouman Ali Khan](https://www.youtube.com/watch?v=EEAjeI8N598)
