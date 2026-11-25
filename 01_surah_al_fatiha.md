@@ -7,6 +7,11 @@
 
 ***
 
+#### [Bhatky huye log kon hen? | Allama Talib Johri](https://www.youtube.com/shorts/m9K2x-Ro2C8)
+* Manzil aur Raasta
+
+***
+
 #### [Tafseer Surah Fatiha | Allama Talib Johri](https://www.youtube.com/shorts/z1nla-XpqME)
 * __Surah Al-Isra 17/23__: [۞ وَقَضَىٰ رَبُّكَ ...أَلَّا تَعْبُدُوٓا۟ إِلَّآ إِيَّاهُ... وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًا ۚ إِمَّا يَبْلُغَنَّ عِندَكَ ٱلْكِبَرَ أَحَدُهُمَآ أَوْ كِلَاهُمَا فَلَا تَقُل لَّهُمَآ أُفٍّ وَلَا تَنْهَرْهُمَا وَقُل لَّهُمَا قَوْلًا كَرِيمًا](https://quran.com/17/23)
 
