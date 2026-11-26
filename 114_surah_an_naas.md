@@ -26,6 +26,9 @@
 2. Thinks someone else is real ruler/king (مَلِك).
 3. Many desires are His real purpose-of-life (Good Life partner, Good children, become prominit, etc). Some else besided ALLAH is His Matloob-e-haqqaqi, maqsood-e-haqqaqi (إِلَٰه).
 
+* Surah An-Nahl 16/98__: [فَإِذَا قَرَأْتَ ٱلْقُرْءَانَ فَٱسْتَعِذْ بِٱللَّهِ مِنَ ٱلشَّيْطَـٰنِ ٱلرَّجِيمِ](https://quran.com/16/98)
+* Surah An-Nahl 16/99__: [إِنَّهُۥ لَيْسَ لَهُۥ سُلْطَـٰنٌ عَلَى ٱلَّذِينَ ءَامَنُوا۟ وَعَلَىٰ رَبِّهِمْ يَتَوَكَّلُونَ](https://quran.com/16/99)
+* Surah An-Nahl 16/100__: [إِنَّمَا سُلْطَـٰنُهُۥ عَلَى ٱلَّذِينَ يَتَوَلَّوْنَهُۥ وَٱلَّذِينَ هُم بِهِۦ مُشْرِكُونَ](https://quran.com/16/100)
 
 ***
 
