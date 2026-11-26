@@ -8,6 +8,6 @@
 * One Name (بِرَبِّ ٱلْفَلَقِ)
 * Four Evils (شَرِّ):
 1. **Everything**: Evil of whatever He has created,
-2. **Specific**: Evil of the night when it grows dark,
-3. **Specific**: Evil of those ˹witches casting spells by˺ blowing onto knots,
-4. **Specific**: Evil of an envier when they envy.”
+2. **Specific**: Evil of the NIGHT when it grows dark,
+3. **Specific**: Evil of those ˹WITCHES casting spells by˺ blowing onto knots,
+4. **Specific**: Evil of an ENVIER when they envy.”
