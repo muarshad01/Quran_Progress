@@ -10,7 +10,7 @@
 2. **Malik (Arabic: Malik, مَلِك)** means a **king or monarch**, while Malookiat (Arabic/Urdu: Mulūkiyyah, ملوکیت) refers to kingship, monarchy, or dynastic rule
 3. **Ilah (إِلَٰه)** is an Arabic word meaning **"deity," "god," or "object of worship,"** while ilahiyat (from Arabic ilāhiyyāt, إِلٰهِيَّات) refers to "divine matters," "theology," or "metaphysics"
 
-* Evil of the lurking whisperer
+* Evil of the lurking whisperer (مِن شَرِّ ٱلْوَسْوَاسِ ٱلْخَنَّاسِ)
 
 ***
 
