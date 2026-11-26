@@ -1,3 +1,9 @@
+## Surah An-Nas
+* Surah - 113
+* Ayats - 5
+
+***
+
 #### [Tafseer Sura Al-Falaq | Allama Talib Jauhari](https://www.youtube.com/watch?v=Ev1RAiAD3pI)
 * One Name (بِرَبِّ ٱلْفَلَقِ)
 * Four Evils (شَرِّ):
