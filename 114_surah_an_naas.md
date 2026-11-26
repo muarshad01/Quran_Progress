@@ -1,3 +1,9 @@
+## Surah An-Nas
+* Surah - 114
+* Ayats - 6
+
+***
+
 #### [Tafseer Sura An-Nas | Allama Talib Jauhari](https://www.youtube.com/watch?v=2kiXlIhY8-0)
 1. Rabb (رَبّ): Translates commonly as "Lord," though it carries a broader meaning of **Sustainer, Cherisher, Master, and Nurturer.**
   * Rubūbiyyah (رُبُوبِيَّة): The verbal noun meaning Lordship or the active nurturing and sustaining of creation.
