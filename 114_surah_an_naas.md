@@ -8,7 +8,7 @@
 * 3 Names 
 1. **Rabb (رَبّ)**: "Lord," though it carries a broader meaning of **Sustainer, Cherisher, Master, and Nurturer.**
 2. **Malik (مَلِك)**: king or monarch, while Malookiat (ملوکیت) refers to kingship, monarchy, or dynastic rule
-3. **Ilah (إِلَٰه)**: "deity," "god," or "object of worship," while ilahiyat (إِلٰهِيَّات) refers to "divine matters," "theology," or "metaphysics"
+3. **Ilah (إِلَٰه)**: "deity," "god," or "object of worship," while ilahiyat (إِلٰهِيَّات) refers to "divine matters," "theology," or "metaphysics". Matloob-e-haqqaqi, maqsood-e-haqqaqi!!!
 * 1 Evil of the LURKING WHISPERER (مِن شَرِّ ٱلْوَسْوَاسِ ٱلْخَنَّاسِ)
 
 #### root خ-ن-س (kh-n-s)
@@ -20,6 +20,12 @@
 
 * **Yuwaswisu (يُوَسْوِسُ)**
   * It describes the persistent, subtle act of planting evil suggestions, doubts, temptations, or anxieties into a person's heart or
+
+#### Three types of Waswasa
+1. Someone else beside ALLAH will fulfill-my-NEEDS (رَبّ), etc.
+2. Thinks someone else is real ruler/king (مَلِك).
+3. Many desires are His real purpose-of-life (Good Life partner, Good children, become prominit, etc). Some else besided ALLAH is His Matloob-e-haqqaqi, maqsood-e-haqqaqi (إِلَٰه).
+
 
 ***
 
