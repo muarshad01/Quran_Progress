@@ -47,6 +47,17 @@
 
 ***
 
+#### Chest
+* Quran is shifa for Chest
+* Waswasa in Chest
+* Islam lives in Chect
+* Kuft lives in Chest
+
+* __Surah An-Zumar 39/22__: [أَفَمَن شَرَحَ ٱللَّهُ صَدْرَهُۥ لِلْإِسْلَـٰمِ فَهُوَ عَلَىٰ نُورٍ مِّن رَّبِّهِۦ ۚ فَوَيْلٌ لِّلْقَـٰسِيَةِ قُلُوبُهُم مِّن ذِكْرِ ٱللَّهِ ۚ أُو۟لَـٰٓئِكَ فِى ضَلَـٰلٍ مُّبِينٍ](https://quran.com/39/22)
+* Allah Gives NOOR to that person, whose HEART is opened to ISLAM
+
+***
+
 #### [Surah Nas me ajeeb raz | Allama Talib Johri](https://www.youtube.com/shorts/vPh1gpQRu7c)
 
 ***
