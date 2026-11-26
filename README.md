@@ -343,7 +343,7 @@
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/112_surah_ikhlas.md) 
 * [113. Surah Al-Falaq (The Dawn)](https://quran.com/113) -- 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/113_surah_al_falaq.md)
-* [114. Surah An-Nas (The Men)](https://quran.com/114) -- 2026
+* [114. Surah An-Nas (The Men)](https://quran.com/114) -- Nov 26, 2026
     * [Notes](https://github.com/muarshad01/Quran_Progress/blob/main/114_surah_an_naas.md)
 
 ***
