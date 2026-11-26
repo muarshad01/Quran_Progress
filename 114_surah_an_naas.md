@@ -18,6 +18,9 @@
 
 #### Dunya versus Akhira
 
+* **Yuwaswisu (يُوَسْوِسُ)**
+  * It describes the persistent, subtle act of planting evil suggestions, doubts, temptations, or anxieties into a person's heart or
+
 ***
 
 #### [Surah Nas me ajeeb raz | Allama Talib Johri](https://www.youtube.com/shorts/vPh1gpQRu7c)
