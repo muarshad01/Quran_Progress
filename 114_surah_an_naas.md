@@ -9,7 +9,7 @@
 1. **Rabb (رَبّ)**: "Lord," though it carries a broader meaning of **Sustainer, Cherisher, Master, and Nurturer.**
 2. **Malik (مَلِك)**: king or monarch, while Malookiat (ملوکیت) refers to kingship, monarchy, or dynastic rule
 3. **Ilah (إِلَٰه)**: "deity," "god," or "object of worship," while ilahiyat (إِلٰهِيَّات) refers to "divine matters," "theology," or "metaphysics". Matloob-e-haqqaqi, maqsood-e-haqqaqi!!!
-* 1 Evil of the LURKING WHISPERER (مِن شَرِّ ٱلْوَسْوَاسِ ٱلْخَنَّاسِ)
+* 1 Evil of the **LURKING WHISPERER (مِن شَرِّ ٱلْوَسْوَاسِ ٱلْخَنَّاسِ)**
 
 #### root خ-ن-س (kh-n-s)
 * shrinking back, retreating, lagging behind, or hiding.
