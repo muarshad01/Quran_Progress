@@ -16,7 +16,7 @@
 * __Surah An-Nas 114/4__: [مِن شَرِّ ٱلْوَسْوَاسِ ٱلْخَنَّاسِ](https://quran.com/114/4)
 * __Surah At-Takwir 81/15__: [فَلَآ أُقْسِمُ بِٱلْخُنَّسِ](https://quran.com/at-takwir/15)
 
-#### Dunya versus Akhira
+#### Dunya-Evil versus Akhira-Evil
 
 * **Yuwaswisu (يُوَسْوِسُ)**
   * It describes the persistent, subtle act of planting evil suggestions, doubts, temptations, or anxieties into a person's heart or
