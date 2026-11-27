@@ -12,6 +12,8 @@
 * __Khuda nay khabi kisi-talab ko zaya-nahi-kya__
 
 ***
+## SSA Shah
+
 
 #### [Surah Ikhlaas Ki Tilawat Ke Duniyavi Fawaid | SSA Shah](https://www.youtube.com/watch?v=6i6dnyacEQ8)
 
@@ -28,6 +30,15 @@
 #### [Surah Ar-Rahman: The Healing Miracle You Need! (Surah Ikhlas)| SSA Shah](https://www.youtube.com/watch?v=iyP8OLvybNw)
 * Surah Ikhlas: Rabb ka Jalal
 * Baad-Roohayn / Ghayr-maryai-quwateen bhaag-jaati-hayn
+
+***
+
+
+#### [Wahid aur Ahad Mein Farq | Allama Talib Jauhari](https://www.youtube.com/watch?v=RrdkMwr-AVw)
+
+***
+
+#### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
 
 ***
 
@@ -61,14 +72,5 @@
         * Raab-ka-qurab hasil-hota-hai
 ***
 
-#### [Wahid aur Ahad Mein Farq | Allama Talib Jauhari](https://www.youtube.com/watch?v=RrdkMwr-AVw)
 
-***
 
-#### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
-
-***
-
-#### [Qul | Allama Talib Johri](https://www.youtube.com/shorts/NyBq1UpdqQo)
-
-***
