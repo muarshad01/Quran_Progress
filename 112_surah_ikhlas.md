@@ -12,8 +12,8 @@
 * __Khuda nay khabi kisi-talab ko zaya-nahi-kya__
 
 ***
-## SSA Shah
 
+## SSA Shah
 
 #### [Surah Ikhlaas Ki Tilawat Ke Duniyavi Fawaid | SSA Shah](https://www.youtube.com/watch?v=6i6dnyacEQ8)
 
@@ -33,6 +33,7 @@
 
 ***
 
+## Allama Talib Jauhari
 
 #### [Wahid aur Ahad Mein Farq | Allama Talib Jauhari](https://www.youtube.com/watch?v=RrdkMwr-AVw)
 
@@ -41,6 +42,8 @@
 #### [Tafseer Sura Ikhlaas | Allama Talib Johri](https://www.youtube.com/watch?v=JXtHhs7ypf0)
 
 ***
+
+## Irfan-ul-Haq
 
 #### [Tawheed-e-Khalis | How to Understand It | Irfan-ul-Haq](https://www.youtube.com/watch?v=JXtFhA74PO0)
 
@@ -57,6 +60,8 @@
 #### [Quran Mein Lafz "SAMAD" Sirf aik Baar Aaya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=34b-vbh-EtQ)
 
 ***
+
+## Dr Israr Ahmad
 
 #### [Surah Ikhlas Ki Mukammal Tafseer | Dr Israr Ahmad](https://www.youtube.com/watch?v=EUwcHu4Bh4g)
 
