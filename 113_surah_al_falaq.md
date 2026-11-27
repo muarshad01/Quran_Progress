@@ -5,7 +5,9 @@
 ***
 
 #### [Tafseer Sura Al-Falaq | Allama Talib Jauhari](https://www.youtube.com/watch?v=Ev1RAiAD3pI)
-* One Name (بِرَبِّ ٱلْفَلَقِ)
+* One Name (بِرَبِّ ٱلْفَلَقِ) - Lord of the daybreak ()
+  * __Surah Al-Anam 6/95 (فَالِقُ ٱلْحَبِّ وَٱلنَّوَىٰ)__: [۞ إِنَّ ٱللَّهَ فَالِقُ ٱلْحَبِّ وَٱلنَّوَىٰ ۖ... يُخْرِجُ ٱلْحَىَّ مِنَ ٱلْمَيِّتِ وَمُخْرِجُ ٱلْمَيِّتِ مِنَ ٱلْحَىِّ ۚ ذَٰلِكُمُ ٱللَّهُ ۖ فَأَنَّىٰ تُؤْفَكُونَ](https://quran.com/al-anam/95)
+  * __Surah Al-Anam 6/96 (فَالِقُ ٱلْإِصْبَاحِ)__: [فَالِقُ ٱلْإِصْبَاحِ ...وَجَعَلَ ٱلَّيْلَ سَكَنًا وَٱلشَّمْسَ وَٱلْقَمَرَ حُسْبَانًا ۚ ذَٰلِكَ تَقْدِيرُ ٱلْعَزِيزِ ٱلْعَلِيمِ](https://quran.com/al-anam/96)
 * Four Evils (شَرِّ):
 1. **Everything**: Evil of whatever He has created,
 2. **Specific**: Evil of the NIGHT when it grows dark,
