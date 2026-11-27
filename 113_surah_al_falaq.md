@@ -40,7 +40,6 @@
 * __Surah At-Tur 52/48 (وَٱصْبِرْ لِحُكْمِ رَبِّكَ فَإِنَّكَ بِأَعْيُنِنَا ۖ)__: [وَٱصْبِرْ لِحُكْمِ رَبِّكَ فَإِنَّكَ بِأَعْيُنِنَا ۖ وَسَبِّحْ بِحَمْدِ رَبِّكَ حِينَ تَقُومُ](https://quran.com/at-tur/48)
   * Aqal-e-Rasool markaz e wahi-e-Ilahi hai
 
-
 ***
 
 #### Aqal-e-Nabi versus Jism-e-Nabi
@@ -48,6 +47,13 @@
 
 ***
 
+#### Princle 
+1. No Loss and is Beneficial (Planning) 
+2. Correct path is decided 
+3. ALL hurdles are removed for that path
+4. When you accomplished that thing then saved from ENVIOUS people.
+
+***
 
 
 
