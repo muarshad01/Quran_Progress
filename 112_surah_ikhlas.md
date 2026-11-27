@@ -61,7 +61,7 @@
         * Raab-ka-qurab hasil-hota-hai
 ***
 
-#### [Wahid aur Ahad Mein Farq | Allama Talib Jauhari](https://www.youtube.com/)
+#### [Wahid aur Ahad Mein Farq | Allama Talib Jauhari]([https://www.youtube.com/](https://www.youtube.com/watch?v=RrdkMwr-AVw))
 
 ***
 
