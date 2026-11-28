@@ -200,3 +200,10 @@ https://www.youtube.com/shorts/mLBpn6YKbrc
 #### [Jab Kuta Najis Hota Hai Phair Ashab e Kahf Ka Kuta Kiu Nahi | Allama Talib Hussain Johri](https://www.youtube.com/watch?v=pCkRsYlXUj4)
 
 ***
+
+#### [309 Years](https://www.youtube.com/shorts/VzweJ0Q_Wec)
+1. 309
+2. 300 + 9
+
+***
+
