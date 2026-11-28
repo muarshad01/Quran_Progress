@@ -69,7 +69,7 @@
 
 * Ya-Wahid (Number "1")
 * Ya-Ahad (Meaning of "Yakta"; Rabb apni-zaat-main yakta-hai; bay misal-hai; lasani-hai)
-* Benefits
+* Benefits:
     * Rizq-ki-qami doar-hoti-hai
     * Roozmara ki zindagi-mein jo dushwarain-atti-hain, uss-mayn asani anay-lagthi-hai
     * Door-e-Kabeer: Ilm bohot alaa-payay ka hasil-hota-hai (Allah Husamad)
@@ -77,7 +77,8 @@
         * Raab-ka-qurab hasil-hota-hai
 ***
 
-### Wahid (وَٰحِدٌ)
+#### Walid (Aik) and Ahad (Akala)
+* **Wahid (وَٰحِدٌ)**
 * __Sura Al-Baqarah 2/163__: [وَإِلَـٰهُكُمْ إِلَـٰهٌ وَٰحِدٌ ۖ لَّآ إِلَـٰهَ إِلَّا هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/al-baqarah/163)
 * __Surah Ghafir 40/16__: [يَوْمَ هُم بَـٰرِزُونَ ۖ لَا يَخْفَىٰ عَلَى ٱللَّهِ مِنْهُمْ شَىْءٌ ۚ لِّمَنِ ٱلْمُلْكُ ٱلْيَوْمَ ۖ لِلَّهِ ٱلْوَٰحِدِ ٱلْقَهَّارِ](https://quran.com/40/16)
 
